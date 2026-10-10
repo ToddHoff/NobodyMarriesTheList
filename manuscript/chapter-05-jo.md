@@ -6,9 +6,15 @@ By eleven on the first Saturday we had emptied one closet, and I had looked at a
 
 I've worked around men's arms for twenty years. I pay eleven people for theirs. I know what a forearm is for and about what it will lift, and I don't stand in a hallway holding one by the wrist.
 
+I let go of his wrist and went to find Vili. The back of my neck stayed hot through the first four coats. From inside the closet I could hear the tape gun in the living room, every strip of every H. I could tell without looking which ones he was taking slow.
+
 The closet was the hall closet, which is where I start. It had fourteen coats in it, hung by length, with every hanger facing the same way. I go through every pocket of every coat. Whatever I find gets called out loud, seen by a second person and written on the found sheet before it goes in a bag. That protects the family, and it protects my crew.
 
+Fourteen coats is a lot of coats for one woman. Most women whose houses I clear have three or four. Darlene Brennan's everyday coat was easy to find. It was a gray wool car coat at the short end, with the cuffs rubbed shiny and one button sewn back on in brown thread that didn't match. It smelled like the house.
+
 The found sheet for the morning said nine peppermints, $1.37 in change, a hairnet in its paper sleeve, two church bulletins and a plastic badge on a clip.
+
+The badge came out of the gray coat, left pocket. I called it, Manny looked, and I wrote it down as a badge on a clip. Then the bag went into my shirt pocket and stayed there. Cal Brennan was out on the living room floor with the tape gun and his back to the kitchen. My guys were going past him all morning with runners and pads. Green or blue on that one could wait until there was nobody else in the room.
 
 He built the forty boxes. I checked the bottoms when he wasn't looking. Every one had its H, and after the first ten they were square.
 
@@ -24,7 +30,7 @@ Vili and Manny took the cooler out to the tailgate. Vili looked at me, and then 
 
 I eat apart from the crew on every job. They need forty-five minutes a day to talk about me, and I would rather not hear it.
 
-I picked the courtyard. It had a bench and the sun, and it had the best thing about that house, which was that the dog was on the far side of it.
+I picked the atrium. It had a bench and the sun, and it had the best thing about that house, which was that the dog was on the far side of it.
 
 From the bench I could see straight through the living room, in one wall of glass and out the other, to the back yard. He was lying against the back door with his nose on the track. He was an old golden retriever, the pale kind, about the color of his name, with a white face. That put two panes of glass and a living room between us, and that is about right for me and a dog.
 
@@ -34,11 +40,17 @@ At eleven he went out again, and this time I watched.
 
 He turned on the hose bib by the fence and let it run until it was cold. Then he crouched down in his new boots with his two hands cupped together, and the dog drank out of them. He filled them again. He did it five times, with his cuffs still turned back.
 
+A little after eight that morning, with the neighbor's boxes on the hearth, I had turned around at that sink to ask him about the cabinets. His boots were on the hall carpet with the toes against the aluminum strip. He wasn't coming any farther. I looked at the yellow phone on the wall. I couldn't have told you why. It was the one thing in that kitchen that looked like somebody had used it every day. I didn't ask him about it then. He hadn't set foot past that strip since.
+
 There are bowls in a kitchen. There was a kitchen thirty feet from him with thirty bowls in it, and he was not going in there for one.
 
 That was seven, and I knew which column. I felt it low in my chest, where I had felt the sweet peas.
 
+How a client waters his dog is no business of mine. Lunch is the one forty-five minutes in my day I don't owe anybody. I sat on the bench with one end of the foil open and watched him fill his hands again.
+
 I put my sandwich down and went into the kitchen. It's a job site. I can touch what I like as long as it stays in the house. In any kitchen a woman set up before 1980, the mixing bowls are left of the stove, second shelf, nested by size. I took the middle one and filled it at the sink.
+
+One cup was upside down on the drain rack. It would have been the last thing she washed. I've packed that cup in a lot of kitchens. I left this one where it was.
 
 I slid the back door open six inches and pushed the bowl through with my boot.
 
@@ -54,17 +66,21 @@ He looked at the kitchen. In that house you can see it from anywhere.
 
 “I'll put it back,” I said.
 
+That made two things in five minutes I'd done for him that I would have made Vili do for himself. I turned around before he could say thank you again.
+
 I went back to my bench. I left the door open the six inches, because there was a bowl of water in the way of it and I didn't think.
 
-He came through the house a few minutes later and stood in the courtyard with his hands still wet.
+He came through the house a few minutes later and stood in the atrium with his hands still wet.
+
+His cuffs were still turned back. Somewhere around nine I had decided I was allowed one second on his arms. I used it and looked at his boots.
 
 “Where's your lunch?” I said.
 
-“I didn't bring one.”
+“I did not bring one.”
 
 “What did you think was going to happen at lunch?”
 
-He gave it honest thought. “There's usually something.”
+He gave it honest thought. “There is usually something.”
 
 “Something.”
 
@@ -72,19 +88,21 @@ He gave it honest thought. “There's usually something.”
 
 “Who brings it?”
 
-“I don't know. It's there.” He took out his phone. “I can have lunch here for everyone in twenty minutes.”
+“I do not know. It is there.” He took out his phone. “I can have lunch here for everyone in twenty minutes.”
 
 “Put that away.”
 
-“It isn't an imposition.”
+“It is not an imposition.”
 
 “My guys brought theirs. I brought mine. You've got one job on Saturdays, and it's to be here with what you need.”
+
+He put the phone back in his pocket. Then he stood in the middle of his mother's atrium with his hands still wet and nothing to eat.
 
 I unwrapped the rest of the foil. It was linguiça and egg on a sweet roll, and I had been thinking about it since the Hillsdale exit. I tore it in half and held one half out.
 
 He didn't take it.
 
-“That's your lunch.”
+“That is your lunch.”
 
 “It's half my lunch. You can owe me.”
 
@@ -98,7 +116,7 @@ He ate the first bite braced, the same as the shrimp. Then he stopped bracing.
 
 “Linguiça.”
 
-“It's very good.”
+“It is very good.”
 
 “My father makes them Friday nights and leaves them in my refrigerator. He lets himself in.”
 
@@ -108,9 +126,11 @@ I looked at him. It was a fair question, and I didn't care for it.
 
 “He's my father.”
 
-“So it's free.”
+“So it is free.”
 
 “It's a sandwich. Eat it.”
+
+It was the question I'd have asked anybody else. My father is seventy-four and his knees are gone. On Friday nights he stands at his stove anyway. Then he drives them to my house. On Saturdays I eat one on a job and don't think about his knees. I wasn't going to start thinking about them on a bench in Sunnyvale with a client watching me chew.
 
 I had the bag from the found sheet in my shirt pocket. I took out the badge and set it on the bench between us.
 
@@ -120,7 +140,7 @@ It was white plastic on a metal clip, the kind that goes on an apron. It said SU
 
 He picked it up. He didn't square it to anything. He held it flat on his palm and looked at it.
 
-“She worked the lunch line at the school across the street,” he said. “Thirty years.”
+“She worked the lunch line at the school across the street,” he said. “She was there thirty years.”
 
 “Did you go there?”
 
@@ -128,17 +148,19 @@ He picked it up. He didn't square it to anything. He held it flat on his palm an
 
 “So she served you.”
 
-“Five days a week.”
+“She served me five days a week.”
 
 “What did you say to her?”
 
-“Thank you.”
+“I said thank you.”
 
 “And what else?”
 
-“That's what you say.” He closed his hand on it. “I said it to all of them. I was very polite.”
+“That is what you say.” He closed his hand on it. “I said it to all of them. I was very polite.”
 
 I didn't say anything kind. I have cleared two hundred houses, and I know what kind does to a person who is holding a badge.
+
+I wanted to put my hand flat on his back, between the shoulders, the way you steady a man on a ladder. I kept it on the clipboard.
 
 I held out the green roll.
 
@@ -148,31 +170,33 @@ He tore a piece off. He doesn't know how to tear tape, so it came off long and f
 
 “That's one.” I wrote it on the found sheet and turned the clipboard around. “Sign.”
 
-He signed. It was the first thing in that house he had decided, and it was the size of a playing card.
+He signed. It was the first thing in that house he had decided.
+
+I took the clipboard back. He had pressed so hard I could feel his name from the back of the page with my thumb.
 
 That was when the dog came through.
 
-I had left the door six inches, and sixty-some pounds of old dog had found the six inches and made it twelve. I heard his nails on the runners. He crossed the living room at his own speed. He came out through the courtyard door, walked past the man who feeds him, and leaned his whole side against my left shin.
+I had left the door six inches, and sixty-some pounds of old dog had found the six inches and made it twelve. I heard his nails on the runners. He crossed the living room at his own speed. He came out through the atrium door, walked past the man who feeds him, and leaned his whole side against my left shin.
 
 I stopped chewing.
 
 I was twenty-six. It was a garage in Pacifica, and the owner said “he's friendly” while it was happening. I took eleven stitches in the back of my left calf. I've kept a railing or a truck door between me and every dog since, and I'm not sorry.
 
-“I'll take him,” Cal said. He was half up.
+“I will take him,” Cal said. He was half up.
 
 “Don't.”
 
-“He won't hurt you.”
+“He will not hurt you.”
 
 “None of them will. Sit down, Cal.”
 
 Cal sat. The dog let out a breath that went on for a while and gave me more of his weight. He was warm through my jeans. I could feel his ribs going in and out against the exact place.
 
-“He does this,” Cal said. “He finds the one person in a room who would rather he didn't, and he leans on them.”
+“He does this,” Cal said. “He finds the one person in a room who would rather he did not, and he leans on them.”
 
 “Why?”
 
-“I've never been able to determine it.”
+“I have never been able to determine it.”
 
 “Who else has he picked?”
 
@@ -186,7 +210,11 @@ I had a dog on my bad leg and my heart going, and I laughed. The dog didn't move
 
 I did not pet him. I ate the rest of my half with a dog against my leg, and I did not move the leg.
 
+Every part of me that had been in that garage in Pacifica wanted to move that leg. I could feel where each stitch had gone in. If I moved it, Cal would be up off that bench to take his dog off me. I had just told him to sit. I counted the dog's breathing against my calf. Somewhere past thirty my heart quit going like the white truck on a hill.
+
 Cal Brennan was looking at my shin and his dog with the look from the tape measure. He had the sense not to say anything.
+
+I'd first seen that look in a hotel bar, with his hand on top of my head. I had stopped hearing the bar. Now I stopped hearing Vili and Manny out at the tailgate. My face went hot. I kept my eyes on the foil in my lap.
 
 “Eleven forty-five,” I said. “You were done at eleven.”
 
@@ -194,9 +222,17 @@ Cal Brennan was looking at my shin and his dog with the look from the tape measu
 
 He didn't get up, and neither did the dog.
 
+I could have sent him home. His four hours were up. The coats could sit with no tape on them till next Saturday. With any other client that's what I'd have done. I sat there with his dog on my bad leg and didn't want him to go. I wasn't about to say so.
+
 “Then we do the coats,” I said.
 
-He put blue tape on all fourteen. Vili and Manny packed them in the boxes he had built that morning and carried them out to the truck, and he stood in the driveway until the door came down. I was home in San Bruno by two. Owen was at his father's until morning, and the house was too quiet. I showered and did a week of laundry. At seven I ate cereal standing at the counter, which is what dinner is when nobody is watching.
+He put blue tape on all fourteen. Vili and Manny packed them in the boxes he had built that morning and carried them out to the truck, and he stood in the driveway until the door came down. I was home in San Bruno by two. Owen was at my father's until morning, and the house was too quiet. I showered and did a week of laundry. At seven I ate cereal standing at the counter.
+
+All afternoon, through two loads of wash and the folding, I thought about the coats. It had taken him about five minutes. The gray car coat went blue with the rest. Most people keep one. I've watched grown sons carry home a raincoat that wouldn't go around them. He had kept the badge out of that coat and sent the coat to the truck. I couldn't make anything of that I liked.
+
+I had told Dawn no eight days before. At the counter with the cereal I went back over it. He was a client for ten Saturdays. After that he was a man I drove under every morning on 101. Nothing that happened on that bench had changed either one. I could still see his two hands cupped under the hose bib. I rinsed the bowl and set it in the rack.
+
+***
 
 The phone went at 9:14.
 
@@ -220,10 +256,14 @@ I typed three answers and sent none of them. The fourth one I sent.
 
 *Next Saturday bring a lunch.*
 
+I had just told him to stay past eleven. I didn't see it until it was gone.
+
 His answer came back in under ten seconds.
 
-*Noted. That's five.*
+*Noted. That is five.*
 
 I laughed out loud in an empty house. That one I would have known in the dark.
+
+He'd kept my count. I had said four to him on the ramp of my truck the morning of the estimate. He had carried it around for a week and handed it back to me with the next number on it. I sat on the stool with my face hot and read the long one and the short one again.
 
 I turned the phone face down on the counter. I had seen that done once.

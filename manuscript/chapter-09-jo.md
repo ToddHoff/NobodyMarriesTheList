@@ -2,35 +2,69 @@
 
 **Jo**
 
-Los Gatos quits cooking at nine on a Wednesday, and Cal Brennan was finding that out one door at a time.
+At twenty past nine there was a taco truck in the parking lot with its window up and every light on, and it had come for one customer.
 
-He had said he would find me something to eat, personally. I had been up since four-thirty. I had moved a dentist's office and eaten twelve courses that came to about a cup, and I was willing to watch him try.
+He had asked me first. At the ninth course he'd had his phone in his hand, and he asked. I told him he had picked the place, so he owed me something to eat. I had been up since four-thirty. I had moved a dentist's office and eaten twelve courses that came to about a cup. I said all right.
 
-The first door was a pizza place that had closed at nine. A man inside was stacking chairs, and he shook his head at us through the glass.
+I had not said tacos. Neither had he.
 
-The next one had its hours on the door, and they stopped at nine too.
+It said TACOS ARREOLA down the side. The driver had backed it in across four spaces at the far end of the lot, which is how I would have done it, and he had a generator going. People were coming out of the club in good jackets and walking the long way around it.
 
-“It is 9:22,” Cal said. He said it to the door.
+Cal stopped on the walk and read the side of the truck.
 
-His hand went to the pocket with the phone in it. It came back empty, and I hadn't said a word.
+“That is a taco truck,” he said.
 
-“Wait here,” he said.
+“You didn't know?”
 
-He went back toward the club. The kid who had brought the bread, the one I'd left the sixty dollars for, was outside by then with a crate of empty bottles. Cal asked him something. The kid set the crate down to answer. It was a long answer, and Cal stood there for all of it.
+“I asked for food you could eat without a fork. It came back with an amount, and I confirmed the amount.”
 
-He came back.
+“You didn't read what you were buying.”
 
-“There is a Safeway on the other side of Highway 9 that does not close,” he said. “He goes there after every shift. He says to get the chicken if there is one left, and that after ten there is not.”
+“No.”
 
-“You asked the busboy.”
+“Huh,” I said, and went to the window.
 
-“He leaves that building at ten every night he works. I asked him where he eats.”
+I laughed the whole way over. He could have told me he'd picked it. I've had clients stand in their own kitchens and tell me they knew what was in a drawer they hadn't opened in thirty years. This one stood on the walk with his hands at his sides and let me laugh at him. I had to get my face straight at the window.
 
-That's who I would have asked. I had given him ten minutes to think of it, and he took four.
+The man in it had an apron on and a towel over his shoulder. He looked at the dress.
 
-We walked up North Santa Cruz Avenue. In sandals I take three steps to his two. By the first corner he had worked that out and shortened his.
+“You the dinner?”
 
-“How much does a dentist's chair weigh?” he said.
+“I'm the dinner.”
+
+“What do you want?”
+
+“Four al pastor.” I looked at Cal, who had read the whole board by then, top to bottom. “Five.”
+
+“What do I owe you?”
+
+“Nothing. It's paid till eleven.”
+
+I bill a truck and a driver by the hour. I knew about what two hours of that man's night had cost, and I knew I was not going to see the number.
+
+Two hours of a truck and a cook, and whatever a man charges to come out at the last minute. I had it to within forty dollars. That was no use to me. I wanted it on paper, in my hand, where I could pay it.
+
+I took a twenty out of my purse and put it on the counter under the window.
+
+“It is paid,” Cal said.
+
+“The truck's paid. That's for him.” I turned back to the window. “There's a kid in there who brought the bread, and somebody on the pots. Feed them too.”
+
+The man looked at Cal.
+
+“Yes,” Cal said. “They do not know it is here.”
+
+He went back up the walk and into the club. The man put the meat on.
+
+Cal was back before he had turned it.
+
+“There are nine of them,” he said. “They finish at ten.”
+
+He had counted them. In twenty years I've had about five clients walk out to my truck to tell my guys something themselves. At dinner he had typed one line under the table and got a taco truck. He could have typed one more.
+
+We stood at the window while he cooked. It was the first heat I had been near all night that smelled like food.
+
+“How much does a dentist's chair weigh?” Cal said.
 
 “What?”
 
@@ -38,7 +72,7 @@ We walked up North Santa Cruz Avenue. In sandals I take three steps to his two. 
 
 “What did you get?”
 
-“Two hundred pounds.”
+“I got two hundred pounds.”
 
 “Three hundred. They're bolted to the slab, and the dentist never knows where the bolts are.”
 
@@ -50,47 +84,17 @@ We walked up North Santa Cruz Avenue. In sandals I take three steps to his two. 
 
 “Before lunch.”
 
-He walked on that for a while.
+He stood on that for a while.
 
 “And then you put on a dress,” he said.
 
 “And then I put on a dress.”
 
-My neck went hot. I looked in a store window. There was one sweater in it, on a stand, with a light on it all night.
+My neck went hot, and I watched the man turn the tortillas.
 
-We crossed Highway 9 at the light. The Safeway had every light on and nine cars in the lot.
+I'd stood at my closet before I left and taken the dress off once and put it back on. At the door he had looked at it long enough that I raised my eyebrows at him. Then he didn't say a word about it through twelve courses. I had decided that meant he didn't think much of it.
 
-His lunch arrives. I don't think he had been inside a grocery store this century. He stopped inside the door and read the signs over the aisles, all of them, left to right.
-
-“Where would a chicken be?”
-
-“By the deli.”
-
-The hot case still had its lamps on. There was one chicken under them.
-
-He looked at the empty shelf on either side of it.
-
-“Is this the only one?”
-
-“It's a quarter to ten.”
-
-“I would ordinarily try several.”
-
-“I know you would. You tried thirty-one shirts.”
-
-“I sent thirty back,” he said, and picked it up with both hands.
-
-At the register the checker asked if he had a club card, and he looked at me. I put my number in.
-
-My other hand was on my purse. I hadn't told it to go there, and I took it off.
-
-“This one's yours,” I said. “You owe it.”
-
-“I know.”
-
-He paid with his phone, and I let him. It was owed.
-
-He carried it out. I let him do that too. It was his chicken until somebody ate it.
+Two paper plates came through the window. Cal took both. I let him. They were his until somebody ate them.
 
 “Did Janice tell you to walk me to my truck?” I said.
 
@@ -114,19 +118,25 @@ He took four steps on that one.
 
 “I wanted to walk you to it.”
 
-He was looking straight ahead when he said it. His ears were red under the streetlight. My face went warm, and I looked at the sidewalk until it quit.
+He was looking straight ahead when he said it, with a paper plate in each hand. His ears were red under the lot light. My face went warm, and I looked at the asphalt until it quit.
 
-I had left the truck on a side street, under a sign that said two hours until six and nothing about after. We sat on the curb behind it with the chicken between us. I have eaten a great many lunches on a curb. I had not done it in a dress.
+At the bar he had squared that card to the edge of the table every time I said something he had no answer for. At dinner he'd squared his knife. I took it for manners. The card had been in his car since before I sat down. When he told me what Dawn asked him, he hadn't had anything to read it off.
 
-He looked around for a fork.
+My truck was at the other end of the lot, nose out. We sat on the curb behind it with the plates on our knees. I have eaten a great many lunches on a curb. I had not done it in a dress.
 
-“Hands,” I said. I pulled a leg off and held it out.
+I ate two before I looked up. He was holding his plate level with both hands, and he hadn't touched the one on it.
 
-He took it and bit into it.
+“Eat that.”
+
+“I have had twelve courses.”
+
+“You've had twelve bites. Eat it.”
+
+He picked it up and bit into it.
 
 “You didn't brace,” I said.
 
-“For what?”
+“What would I brace for?”
 
 “You braced for the shrimp. You braced for the linguiça.”
 
@@ -136,7 +146,9 @@ He took it and bit into it.
 
 “You were right both times. I have stopped arguing with the data.”
 
-It was a good chicken. It was still warm in the middle and it had too much salt on it, and I ate most of it. He ate the one leg and left me the rest. He had his elbows on his knees, and he watched me eat it.
+I ate the other two. They were hot and they dripped, and I leaned out over my knees to keep them off the dress. He had his elbows on his knees, and he watched me eat them.
+
+On a job I eat away from the crew. Nobody watches me do it. I had grease running down to my wrist. I could feel him looking. I didn't sit up. I wanted him to keep looking.
 
 “That's the something to eat,” I said. “You're down to two lines and half a linguiça.”
 
@@ -144,13 +156,13 @@ It was a good chicken. It was still warm in the middle and it had too much salt 
 
 I got up and opened the cab. I keep a bag of clean rags behind the seat, next to the shirt. I gave him one and took one, and we stood there wiping our hands like two guys at the end of a job.
 
-That was when I saw it. I was up on the sidewalk and he was still down in the street, and I was looking straight at his collarbone. Down in the street with him, that's where the top of my head goes.
+That was when I saw it. I was up on the curb and he was down on the asphalt, and I was looking straight at his collarbone. Down on the asphalt with him, that's where the top of my head goes.
 
 He saw it too. He looked at my sandals and then at the curb, and I watched him add.
 
 “You are sixty-eight and a half inches,” he said.
 
-“Sixty-eight. That curb's five and a half. They've paved this street twice, and you lose some curb every time.”
+“Sixty-eight. That curb's five and a half. They've paved this lot twice, and you lose some curb every time.”
 
 He looked at the curb again, and then he took my number. A month ago he didn't take numbers on faith.
 
@@ -158,7 +170,7 @@ He looked at the curb again, and then he took my number. A month ago he didn't t
 
 “That's line one,” I said. “It took a curb.”
 
-He stayed where he was, down in the street, with my rag in his hand.
+He stayed where he was, down on the asphalt, with my rag in his hand.
 
 “I told you I would not ask you to dinner again,” he said.
 
@@ -176,6 +188,8 @@ He stayed where he was, down in the street, with my rag in his hand.
 
 My stomach went over the hill. I have been asked a lot of things at the back of a truck. Whether it will fit. Whether I can come back Thursday. Nobody had ever asked me that one.
 
+If I said no, he would take it. He had taken one on his mother's wet lawn at seven in the morning and offered to get back in his car. He'd kept to it longer than I had. He'd hand me back my rag and walk me around to my door. Owen was at his father's till Sunday. My crew was asleep.
+
 “Hold still,” I said.
 
 He held still. He is good at it.
@@ -190,15 +204,19 @@ He came down.
 
 He tasted like salt. For a second he kissed like a man following an instruction. Then his hand came up to the side of my face and he quit being careful, and I felt it all the way down the backs of my legs. I have lifted with those legs for twenty years. They had not done that before.
 
-His heart was going under my palm. His watch tapped, close to my ear.
+His other hand still had my rag in it. I could feel it against my back. I hadn't kissed anybody since Kevin. Toward the end with Kevin it was something you did at the door with your keys already out. I kept my hand flat on his chest. I didn't trust it anywhere else.
 
-“Keep it,” I said.
+His heart was going under my palm. His watch buzzed, close to my ear.
 
-“It was high.”
+“Keep that one to yourself,” I said.
+
+“It only taps when the number is high.”
 
 “I said keep it.”
 
-I came down off my toes. I didn't want to. That was eight, and it was the last one I counted.
+I came down off my toes. I didn't want to. That was reason eight not to like him, and it was the last one I counted.
+
+I had other things I could have said. I didn't want to stand on a curb and hear myself say them.
 
 “Saturday,” I said. “Seven.”
 
@@ -206,23 +224,33 @@ I came down off my toes. I didn't want to. That was eight, and it was the last o
 
 “Three.”
 
-I went around to the driver's side and got in. He was still standing in the street when I made the turn. He had my rag, and I didn't go back for it.
+I went around to the driver's side and got in. He was still at the curb in my mirror when I made the turn. He had my rag, and I didn't go back for it.
 
-It is forty-five minutes home at that hour. I took 17 to 85 to 280 with the windows down, because the cab smelled like roast chicken and so did I. The truck made its noise on the grades, and I turned the radio up over it.
+On the way out I passed the taco truck. Three people in aprons were at the window, and one of them was the kid who had brought the bread.
+
+***
+
+It is forty-five minutes home at that hour. I took 17 to 85 to 280 with the windows down, because the cab smelled like a taco truck and so did I. The truck made its noise on the grades, and I turned the radio up over it.
+
+At the last light before the freeway I could still feel where his hand had been on the side of my face. I put my own hand there, like a fool, and the man in the next car saw me do it.
+
+On Saturday I'd be in his mother's house at seven with a clipboard, saying green or blue, with Vili watching. I tried to work out how I'd keep my face shut for four hours. I didn't get anywhere.
 
 I had gone to that dinner to find the piano. I went back through the night for it, one room at a time.
 
-There was a dinner with no bill on it, and I had hated that. There were two lines he couldn't pay, because the ones he has left aren't funny, and he had told me so when he could have made two up. There was a card he had left in his car. There was a chicken, which he owed me, and a busboy he had thought to ask.
+There was a dinner with no bill on it, and I had hated that. There were two lines he couldn't pay, because the ones he has left aren't funny, and he had told me so when he could have made two up. There was a card he had left in his car. There was a taco truck, and he had asked me before he sent for it. He had paid for it without reading what it was, and I had laughed.
 
 I went through it twice. There wasn't a piano in it.
+
+That should have settled it. I have cleared two hundred houses. Twice I've walked one and called it clean. Both times I was back the next morning for what I'd missed.
 
 The reservoir went by on my left, flat and black. By my exit I had quit looking, and I had not texted my sister.
 
 Her car was in my driveway.
 
-She was at my kitchen table with the payroll in front of her and my coffee maker on. It was ten to eleven. She had moved my mortgage statement off the table to make room, and put it on the counter where it lives.
+She was at my kitchen table with the payroll in front of her and my coffee maker on. It was a quarter to eleven. She had moved my mortgage statement off the table to make room, and put it on the counter where it lives.
 
-“You didn't text,” Denise said.
+“You didn't text,” Denise said. “I had Vili's number up. I had my thumb on it.”
 
 “I was driving.”
 
@@ -234,7 +262,7 @@ She was at my kitchen table with the payroll in front of her and my coffee maker
 
 I sat down and signed. She watched me do four of them.
 
-“Your hair's down.”
+“Your hair's down. Since when is your hair down?”
 
 “It was dinner.”
 
@@ -242,17 +270,17 @@ I sat down and signed. She watched me do four of them.
 
 I looked. It was on the green, low on the left side, about the size of a dime.
 
-“It's chicken.”
+“It's a taco.”
 
-“They gave you chicken?”
+“They gave you tacos?”
 
-“They gave me a pea in a spoon. He bought the chicken after, at a Safeway. He asked the busboy where he eats.”
+“They gave me a pea in a spoon. He had a taco truck come to the parking lot.”
 
 Denise put her pen down.
 
-“Cal Brennan took you to a Safeway.”
+“Cal Brennan sent for a taco truck.”
 
-“He walked me there. He wanted to know what a dentist's chair weighs.”
+“He asked me first. Then he wanted to know what a dentist's chair weighs.”
 
 “Why?”
 
@@ -260,11 +288,33 @@ Denise put her pen down.
 
 She looked at me for a while. She has been looking at me like that since she could stand.
 
+“Did he kiss you?”
+
+“No.”
+
+“Your neck says he did.”
+
+“I kissed him. He asked if he could, and I told him to hold still.”
+
+“You told him to HOLD STILL.”
+
+“Then I had to tell him to come down. He's tall.”
+
+Denise laughed out loud.
+
+“Was it good?”
+
+I signed the next check.
+
+“That's the memo line,” she said.
+
+It was.
+
 “Joanna Marie,” she said. “A man who remembers what you told him is the one good sign there is. I don't care what he's worth.”
 
 “He remembers everything. He writes it to me.”
 
-“Vili says you read him one in the truck.”
+“Vili says you read him one in the truck. I do your taxes, and Vili gets read to.”
 
 “Vili talks.”
 
@@ -272,13 +322,15 @@ She looked at me for a while. She has been looking at me like that since she cou
 
 I don't hand my phone to people. I handed it to her and signed the next check.
 
+I knew what she'd find. I had read every one of them at my counter, most of them twice, and the one about the footsteps until I had it by heart. I hadn't shown my sister any of them. I knew what her face would do.
+
 She went up through them from the bottom. Twice she said “Oh.” Once she looked at me over the top of the phone, and I looked at the payroll.
 
 “Is this why Dad has a cushion on that chair?”
 
 “I bought the cushion.”
 
-“He told you to.”
+“Because Cal Brennan told you to.”
 
 “He said Dad should have one. I bought it.”
 
@@ -286,9 +338,9 @@ She kept going. Then her face stopped.
 
 “‘Please tell Denise I have never been announced from a window before,’” she read, “‘and that I didn't mind it.’”
 
-“That was the Tuesday. With the sandwich.”
+“You yelled ‘He called’ across my yard,” I said. “The Tuesday with the sandwich.”
 
-“You never told me.”
+“You never told me he wrote about it.”
 
 “You'd have been unbearable.”
 

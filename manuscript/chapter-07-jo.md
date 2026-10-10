@@ -38,6 +38,8 @@ I changed lanes, and there was no reason to.
 
 He thought about that through Belmont.
 
+I had two guesses at his piano. I was a story he'd tell at his next dinner, about a mover who made him measure her. Or I was something to do on Saturdays until his mother's house was empty. After today there were eight Saturdays left in it. I liked the second guess better. It had an end date.
+
 “Can I ask about Kevin?”
 
 “No.”
@@ -78,6 +80,8 @@ I didn't remember saying it. It sounded like me.
 
 Vili waited for more. There wasn't any. I had surprised myself, and I shut up.
 
+I tried to think of one thing I had asked him for. What came was the water heater. It went one morning after he'd left for school. I had a plumber whose mother I'd moved put a new one in by three. I paid him. When Kevin got home the shower was hot. I didn't mention it. I used to tell that one at my father's table as a funny story.
+
 The big hangar at Moffett was coming up on the left, the one they built for an airship before my father was born. Years ago a zeppelin flew out of there and sold rides. I used to watch it from this seat.
 
 “Okay,” Vili said. “So here's what I think.”
@@ -92,7 +96,7 @@ The big hangar at Moffett was coming up on the left, the one they built for an a
 
 “Quiet.”
 
-“Quiet,” he said. “You drove eleven years with something loose in the box. Now you've got one that's strapped, and you keep pulling over to check it, because quiet sounds wrong to you.”
+“Quiet,” he said. “You drove eleven years with something loose in the back. Now you've got one that's strapped, and you keep pulling over to check it, because quiet sounds wrong to you.”
 
 I didn't say anything. The 85 split came up and I took it.
 
@@ -108,15 +112,19 @@ It wasn't the end of it for me. I drove the last mile with both hands on the whe
 
 The trouble was that I had done it. Six years ago on 280, in the rain, I pulled over for a load with nothing wrong with it. I got out and put my hand on every strap, and every one was tight. I got back in the cab and cried for about four minutes. Then I drove to Los Altos and did the job. I had not thought about it since.
 
+***
+
 Cal Brennan was at the curb at 6:58 with three paper bags.
 
 The boots had a week on them. The gray shirt was one of the other thirty-nine. He was standing under the trees on West Remington Drive with three lunches, looking down the street for my truck, and my stomach went over the hill again before I had the brake set.
 
-“Three,” he said. “You said two. I called to ask what Vili eats, and your sister said two was short. She said Manny keeps score.”
+“I brought three,” he said. “You said two. I called to ask what Vili eats, and your sister said two was short. She said Manny keeps score.”
 
 “You asked.”
 
 “On Tuesday you said next time, ask. This was next time.”
+
+So my sister had talked to him twice. Both times she'd kept it to herself. Denise tells me everything. Whatever my crew won't say to my face, I hear from her by Friday. I'd take it up with her on Tuesday.
 
 Vili took two of the bags and handed one back to Manny. He looked into his own, and then he looked at me. It was two of everything. I knew what that look was worth, and I wasn't paying it.
 
@@ -130,13 +138,13 @@ I got down from the cab. My hands weren't steady, and I put the clipboard under 
 
 “One dinner,” I said.
 
-He went still. “I didn't ask.”
+He went still. “I did not ask.”
 
 “I know you didn't. You're not going to. So I'm telling you. One dinner. I pick the night and you pick the place, and it costs you two lines off the list.”
 
 It came out like a quote for a job. That was the only way I was going to get it out.
 
-“Two.”
+“Why is it two?”
 
 “One for the dinner. One for making me say it.”
 
@@ -144,11 +152,15 @@ It came out like a quote for a job. That was the only way I was going to get it 
 
 He had said it before I finished, same as at the curb. His ears were red. I expect my neck was.
 
-“Which night?” he said.
+“Which night will it be?” he said.
 
 “I'll tell you.”
 
 Behind me Vili said, “Strapped,” to nobody, and carried a stack of pads into the house.
+
+Manny had heard it too. The yard would have it by Monday. I didn't turn around. My neck was still hot.
+
+I didn't have a night. Owen came back to me in the morning for seven days, so it would have to be the week after, when he was at his father's. I could have called Kevin and traded a night. I wasn't going to. I took the clipboard out from under my arm and read the same line on it twice.
 
 The job that day was the hutch.
 
@@ -160,7 +172,7 @@ It stood at the end of the bedroom hall, six feet of dark oak with glass doors o
 
 “That was fast.”
 
-“It was my grandmother's. I never liked it.” He looked at it. “I'm allowed to say that.”
+“It was my grandmother's. I never liked it.” He looked at it. “I am allowed to say that.”
 
 “You're the only one who is.”
 
@@ -182,6 +194,10 @@ I didn't read him any. I counted thirty-four for the found sheet and held out bo
 
 He took the green one without looking at the blue.
 
+In the bar I had told him she'd keep every card that ever came with his name on it. I meant cards in a shoebox, in a son's handwriting. I have packed a hundred of those shoeboxes. Nobody had signed these. They came off a printer in some warehouse. His mother had cut them down and kept them in order anyway. I had sat three hours across a table from her son. Every time he put his card down, he squared it to the edge.
+
+He stood there with the green roll in his hand and didn't tear any. I wanted to bag the slips myself and tape the bag shut, so he could quit looking at them. That isn't mine to do on a job. It was his drawer.
+
 “And the bread ties?”
 
 “What does a person do with four hundred bread ties?”
@@ -196,7 +212,7 @@ I wrote one more thing under it. Thirty-four boxes that size would fill a closet
 
 The base was the weight, a hundred and fifty pounds of buffet with the drawers taped shut. I called down the hall for Vili.
 
-“I'll take an end,” Cal said.
+“I will take an end,” Cal said.
 
 “No, you won't. Clients don't carry. I pay two men for that, and my insurance has never heard of you.”
 
@@ -208,27 +224,31 @@ The base was the weight, a hundred and fifty pounds of buffet with the drawers t
 
 Vili had come to the end of the hall. He looked at Cal's sleeves, and then at me. I shook my head at him, and he went back the way he had come, smiling at the floor.
 
+If any man on my crew had let a client get under that base, I'd have docked him a day. I knew it while I was shaking my head. I had been caught looking at that arm last Saturday. I wanted to watch him lift something.
+
 “The base,” I said. “One piece. You do exactly what I say, and if you drop it on my foot I'm billing you.”
 
 He bent over it from the waist.
 
 “Not like that. That's not how you pick one up. Bend your knees and keep it against you. You've got the high end. I'm low.”
 
-“You're shorter than I am.”
+“You are shorter than I am.”
 
 “I'm also the one who has done it. Low man calls the lift. That's my father's rule, and on my trucks it's the law. Whoever's under the weight says when.”
 
-“On three,” he said. “And you say three.”
+“We lift on three,” he said. “And you say three.”
 
 “That's right.”
 
 He lifted on three.
 
-We took it down the hall and out through the courtyard, under the open sky, and through the front door to the truck. He is strong. He has more arm than he knows what to do with, and the whole way he kept trying to carry the piece by himself from one end.
+On Tuesday he had come up on two, ahead of me. This time he waited for the word. The base came off the floor level at both ends. In twenty years I've carried with plenty of men who can't wait for three.
+
+We took it down the hall and out through the atrium, under the open sky, and through the front door to the truck. He is strong. He has more arm than he knows what to do with, and the whole way he kept trying to carry the piece by himself from one end.
 
 “Stop lifting my half,” I said.
 
-“I'm trying to help.”
+“I am trying to help.”
 
 “You're tipping it. Carry yours.”
 
@@ -242,15 +262,15 @@ The ramp was dry this time. He went up it backward, because the high end goes fi
 
 He did. He looked at me the whole fourteen feet, across a hundred and fifty pounds of his grandmother's oak, and I called every step of it. I have walked a thousand pieces up that ramp. I never had trouble before with where to put my eyes.
 
-We set it down against the wall of the box. He was breathing hard. I wasn't.
+We set it down against the wall of the truck. He was breathing hard. I wasn't.
 
 “What does the list say about this?” I said.
 
-“About what?”
+“What do you mean?”
 
 “Carrying.”
 
-He got his breath. “Line four. Athletic. Works out most days.”
+He got his breath. “It is line four. Athletic. Works out most days.”
 
 “I've never been in a gym.”
 
@@ -258,11 +278,11 @@ He got his breath. “Line four. Athletic. Works out most days.”
 
 He had the card out of his pocket before I asked for it. I took the pencil down and wrote *ATHLETIC. WORKS OUT MOST DAYS.* under the other three, and drew the line.
 
-“Four,” he said.
+“That is four,” he said.
 
 “That one doesn't count toward the two you owe me.”
 
-“I didn't think it would.”
+“I did not think it would.”
 
 The top was the easy piece. It was light and tall and mostly glass. I had told him one piece, and I should have had Manny on this one.
 
@@ -274,7 +294,7 @@ I had my back to the wall. He had one hand flat on the oak beside my head, holdi
 
 “Don't let go of that,” I said.
 
-“I won't.”
+“I will not.”
 
 “If it goes over, it's nine panes of glass.”
 
@@ -282,13 +302,15 @@ I had my back to the wall. He had one hand flat on the oak beside my head, holdi
 
 He did have it. He was holding very still. I could feel him breathing, and it wasn't from the carry anymore. He smelled like the clean shirt and a little like work. That was new on him, and I liked it more than I should have.
 
-“I can't back up,” he said.
+“I cannot back up,” he said.
 
 “I know.”
 
-“I'm not asking you anything.”
+“I am not asking you anything.”
 
 “I know you're not.”
+
+He hadn't asked at the curb that morning, with a dinner held out to him. He wasn't going to ask in a thirty-six-inch hall. If anything happened, I was going to have to start it.
 
 I have been in tighter spots than that with heavier furniture. I never wanted to stay in one.
 
