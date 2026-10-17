@@ -14,7 +14,7 @@ My mother worked the cafeteria line at that school for thirty years. While I was
 
 She paid $612 a month on the house until 2012, when I paid it off. I had considered that the end of the subject.
 
-I had walked Pancake at five, as I do. After that I had run out of things that were mine to do, so I drove. He rode with his chin on my shoulder from the back seat. He has done that for eleven years, and it is the one habit of his I never tried to correct. At 6:50 I lifted him down from the back seat, sixty-four pounds, and put him in the back yard through the side gate. Jo had told me where she wanted a dog. A gate does the work of a railing.
+I had walked Pancake at five, as I do. Nobody has ever asked for a meeting at five, so it is the one hour of my day that has stayed mine. After that I had run out of things that were mine to do, so I drove. He rode with his chin on my shoulder from the back seat. He has done that for eleven years, and it is the one habit of his I never tried to correct. At 6:50 I lifted him down from the back seat, sixty-four pounds, and put him in the back yard through the side gate. Jo had told me where she wanted a dog. A gate does the work of a railing.
 
 I had a plan for the door. On the sidewalk she had told me that she did not go through a house without the owner. I had been over that sentence for eight days, looking for the edge case. It said nothing about who went in first. I would give her the key. She would open the door, and I would come in behind her. Behind her was still in the house. I had run it on the drive down and again in the car. It held every time.
 

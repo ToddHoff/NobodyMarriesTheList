@@ -1,10 +1,389 @@
 # Nobody Marries the List: Handoff
 
-Last updated: Saturday, October 10, 2026, 11:11 AM PDT
+Last updated: Thursday, October 15, 2026, 11:36 PM PDT
 
 Written so a new session can pick up. It records only what was discussed and decided. Nothing here is new invention.
 
-## LATEST: Chapter 21 drafted (October 10, filed by 11:11 AM)
+## LATEST: Chapter 28 drafted (October 15, filed by 1:38 PM; revised 4:48 PM)
+
+- Todd, 12:41 PM: "Ok, let's move on to chapter 28. Let's keep all the lessons we've learned in mind. Remember what you need to remember. Make character shine through. Create rich experiential scenes where appropriate. The goal isn't just to move characters along from point A to B. The goal is to make readers feel like they are in their world and the world has wonders as well as trials."
+- Done, about 5,350 words, reviewed cold by a separate agent and filed (file, project, manuscript doc, plan outline, log, dates, places and decision record, character sheet, handoff). Five scenes: Monday (the fence post at 5:04, nineteen opens of her thread, "One toothbrush?", Remy's month-four line); Tuesday (her call at 9:14 with a plane over her house; Tokyo held in fear); Wednesday (Sweeney Ridge with Owen, the place at full size, the Tokyo ask, line eleven); Thursday (Denise's call; the yard, "What is wrong?" "I've got it.", forty-eight pads with Frank, the text); Friday (Remy and 2012, the loan number at 10:06, Janice's pause and refusal, the reasons after the decision, *May I* typed and deleted, the wire at 3:12, Janice's notice at 3:30, the thread).
+- Claude's additions that Todd has not yet seen are listed in the 28 log row ("to strike if wrong"). The ones most worth a look: Owen keeping the headlamp (a one-off, not a plant); Denise doing Jo's taxes; Janice's even dial on the page for the first time; the 2012 payoff done "from the back of a car" with Janice sending the wire; Owen's "So it doesn't count."
+- 4:48 PM: an outside critique of 28. Todd: "Make any changes you think makes the book better." Done and filed (file, project, manuscript doc, plan): Janice's pause now names what it counts ("Janice paused before she answered. In seventeen years I had counted eight of those. This was the ninth."); Cal works the real payoff ("With that in, she owed about five hundred and fifteen thousand five hundred dollars, and ninety-nine dollars a day on top of it. I was sending about forty-five hundred more than the payoff."); Remy's screen says the lender takes payments from anyone, gives the payoff figure only to the borrower or someone she authorizes, refunds any excess to her and mails her the lien release. Plan 30 gains a beat: Janice, working out her notice, does only what he asks, so Abby gets no present or card unless he does it himself.
+- 4:56 PM: a second outside critique of 28. Todd: "Make any changes you think makes the book better." Done and filed: the pause count is out under the plan's counts rule ("Janice paused before she answered. Most days she has my answers ready a day before I need them."); forty-eight pads, every pad on the truck (four dozen to a truck, ch 3), and 5:38 and 12:46, so forty-one stops piling up; "next Tuesday" on the ridge and the eleventh and fourteenth in his plan. The Ventana catch came from an old draft of 27 and needed nothing.
+- 11:36 PM: Cal's interior at the big moments (Todd, 5:06 to 5:12 PM, yes at 11:25 PM). Seven inserts filed everywhere: 26 before "I love you" (no card, no rehearsal; she might drive him home with it said; 4.1 months, twelve weeks to the day), the twenty-six seconds, the drive down ("I know how to sit beside someone who is not talking. I keep still and I do not ask."); 28 the fleece, ten days of her hiding the truck, the unanswered text, Janice's resignation ("I looked at her sevens."). A cold sweep of chapters 2 to 24 found eleven more places; Claude vetted them (dropped invented details: a voicemail length, a summary word count, a yellow kitchen phone) and they wait for Todd's yes.
+- For 29: the wire went at 3:12 on Friday, August 7, for $521,000, roughly $4,500 over the real payoff, which the lender refunds to Jo by check. Cal has not told her; the chapter does not say when he means to. Janice leaves August 28. Line eleven is out and not struck (struck in 36). Owen has a headlamp from Cal and wants to walk Pancake at five. Jo kept Cal's fleece. The last message in her thread is his, about the pads, unanswered.
+
+## The unanswered "I love you" (October 15, filed by 9:08 AM)
+
+- Todd, 8:38 AM: "Also, we have an u requited I love you,how is that being handled". Claude laid out the track (26 says it twice; 27 she does not; 35 she says it) and the gap: from 28 to 34 nothing on the page carries it. Todd, 8:55 AM: "Yes, readers need to feel the tension and of cals want. We also need to understand why Jo isn't replying."
+- Done, reviewed cold and filed (file, project, manuscript doc, plan):
+  - 26: at her truck he waits with her forehead on his chest, his pulse up again; four breaths through her mouth before Saratoga Gap, and he holds his each time; "She had not said it back. I wanted to know what came next."
+  - 27: he turns his whole head every time she opens her mouth on the drive; "I wanted to say it back." On the rock she wanted it said with his heart going normal; at her hood she got that and kissed him instead. Saying it back would be asking for all of him; Denise would call him about the white truck, "He'd ask me nice. I'd say yes." At dinner he turns his hand over and waits; she passes him the bread. In bed: "I had it in my mouth." "I'd be his to fix. I'd be paying him back past fifty-five."
+  - Plan: 28 carries his want (four days; her thread opened nineteen times; the last message in it is his) and her silence is never why he pays the loan; 29 the slips, "He'd said it to my face on a rock. I hadn't said it back."; 31 the bread is Kevin's salt; 32 Dawn: "Has she said it back?" "No."; 35 his hand on her chest, her heart going, she does not wait, then he says it a third time.
+- 10:32 AM: Todd flagged the fog line in 27. Cal now works out the coast from the dog ("It will be ninety in Gilroy by two. You would not take him anywhere that hot."), and the fog until eleven is why he brought the fleece. Filed everywhere.
+- 11:02 AM: Todd flagged the pelicans in 27. Now "A loose V of pelicans came out of the fog, low over the water, and went back into it without one of them moving a wing." Exact counts of things like birds are Cal's habit, not Jo's. Filed everywhere.
+- 11:09 AM: Todd asked for Jo to look after Pancake in the Carmel lot. Added after the slope: towel, water, mixing bowl, soft treats packed Friday night; she dries him on her knees; a treat off her flat hand; Cal: "Thank you." Jo: "He was wet." Filed everywhere. The slope line went in at 11:11 AM on Todd's yes: "Cal's shirt was stuck to his back between the shoulders where the dog had got him. I wanted both my hands there."
+- 11:18 AM: Todd on the Carmel leash: Cal clips it on at the top of the slope, in the lot, after a long walk back down the beach on soft sand. Filed everywhere.
+- 11:24 AM: Todd: Pancake loves the towel and will not stand still; he wiggles nose to tail (no groan: Todd, "dogs don't groan"), turns around for more, tail in her face. Todd likes the fleece ("It can get really cold."). Filed everywhere.
+- 11:36 AM: Todd: a real lunch at Nepenthe, with a drink and maybe the Four-Layer Chocolate Fudge Cake. Now two Ambrosiaburgers and a Red Seal each ($81.50, Jo pays, "I could do eighty-one fifty"), then "May I get the cake?" ($16.25, "It was cake." "Yes."), split down the middle; he pays for the cake. Lunch, cake, room: three asks. Menu prices checked on nepenthe.com. Filed everywhere.
+- 11:52 AM: Todd: no clothes for the night, so Cal has clothes sent from Carmel, and dog food. He asks to send some for Jo; she has the clean shirt behind her seat (ch 1). Sunday he wears the Carmel shirt with the fold lines in it. Filed everywhere.
+- 12:25 PM: Todd: no six a.m. start; a long breakfast on the Ventana terrace over the canyons. Added after a scene break; they leave at eleven and she is home at half past two, Owen at four. Twice Cal has something to say and drinks his coffee. Filed everywhere.
+- 12:28 PM: Todd: robes, birds singing, squirrels. Breakfast is now on their deck in the hotel's robes (in-room dining), three notes in the oaks, two gray squirrels, his robe open at the collar. Filed everywhere.
+- 12:33 PM: The sill line names the sea glass now ("In my kitchen I took the sea glass out of my jeans pocket and set it on the sill over the sink. The sun came through it blue onto the faucet."). Filed everywhere.
+- 12:37 PM: The coupon is out of 27: "My mortgage statement was on the counter by the coffee maker, where it lives till the next one comes." Filed everywhere.
+- Her reason, for anyone drafting 28 to 35: saying it is asking, asking is owing, and she is afraid of what she will agree to. Her test on the rock was a real test, not a stall.
+
+## The places pass, with heat (October 15, filed by 7:04 AM)
+
+- Todd, 6:49 AM, on 19: the pure awe of the zeppelin over the volcano, the ocean, the house, the island, the wildlife "and of Jo". Done and filed (file, project, manuscript doc, plan): the approach over the reef, the wind through the house, the drop-off, Jo up the sand while Cal watches, the sunset behind Lānaʻi, dawn over the channel, the shadow, her face out the window ("one hand on my son's belt and nothing else in the world to carry"), the crater's heat lifting the airship, the spinner dolphins. Reviewed cold first.
+- Todd, 6:50 AM: "Same for the wineries and castle rock and other places in the book." 6:57 AM: "I also, feel like we are losing a little heat between the characters."
+- Inventory (ranked): Goat Rock summit (26), Castle Rock (26), the Silver Mountain tasting (16), the second winery (16), the Los Gatos club (8), the Los Gatos lake and creek trail (16), Alice's (26), the sail past the city and Alcatraz (23), Summit Road and the Summit Store (16), the Moffett hangar and the airship (7, 16), the Pied Piper (1), the Little Portugal bakery (6). Already good: the Golden Gate in 23 (the model), the taco truck (9), the atrium (4), Jo's house (18).
+- Done at 7:14 AM: 27's Ventana night (a short open-door beat on the fire, kept short so the three love scenes stay 18, 21, 35) and 26 (Alice's, madrones, tafoni, the cave kiss, the falls canyon, Goat Rock with the vultures and the wind on her back). Both reviewed cold and filed (file, project, manuscript doc, plan).
+- Done at 7:38 AM, each reviewed cold and filed (file, project, manuscript doc, plan decision record): 16 (Moffett, the reservoir, Summit Road, Silver Mountain room and Pinot, the second winery as a scene with her knee on his shoulder, Vasona and the heron), 8 (the club room, her fingers under the chair rail, the oyster, the roll), 23 (the Bay Bridge, the city, Cal's red wrists, Alcatraz), 1 (the Palace lobby), 6 (the Little Portugal bakery, "querido"), 7 (Hangar One's skin back on).
+- Remaining from the inventory, lower priority: Summit Store (16), Oyster Point at 4:38 (23), the dog park at dusk (16), Stephanie's street (22), Cal's Woodside house outside (17). Ask Todd whether to keep going or stop here. Carry heat in each place: wanting, touch, being looked at. The book's three love scenes stay in 18, 21 and 35.
+
+## Places at full size, a standing rule (October 15, filed by 6:44 AM)
+
+- Todd, 6:41 AM: "When we go to places make it so the reader experiences how great it is. We had the same problem with Hawaii. You made it seem like it was no different than going to the bathroom."
+- Now a rule in the style guide (file, project and doc): "Places at full size". Every place worth going lands through the narrator's life, trade and body, with witnessed detail and something it does between them; logistics only after.
+- Applied to the rest of 27: Carmel Bay as the fog lifts; Nepenthe (the rail before the stand, the ridges, waves too far down to hear, the Hillsborough decks, the jay and the one fry); Ventana at sunset (the fog underneath, the ridges out of it, the stars, her hand on his in front of everybody). About 5,250 words. Filed in the chapter file, the project, the manuscript doc and the plan.
+- Use this rule for every later chapter that goes somewhere.
+
+## Chapter 27, the coast made to feel like something (October 15, filed by 6:36 AM)
+
+- Todd, 6:32 AM: "He would not carry the dog up the slope. Tell why people stop at bixby, evoke the beauty of point lobos and the ocean as they drive down one. I feel like you are purposefully making this boring. It's awesome. Make people feel that."
+- Done: leash on at the bottom, Pancake walks up slow and shakes on them. Point Lobos: "The cove under us was the green of a beer bottle held up to the light..."; the swell up white higher than the trees, felt in her feet; the otter asleep in the kelp; "A painter called this the greatest meeting of land and water in the world"; "I'd wrapped it. Every other house I do in Atherton has this over the couch in a gold frame... and figured somebody made it up." The drive: gold hills, cows at angles she wouldn't park a truck at, nothing on Cal's side but air, his arm out; "I'd lived three hours north of this my whole life. I'd never driven it." Bixby: she pulls in with the thirty; "It is two hundred and sixty feet down to the creek."; the arch, swimming-pool water, headlands going blue; "Every load I'd ever run south on 101, this was over the hill on my right the whole time."; "Cal was on my left. I hadn't seen him get there." Then the wind, the Point Sur light, the redwoods. About 5,000 words. Filed in the chapter file, the project, the manuscript doc and the plan.
+- Lesson for later chapters: Todd wants the places to land as wonder. Carry it through Jo's trade and life, not brochure words.
+
+## Open questions settled (October 14, filed by 11:25 PM)
+
+- Todd, 11:24 PM: "You answer those. Make the best story."
+- The red dot is cut from ch 27 (chapter file, project, manuscript doc, plan).
+- The necklace stays in 31 (Denise's key, the glass off the sill, a chain); Jo wears it through the silence and Stephanie's visit; Cal sees it at her door in 35. Plan updated.
+- No ch 26 foil swap. "You've got one headlight" is already Jo's line in 25, and ch 27's Wagyu line needs Cal's BMW. Ch 26 stays: "Mine said BMW. Hers said JALOPY." This closes the older "Still waiting on Todd" item below.
+
+## Chapter 27, the log below the golf course (October 14, filed by 11:15 PM)
+
+- Todd, 11:22 PM: "exhausted unstead of done. Pancakge instead of dog." Done at 11:23 PM: "Neither one lets dogs in. Pancake's exhausted anyway." Filed in the chapter file, the project, the manuscript doc and the plan.
+
+- Todd, 11:21 PM: "You need to say pebble beach golf course. It's famous." Done at 11:22 PM: "Right over our heads, at the top of the bluff, was the Pebble Beach golf course, green to the edge, with men in sweaters on it already." Filed in the chapter file, the project, the manuscript doc and the plan.
+
+- Todd, 11:17 PM: "10 dogs is better so early in the morning." Done at 11:18 PM: "I counted ten." (was "I counted twenty-two and quit."), in the chapter file, the project, the manuscript doc and the plan.
+
+- Todd, 11:12 PM: sit on a log below Pebble Beach; a golf ball just misses them and Jo throws it back.
+- Done: "At the north end the beach runs out under a bluff, and there was a driftwood log there as long as my truck. We sat on it." After the fog lifts the course is "Right over our heads, at the top of the bluff"; the ball hits the log a foot from Cal's hand; red dot in marker; Jo throws it back up overhand, "the way I throw a roll of tape to Vili on top of a load," a yard from the golfer, who lifts his hat; "Cal looked up at the edge of the bluff, and then at my arm." About 4,400 words. Filed in the chapter file, the project, the manuscript doc and the plan.
+
+## Chapter 27, the blue glass and the other dogs (October 14, filed by 11:06 PM)
+
+- Todd, 11:03 PM, at "It is blue," he said.: say it's rare; she teases him as a beach glass expert; he had a rock tumbler as a kid and read up on glass; Pancake plays with the other dogs. Claude proposed the lines; Todd: "go".
+- Done: "It is blue," he said. "Blue is rare. About one piece in two hundred and fifty is blue." / "What are you, a beach glass expert?" / "My mother bought me a rock tumbler when I was nine. You can tumble glass in one, so I read about glass too." (the mother is Claude's, for "Call your mother!" later). A spotted dog half his age and a little white one run the waves with Pancake. Filed in the chapter file, the project, the manuscript doc, the plan and the character sheet.
+
+## Chapter 27, the Ocean Avenue lot (October 14, filed by 10:59 PM)
+
+- Todd, 10:57 PM: they would not park on San Antonio; the public lot at the bottom of Ocean Avenue has a bathroom and a straight shot down a slope to the beach, and it is where people congregate.
+- Done: "I parked in the lot at the bottom of Ocean Avenue, where everybody parks. On any job the first thing I find is the bathroom. This lot has one, and from the asphalt it's a straight shot down a slope of sand to the water. People stood at their tailgates with coffee." The dogs jump down out of back seats all over the lot. San Antonio and the Scenic Road parking limit are gone from the chapter; the valet now hears "the truck's seven foot ten with the rack." Filed in the chapter file, the project, the manuscript doc and the plan.
+
+## Chapter 27, Point Lobos and the night at Ventana (October 14, filed by 10:31 PM)
+
+- Todd, 10:19 PM: stop for the night at Alila Ventana, which takes dogs; walk Point Lobos on the way without the dog, who will be tired anyway; Denise makes a necklace of the sea glass, gives it to Jo, and she wears it.
+- Done, in the chapter: "We'll walk Point Lobos on the way down and eat at Nepenthe after." Point Lobos lets no dog in even shut in a car, so she parks in the turnout (saves the ten dollars) and Pancake sleeps; Cal reads the trail guide ("It is an alga." "Are you going to read me the whole thing?" "Yes."); the sea lion on the top rock is Manny, and Cal laughs; on the narrow trail she puts both hands flat on his back, he holds her wrist, she waits for the piano, a family comes. At Nepenthe the table is at 2:15. After the fries: "There is a hotel back up the road that takes dogs." "May I get a room?" A night is most of Hillsborough, but it is one night; "The dog's mine." ($150, her card). The valet, seven foot ten; the fire in a paper bag; Pancake across the door; Cal reads the dog's menu, "Chicken. On my card."; "Dinner came with the room. I'd said yes to the room." Sunday: away at six, up 1, he sleeps; at San Gregorio she does not turn up 84 and takes him home for coffee; the glass goes on the sill over her sink; at her counter at half past nine.
+- Planned, not written: the necklace in 31 (Denise's key; she takes the glass off the sill), Cal sees it in 35. Placement is Claude's and awaits Todd. Ch 28 note: the Ventana night is what lets him ask for Tokyo.
+- Filed in the chapter file, the project, the manuscript doc, the plan and the character sheet.
+
+## Chapter 27, Carmel and Nepenthe deepened (October 14, filed by 9:57 PM)
+
+- Todd, 9:49 PM: home from Nepenthe by 101 is not an option; Carmel Beach is beautiful (seals, pelicans, surfers, the golf course, sea glass: "Have him pick up a blue piece and give it to her"); nothing happened at Nepenthe; the dog should play in the waves in the wind; out Scenic Road past the houses, the stone tower house and the Mission.
+- Done, in the chapter: surfers waiting in the fog; Pancake running the waves, ears blown inside out; nine pelicans and a seal watching the dogs; Cal rinses blue sea glass and holds it out ("It is blue."), and Jo, who takes nothing home from a job, puts it in her jeans pocket and has her hand on it at "What do you want?"; the fog comes off the bay like a tarp off a load and the golf course runs green to the rocks; Scenic Road, houses with names instead of numbers, the stone tower ("One man built that tower. It took him four years..." "Bet his knees were shot."), the Mission, where she crosses herself; at Nepenthe a man shouts "Call your mother!" with his phone up, and Jo stands between Cal and the phone ("No pictures. He's on his lunch."), and Cal's hand goes flat on her back; home up 1, the way they came, asleep past Moss Landing.
+- Filed in the chapter file, the project, the manuscript doc and the plan (outline, log row, dates, Places, decision record).
+
+## Chapter 27, the last beat (October 14, filed by 4:19 PM)
+
+- Todd, 4:18 PM, sent a second outside critique of ch 27. Claude: keep everything, but give the last turn Jo's feeling; "no piano after" stays; the Bixby/Nepenthe order is right driving south; the scar is established. Todd, 4:19 PM: "Sure."
+- Now the chapter ends: He looked up at me. He didn't ask. He put both hands around the mug. / *I said I would fix it.* I could still hear him say it to the water. / I turned the statement face down.
+- Filed in the chapter file, the project, the manuscript doc and the plan (outline, log row, decision record).
+
+## Chapter 27, an outside critique (October 14, filed by 4:15 PM)
+
+- Todd, 4:13 PM, sent an outside critique of ch 27. Claude: keep the Thursday Wagyu (Alice's is on Thursday now; the critic read the older ch 26) and the Scenic Road limit (the city's rule is 7.5 feet tall or 20 feet long); give Saturday night more than "He stayed."; say the coupon is gone from the statement. Todd, 4:15 PM: "Make the changes you think will make the book better for the genre."
+- Now, after "He stayed. The dog slept across my kitchen doorway, under Owen's marks.": "In the dark I put my mouth on his neck, where the sun had been at lunch. Then I put my hand flat on his chest, where I'd put it on the rock. His heart was going normal, which is what I'd told him to wait for. I could have said it then. I kept my hand where it was until he was asleep."
+- And: "My statement, with the coupon torn off, was on the counter by the coffee maker, where it lives till the next one comes."
+- Still waiting on Todd: the ch 26 foil swap (JALOPY for Cal, BMW for Jo, "You've got one headlight").
+- Filed in the chapter file, the project, the manuscript doc and the plan (outline, log row, decision record).
+
+## Chapter 27 drafted (October 14, filed by 4:07 PM)
+
+- Todd, 3:33 PM: "Great, let's move on to chapter 27. Remember all the things you need to remember. Reveal character with every line."
+- Drafted: Jo, about 2,900 words, Friday, July 31, to Sunday morning, August 2 (the outline said Saturday and Sunday; the Friday with her father opens it). Every beat in the outline is in: Frank down from the cab with both hands on the door, "I've got it, Dad." "I know you do."; Highway 1 to Carmel; Pancake off leash; Kevin's silences and her half; line ten's reason and the strike (ten under eight); "What do you want?" unanswered; fries at Nepenthe, "May I get lunch?" "I've got it."; she skips the August extra and tells him none of it; he sees *skip Aug*.
+- Claude's additions, waiting on Todd: Hillsborough stops a $4,860 check over the picture and cancels Saturday (the client who stiffed her); the cushion and the loads in the tide book; the 2018 Carmel job; "Down is the coast"; the black dog and Cal on her left; the hall painted twice; Stephanie, the counselor and the two sessions; *skip Aug* as the check she mails in August, since the August payment went in the mail on July 19 (ch 18).
+- Facts checked: August 1, 2026 weather (Monterey fog to about 11), low tide 7:04, Carmel's beach rules and sand ramp and Scenic Road limits, Nepenthe (no dogs, no reservations, about 808 feet, fire pit and benches), drive times, the loan (December 2036 for one skip, February 2037 for four).
+- A separate agent reviewed it cold before filing; its fixes are listed in the plan's chapter log row.
+- A correction owed to Todd from ch 26: the one headlight is Cal's car (since ch 10), not Jo's truck. The ch 26 text is fine as it stands (her foil says JALOPY), but Claude's 3:06 PM explanation of the joke was wrong. Offered him a swap that uses the headlight; waiting on his word.
+- Filed in the chapter file, the project, the manuscript doc (chapter, Jump to row, header), the plan (outline, log row, dates, His list, Places, Claude's additions, decision record), the character sheet (who-knows rows) and this handoff.
+
+## Chapter 26, burgers at Alice's (October 14, filed by 3:09 PM)
+
+- Todd, 3:06 PM: "They shouldn't get the sandwidch, alice is know for burgers: Vehicle Burgers: Named after famous motor brands, standout options include the BMW Burger with Wagyu Beef, the Norton Burger, and the Jalopy Burger." Claude proposed lines; Todd, 3:08 PM: "yes."
+- Now: "She came back with two burgers in a paper bag and set them on my knees."; "I had the burgers in the shoe bag and was reaching for the pad"; on Goat Rock: "She sat down on the rock with her knees up. I sat down beside her and opened the bag. Her shoulder was against my arm. The pad was behind us." / "Somebody at Alice's had written on the foil in marker. Mine said BMW. Hers said JALOPY." / "It's got Wagyu," Jo said. "Don't get used to it." / "I had finished mine before she had hers unwrapped. She looked at my empty foil and gave me half of hers."
+- Half her burger echoes the half linguiça sandwich of ch 5 ("You can owe me"); the debt is still paid in ch 34. Noted in the plants table.
+- Filed in the chapter file, the project, the manuscript doc and the plan (outline, log row, Places, plants table, decision record).
+
+## Chapter 26 told in order (October 14, filed by 2:51 PM)
+
+- Todd, 2:49 PM: "This is odd timing as alices is earlier but this starts the chapter: At 5:38 Jo let her tailgate down on the shoulder of Skyline, outside the gate at Castle Rock State Park, and laid my two pages on it. She took the pencil from behind her ear." Claude proposed telling the opening in order; Todd, 2:51 PM: "yes."
+- Now the chapter opens: "In the garage, after she said *Or nothing*, I asked her where she wanted to sign it. She said anywhere my office could not find me. There is no cell signal at Castle Rock. I told her there was a waterfall." / "I'll drive," she said. / the pickup at 4:47 / Alice's / the sign at the gate / "At 5:38 she let her tailgate down and laid my two pages on it. She took the pencil from behind her ear." / "I had written them myself between 2:20 and 3:15, at my desk, with the door shut." ... / "She read the first page standing up, ..."
+- Filed in the chapter file, the project, the manuscript doc and the plan (log row, decision record).
+
+## Chapters 25 and 26, an hour earlier (October 14, filed by 2:45 PM)
+
+- Todd, 2:41 PM: "It doesn't take over two hours to go from woodside to alices for breakfast." Claude: it is evening and 15 minutes, but the sentence did not say p.m.; proposed "She picked me up in Woodside at 5:47 that evening." Todd, 2:42 PM: "yes."
+- Todd, 2:43 PM: "I think you should make everything about an hour earlier so they have time."
+- Sunset (8:18), Goat Rock at 7:58 and everything after stay. Moved an hour: ch 25, "The courier came at 12:50 on Thursday." and "I got back to the yard at 1:20 for the afternoon load."; ch 26, "At 5:38 Jo let her tailgate down", "between 2:20 and 3:15 that afternoon", "She picked me up in Woodside at 4:47 that afternoon.", "At 2:05 this afternoon, after her truck went down the ramp", "REI in San Carlos at 4:24. At 2:12 I had sent her one line." The 4:00 meeting he moved stays.
+- Filed in both chapter files, the project, the manuscript doc and the plan (ch 25 and 26 outlines and log rows, dates, Places, decision record).
+
+## Chapter 26, Alice's Restaurant (October 14, filed by 2:32 PM)
+
+- Todd, 2:25 PM: "An Idea, instead of driving down 84 they could go down the road to Alices Restuaraunt. It's famous with bikers and named after the song. They have cool cars and motorcycles often."
+- Claude: Alice's closes at 8:00 on Thursdays and they would pass it about 9:20, so put the stop on the way up, where nobody in the chapter had eaten; most sources say it was named for the owner who bought it in 1960, so Jo says the song and Cal corrects her (the owner is not named). Todd, 2:32 PM: "You are right, good idea. Go for it."
+- Now: she picks him up at 5:47; "At the top of 84, where it crosses Skyline, she pulled in at Alice's Restaurant. Thirteen motorcycles were backed in along the front of the building. There was an old silver Porsche with a man asleep in the passenger seat." / "Dinner," Jo said. "Unless your robot packed you one." / "It did not." / "Named after the song." / "It was named for the woman who owned it. She bought it in 1960." / "You looked that up." / "I looked it up in 2009." / "Course you did." She got out. / She came back with two sandwiches in a paper bag and set them on my knees. / "What do I owe you?" I said. / "A waterfall." At the tailgate: "I had the sandwiches in the shoe bag". On Goat Rock: "She sat down on the rock with her knees up. I sat down beside her and gave her a sandwich." / "I had finished mine before she had hers unwrapped. She looked at my empty paper and gave me half of hers."
+- Filed in the chapter file, the project, the manuscript doc and the plan (outline, log row, dates, Places, decision record).
+- Todd, 2:39 PM, gave Alice's hours: Monday to Saturday 8:00 AM to 8:00 PM, Sunday 8:00 AM to 7:00 PM. The plan's Places entry and ch 26 checks now use them. The chapter is unchanged.
+
+## Chapter 26, leaving Goat Rock (October 14, filed by 2:21 PM)
+
+- Todd, 2:20 PM: "Odd: “We are four minutes in violation,” I said." Claude proposed a line; Todd, 2:21 PM: "yes."
+- Now: "The sun had been down four minutes. There was a mile of trail and about twenty-five minutes of light." / "We should start down," I said. I did not move. / "Then get up."
+- Filed in the chapter file, the project, the manuscript doc and the plan (log row, Claude's additions, decision record).
+
+## Chapter 26, the crash pad (October 14, filed by 9:55 AM)
+
+- Todd, 9:54 AM: "?: The crash pad folds." Claude proposed letting Jo ask; Todd: "yes."
+- Now, at the tailgate: "What's that?" she said. "A mattress?" / "It is a crash pad. It is what you land on when you come off." / It folds in half and has shoulder straps. It weighs ten pounds. I had the shoe bag zipped and was reaching for the pad when she lifted it off the seat and got her arms through the straps.
+- Filed in the chapter file, the project, the manuscript doc and the plan (log row, decision record).
+
+## Chapter 26, a second critique (October 13, filed by 10:17 PM)
+
+- Todd, 10:16 PM, sent a second outside critique of ch 26. Todd, 10:17 PM: "Make the changes you think will make the book better for the genre."
+- Ch 26 now has, after she starts reading: "Page one said neither of us would tell anyone about the other's health, money, house, company, children or dog, or post a word or a picture of the other anywhere, for as long as either of us lived." And at the rock: "I showed her the lowest problem on the north side... and pointed out the first three holds."
+- Ch 27 plan: Jo's reason for not saying it back stays hers: she has already asked him for one thing this week (25), and she does not yet trust what saying it would let him expect.
+- Filed in the chapter file, the project, the manuscript doc and the plan (ch 26 log row, ch 27 outline, decision record).
+
+## Chapter 26 revised after an outside critique (October 13, filed by 10:12 PM)
+
+- Todd, 10:10 PM, sent an outside critique of ch 26; Claude gave an opinion on each point. Todd, 10:11 PM: "Make the changes you think will make the book better for the genre."
+- Ch 26 now: "She had not said it back." before "I had said it to her twice."; "Line ten of the list said *Never married*. None of the eleven had been."; "When I dropped onto the pad she had her hands up behind me with her thumbs in. They caught me under the ribs for a second. Then she stepped back."; "It came to forty-two months and two weeks."; the jar is fifty-three dollars and sixty cents; "I put the bills in my shirt pocket with the card and the coins in my jeans."; "Their addresses were in the notice lines."
+- Ch 28 plan: he tells himself the mortgage is not one of the eleven gifts, because he chose it himself and knows her loan number; he could not have named one of theirs.
+- Filed in the chapter file, the project, the manuscript doc and the plan (ch 26 outline and log row, ch 28 outline, decision record).
+
+## Chapter 26 drafted (October 13, filed by 10:05 PM)
+
+- Todd, 9:33 PM: "Ok, let's write chapter 26. Remember all the things you should remember. Every line should show character."
+- Chapter 26 (Cal, about 3,100 words), Thursday, July 30, 6:38 p.m. to about nine:
+  - The shoulder of Skyline outside Castle Rock (the gate locks at sunset). Her tailgate, his two pages, her pencil. He wrote them himself; he signs for Remy. Family struck on both sides; her side becomes THE COMPANY PAGE; the number struck ("twenty-three millionths of what I have" / "forty-two months on my house"); IF EITHER OF US BREAKS IT WE'RE DONE in the margin. One copy, in her glove box.
+  - In his memory: Wednesday 6:24, approve without opening; this afternoon he read the old one and the three, and released the three women by letter. Jo is not told.
+  - Shoes from REI with the receipt in the box; she pays in cash. Castle Rock: the cave, spotting, she is better at it. The falls are dry: "You quoted me a waterfall off a job you did seventeen years ago."
+  - Goat Rock at 7:58, No Service. The blue ribbon: a coin sorter, 1995, $53.60, "I put it back sorted," run twice to hear it again; "She asked whether I had washed my hands." Sunset 8:18; "I love you" at 8:19; "Say it again when your heart's not going like that." Again across the hood of her truck; she kisses him.
+  - On 84 the signal returns. Remy: each of the eleven ended within fourteen days of a large gift, no final conversation; twelve items remain, Review? Line ten, Never married; Jo married eleven years. He closes the screen.
+- A separate agent reviewed it cold before filing; its catches are in the plan's chapter 26 log row and the decision record.
+- For Todd to confirm: WE'RE DONE in the margin (the plan said the agreement is over); parking on the shoulder; Remy's "Review?".
+- Filed: the chapter file, the project, the manuscript doc after chapter 25 (heading m939yffkf2q.567558) with the Jump-to row rebuilt (.582808) and the header updated; the plan (outline, log row, dates row, Remy table, Places, Claude's additions, decision record); the character sheet (who-knows rows for 26); this handoff.
+
+## Chapter 25, the 2:41 goodbye (October 13, filed by 9:31 PM)
+
+- Todd, 9:28 PM, of "I walk him at five" / "I know.": "These don't show any character and sound mean." 9:29 PM, of "Drive careful. You've got one headlight." / "Yes.": "This is also weak." 9:30 PM: "ok" to both proposals.
+- Now: "I walk him at five," he said. "And you have Millbrae at seven." / "How long's his walk?" / "It takes forty minutes." At the car her paragraph opens "He could have stayed till half past four." The goodbye: "You've got one headlight," I said. "Somebody's going to write you a review." / "I will answer it myself."
+- Filed in the chapter file, the project, the manuscript doc and the plan (log row, decision record).
+
+## Chapter 25, Millbrae fixed; Jo's job rules added (October 13, filed by 9:27 PM)
+
+- Todd, 9:23 PM, on "I did the den by myself": "I thought she needed people there." Then: "That's a pretty big thing to miss given how central it has been. What went wrong?" Then: "make the change."
+- The fault: the son was in Spokane and Jo called green and blue without him, against her contract (whoever owns the thing is in the room when it gets decided; ch 2, 3, 11).
+- Now: "His son had flown down from Spokane for the week to empty it. He'd told me on the phone that his father didn't have much." / "My two guys had the bedrooms. The son sat at the kitchen table with the found sheet. I did the den by myself, every drawer, front to back, and brought him what I found one thing at a time. ... He called them, and I wrote them down. I brought him a drawer of rubber bands somebody had saved for forty years. He looked at it a long time." / "Blue," he said.
+- New in the plan under Story rules, Jo: "Jo on a job," a checklist every job scene is run against before filing, and given to the independent reviewer.
+- Filed in the chapter file, the project, the manuscript doc and the plan (log row, Story rules, decision record).
+
+## Chapter 25, the photo line and line six (October 13, filed by 9:22 PM)
+
+- Todd, 9:21 PM: "Unclear: Line six was the woman who sold his custody hearing." Claude proposed a line; Todd, 9:22 PM: "yes."
+- Now: "I knew why, too. In June I'd written line six on his card myself and struck it. *PRIVATE. NO SOCIAL MEDIA.* A woman he'd been seeing had sold the story of his custody hearing, Abby's school and all. Abby was four. Now there was a picture of me with my head back, laughing, on a page that sells him."
+- Filed in the chapter file, the project, the manuscript doc and the plan (log row, decision record).
+
+## Chapter 25, the photo line (October 13, filed by 9:20 PM)
+
+- Todd, 9:19 PM: "Unclear: In the ones there are, I'm holding a box or Owen. In that one I wasn't holding anything." Claude proposed a line; Todd, 9:20 PM: "yes."
+- Now, after "He was looking at me, not at the girl with the phone.": "Nobody takes my picture unless I'm carrying something, a box or Owen. In this one my hands were empty." ("There aren't many pictures of me." is folded into it.)
+- Filed in the chapter file, the project, the manuscript doc and the plan (log row, decision record).
+
+## Six open questions settled (October 13, filed by 12:13 PM)
+
+- Todd, 12:05 PM, sent an outside critique proposing answers to six open questions in the plan. Claude gave an opinion on each. Todd, 12:11 PM: "Make the changes you think will make the book better."
+- Filed in the plan (outlines 26, 30, 34, 35; plants table; dates; Open questions; Claude's additions; decision record) and the character sheet (who-knows 34 and 35). No chapter text changed.
+  - Ch 26: at Goat Rock, before "I love you," he tells her the blue ribbon, the project that did exactly what the drawing said; told once, not echoed in words in 36.
+  - Ch 30: Vili takes the hall bathroom door off its hinges ("Doors come off," 11) while Jo speaks only to Vili; it goes to Woodside, and Abby has him mark her, ABBY 18 (Claude's addition). He cooks for Abby from Darlene's tin and writes 2 back over her 1 on each card he makes (Claude's addition).
+  - Ch 34: at eleven, on the atrium bench, he tears in half the linguiça and egg on a sweet roll he made himself (not Frank's linguiça, not a bakery); she takes it. The garage door still comes off, with no one quoting the line. In the piano bench, the payment book: September 2012, for Abby, every payment in Darlene's blue ballpoint; he paid off her house that October and never knew. Stephanie brought Abby every year, which is why Cal never saw the piano.
+  - Ch 35: getting a glass, he opens the wrong cupboard, finds Jo's own tin, holds it shut and puts it back. The tin is never explained to anyone.
+  - Declined: Jo confessing the tin or adding a card of her mother's to Darlene's. The epilogue stays as planned.
+
+## Chapter 25 revised after outside critiques; chapter 26 plan deepened (October 12, filed by 5:59 PM)
+
+- Todd, 5:47 to 5:55 PM, sent outside critiques of ch 25 (the print line, the 2013 recollection, review counts, Rowena, the agreement's plausibility, the mutual demand, Remy and responsibility, the timeline, trims, keeping the romance in front). Claude gave an opinion on each and proposed lines. Todd, 5:57 PM: "Make all the changes you think will make the book better for its genre."
+- Ch 25 now:
+  - "I'd have paid for a print." stands alone ("It was a good picture." cut).
+  - "I knew why, too. Line six was the woman who sold his custody hearing, Abby's school and all. Abby was four. Now there was a picture of me with my head back, laughing, on a page that sells him."
+  - "Denise had two coffees and two hundred and six reviews at ten past six on Wednesday." / "We had four hundred and thirty-one yesterday," Denise said.
+  - "By then there were four hundred and three new ones." ("I'd answered ninety-one since I got home." cut; the call still has "Ninety-one.") "I looked at the screen. Millbrae again at seven." (the third "Three hundred and twelve." cut)
+  - "In May I'd billed him two lines for a dinner I wanted."
+  - At the tailgate the paragraph starts "Every estimate I've ever written has two lines at the bottom" ("Page five had my son on it. No page had his office on it, or his robot, or him." cut).
+- Not changed, with reasons in the plan's decision record: the contract's list of topics, Gary Roth, the Rowena callback, no new earlier plant for Cal's delegation (planted in 6, 8 and 24).
+- Ch 26 plan: he wrote the two pages himself, with no Remy; how he approved the old one (Remy asked, he said approve in a car); he releases the three women himself and Jo is not told (Claude's addition); on her tailgate at Castle Rock they negotiate it like an estimate: family struck both ways, she cannot sign for Owen and he cannot sign for Abby, the same $250,000 is not the same, so no figure, and both initials on every change. Second list: ch 26, paper in his name.
+- Filed: the chapter file, the project, the manuscript doc (header updated), the plan (ch 26 entry, ch 25 log row, second list, decision record), this handoff.
+
+## Chapter 25 drafted (October 12, filed by 5:38 PM)
+
+- Todd, 5:03 PM: "Ok, le'ts move on to chapter 25. Remember all the things you need to remember."
+- Chapter 25 (Jo, about 3,950 words), Tuesday night, July 28, to Thursday afternoon, July 30:
+  - On the slab after the photo: she likes the picture and objects to the caption ("I've been Silveira's mover for twenty years"). He asks before calling anyone; he tells her what he can and cannot stop; "The company page is mine." Neither wins.
+  - Wednesday 6:10: Denise, 206 new reviews on 431 ever, no reporters. The white truck is $7,600 and three weeks. Her father has the sixteen-footer's keys to drive the Burlingame loads (for 27). At 6:21 Cal asks whether Remy should report the fake reviews; she says no and answers them herself.
+  - Alone in a dead man's den in Millbrae. Kevin's text: a mom at camp asked Owen about her and Cal.
+  - 11:58: 312 behind of 403. Cal texts at 12:04; "A model wrote that." "Can you?" (her third rung). "Bring nothing." He brings the dog and reads all 312 at her table, no Remy and no money, and finds nine people: Glenda Ruiz, Rowena's edited May review ("Silveira Moving," spelled right), and Gary Roth's one-star, which she earned. He leaves at 2:41.
+  - Thursday 1:50: a courier brings fourteen pages from the Office of C. Brennan that bind only her, her employees and her family, footed "Prepared by Remy from 3 prior agreements. Approved by C. Brennan.", with Ms. Holcomb's name left on page nine. She reads it as the bill for asking.
+  - His garage, her tailgate: "Did you read this?" "No." She wants one anyway: two pages, his name wherever hers is, his people and his robot too. "Mutual," I said. "Or nothing."
+- A separate agent reviewed it cold before filing; the fixes are listed in the plan's chapter 25 log row and the decision record. Kept against its flag: Ms. Holcomb named on page nine (an unnamed alternative is noted for Todd).
+- Filed: the chapter file, the project, the manuscript doc after chapter 24 (heading m939yffkf2q.545828) with the Jump-to row rebuilt and the header updated; the plan (outline entry, log row, dates row, Claude's additions, decision record); the character sheet (who-knows rows for 25); this handoff.
+
+## Chapter 24, the cleats line replaced (October 12, filed by 10:34 AM)
+
+- Todd, 10:31 AM, on ch 24: "Unclear: “Then I have until next July to learn the cleats.” “You've got one.”" Claude proposed a clearer cleat line; Todd, 10:33 AM: "Let's find something else. Nobody will remember cleats." Claude proposed Frank's Sundays (Mass, then the boat, on the page in ch 23); Todd, 10:34 AM: "ok."
+- Now, after "With him that's Sunday or next July.": "Then I will take Sunday." / "Sunday he goes to Mass first. Then he sits in the boat." / "What time is Mass?" / She looked at me to see whether I meant it. I meant it.
+- Filed in the chapter file, the project, the manuscript doc and the plan (outline entry, log row, decision record).
+
+## Dawn's therapist's rule goes to Cal in chapter 32 (October 12, filed by 8:56 AM)
+
+- Todd, 8:53 AM, sent a clip from the matchmaker's channel. Her therapist, thirty years in marriage and family therapy, said only two dynamics last in a long marriage. The couple are equally in love, or the man is madly more in love than the woman. The matches that always fail are the ones where the woman loves him more. Men who are madly in love do the sacrifice, the changes, the listening, the communication and the work, and women do that work regardless. The matchmaker hated it for women. Todd: "I'd like the match maker to have a conversation based with cal later in the book."
+- Claude proposed Dawn's morning call in ch 32, which already ends him as a client and tells him why she sent Jo. Todd, 8:55 AM: "yes."
+- In the plan (file and doc), in the ch 32 entry:
+  - She cross-examines him: "Eleven." "They were."
+  - She gives him the rule from her own therapist, ten years ago, when her marriage ended (Claude's choice of the two offered), and says "I hated her for saying it."
+  - All eleven did the work, and he sent presents. Joanna was never going to be impressed; if it worked, it would be because he was the one gone. And she is the one his daughter would call.
+  - He asks, "Which one were you?" She does not answer.
+  - It sends him into 33 and 34 knowing that the test is the work.
+- Also in the plan: Dawn's cast entry, the matchmaker's-channel line under "Where outside material went," Claude's additions, and the decision record. The character sheet (file and doc) has Dawn's reason and two lines.
+
+## Chapter 16's tasting moved to Silver Mountain (October 11, filed by 7:02 PM), and one line at her curb (7:10 PM)
+
+- Todd, 7:09 PM, on Jo's "You'd have asked" at her curb: "Unclear." Claude: she is working out that Cal did not send the car, because he would have asked her first. At his yes (7:10 PM) the line is now "You didn't send it," she said. "You'd have asked me first." Cal's "Yes." stays. Filed in the chapter file, the project, the manuscript doc and the plan (outline entry, log row and decision record).
+
+- Todd, 6:15 PM: "In chap 16 the wine tasting is under described like Golden Gate Bridge. Instead of Burrell move the, to silver mountain winery which is a few miles away. They have a gorgeous view of the Monterrey bay and Santa Cruz mountains and beautiful vineyard views. They also have award winning Chardonnay and Pinot noir. They would pass a cute little church and apple orchard on the way up."
+- Claude proposed the passages; Todd corrected them before his yes:
+  - 6:34: "He is blunt but he loves talking about his wine. And he always has a dog to greet visitors."
+  - 6:43: the owner does nothing about the dog and would not say "Bit?"; he stays at the bar and talks about the land, grapes and approach to growing.
+  - 6:46: "You pay after tasting. They should buy some to save money on the tasting. Her idea. Don't take the dog collar. That doesn't happen to wine dogs. They own the joint."
+  - 6:57: "What does paying after castle rock have to do with the winery". Claude explained that Castle Rock is only the story Cal tells on the deck, and moved the paying ahead of that talk.
+  - 6:57: "Is the mt Eden thing true". Yes: Edible Monterey Bay (2022) says the vineyard started in 1981 with Mount Eden cuttings put straight into the ground with no rootstock.
+  - 6:58: "Ok go with it."
+- Filed in the chapter file, the project and the manuscript doc (checked by search):
+  - In the cab, "There is a winery on it" (was "two wineries next to each other").
+  - On Summit Road on the way up, the Taylor Ranch orchard and its honor box ("I would not have funded it." "They didn't ask you."), then Christ Child church, where Jo crosses herself without looking over.
+  - At the villa, Jo: "Nobody comes all the way up here for one. Food first. Then I know where we're going."
+  - Silver Mountain is her pick ("Not till today.").
+  - The winery dog meets her door. Cal asks, "Do you want me to keep him with me?" She says, "Keep him with you." Nobody takes the dog's collar.
+  - The whole bay from the rail.
+  - The unnamed owner at the bar: Mount Eden cuttings, the abandoned orchard bought in 1979, the floods, landslides, fire and earthquake, organic farming, "You get less. What you get tastes like something.", "Because they aren't ready."
+  - On the deck: the tri tips, the dog across Cal's feet, "Pancake's going to smell him on you." "I will tell him it was for you." Then the tasting list, "What do you get?", and his thumb over the Pinot's line.
+  - "Tasting comes off if you buy wine. So we're buying wine." She buys two bottles, then they go back to the rail. Castle Rock follows.
+  - Wrights Station is just past the store on the way down.
+  - At the dog park: "On the mountain she had kept me between herself and the dog all afternoon."
+  - Los Gatos is 73 and San Bruno 64, from the June 27 record. The chapter had 84 and 61.
+- Facts and sources are in the plan's Places entry for Summit Road and in the chapter 16 log row.
+- If Todd meant Skyland Community Church, a few hundred yards past the Silver Mountain turnoff, the church moves there. The book never names the owner.
+- The plan (file and doc), the character sheet (file and doc) and this handoff were updated.
+
+## Chapter 24 drafted (October 11, filed by 4:17 PM)
+
+- Todd, 3:53 PM: "Ok, write chapter 24 . Remember all the things you should remember."
+- Chapter 24 (Cal, about 2,800 words), Tuesday, July 28, evening:
+  - The meat loaf from his mother's tin, serves 2 crossed to 1, made for two; the first went in the trash (no word on the card about heating the oven); practice for Abby on someone who will tell him.
+  - Jo saved the closet across from the hall bathroom (the coat closet was done on Saturday one). Both have known since May 23 (thirty-four slips). He lets himself in, warms the meat loaf in his mother's oven, waits to open the door until she is there.
+  - Jo at 7:14 in the sixteen-footer after two loads in Belmont; he knows the white truck would do it in one and does not ask ("Work" on Monday; thirty-eight orders counted on 280, no requests).
+  - "It's dry." "Then the card's dry." "I have twenty-four cards with a 2 on them." "When is back?" "With him that's Sunday or next July." She takes the end piece; his mother always gave him the end.
+  - Thirty-four boxes stacked square by date, slips cut from every window; he takes neither tape and opens them all himself, two hours and four minutes; the same oatmeal wrap seven times; all blue but one wrap.
+  - Fourteen shoeboxes, 156 envelopes, *Calvin, house*, the last *Oct 2025*, $95,472. "Six-twelve. Was that her payment?" He reads it as cash that earned nothing: "She was stubborn." Jo knows and does not say; he sees that she knows.
+  - 10:31, the slab: Denise's link, the photo from the party captioned "Brennan's mover"; he leaves his phone in his pocket; her father's name on the truck doors, the caption only his; she puts the phone face down between them.
+- Method: as for 23. A separate agent reviewed it cold; nearly all of its notes were taken (listed in the plan's log row and decision entry).
+- Filed: manuscript/chapter-24-cal.md (project and file); the manuscript doc (after ch 23, heading id m939yffkf2q.524162; Jump-to row rebuilt, now m939yffkf2q.538143; header 4:16 PM); the plan (24 entry, In the house, Dates row, log row, Claude's additions, decision entry); the character sheet (who-knows row 24, Darlene's house); this handoff; Todd's folder.
+- 4:25 PM: an outside critique of 24; Todd: "Make the updates you think appropriate." Chapter: "I opened October 2025 too. It was the same, thirty twenties, a ten and two ones. I counted it twice." and, before "She was stubborn," "I knew how many envelopes there were, and what was in each one, and the month she had put it by. I did not know what she had meant by any of it." Plan: the 25 entry opens with a disagreement about the photo (Jo's objection is the caption; neither wins; she decides about her page; he says what he can and cannot stop). Not taken: more cuts to the gift list, more at Jo's reaction, an explicit bridge.
+- Waiting on Todd: the meat loaf and the tin; opening every box; the seven wraps; the shoeboxes; the thirty-eight orders; the closet's location.
+
+## Chapter 23 drafted (October 11, filed by 3:17 PM)
+
+- Todd, 2:32 PM: "Ok let's move on to chapter 23. Remember all the things you should remember."
+- Chapter 23 (Jo, about 4,300 words), Monday, July 27, her mother's birthday:
+  - 4:38 under CALL YOUR MOTHER; she'd have been seventy; the one day a year Jo does not work (Vili has it in his phone since 2019); her phone in the glove box till the boat's in.
+  - Cal in the lot since 4:26, one headlight; dog walked at 3:40 ("He was not in favor of it."); boat shoes from the 2014 retreat. Frank at 4:58. Cal asks Frank first about two racing sailors, paid; "No," and the cooler.
+  - Minus tide (low 6:12): Frank down the gangway backward, Jo one step under him ("I've got it."). The boat: a 1976 Catalina 27, slip since 1994, Sundays after Mass. "I can swim. I cannot float." The jib twisted ("Twisted."); Jo holds the light and says nothing on her father's boat. The blower four minutes; Cal counts.
+  - Out at 5:31 in a 14-knot westerly; a wave down Cal's collar; the yellow jacket. Nobody sits in the corner by the hatch. Under the Golden Gate at ten to eight (slack 7:44) Frank takes his cap off; Cal looks once, then up at the bridge. Jo's mother rode there until 2019; Jo had been afraid of what a man who didn't know would say.
+  - Downwind Jo leaves her father the sheet and sits beside Cal from Alcatraz to the Bay Bridge ("stealing the time"). Docking: the back cleat; "Which one is forward?" "I watched a video." "Hm." Frank asks Cal to dinner. Jo washes the boat and sits a minute in her mother's corner; Cal waits forty minutes at the top: "Your father asked me. May I come?" "Six o'clock."
+  - Frank's house: "He's holding Dad's PLATTER"; Kevin thanks Cal for the volcano ("I did not do anything. I sat."); "Is he bad?" "He's new."; Kevin knows the forward cleat (by the dock box) and Cal's ears go red; Dawn asked about Frank ("Does she have a dog?"), and Frank passes the bread; the cake, HAPPY BIRTHDAY CONNIE, one candle, Owen; seasick in the BATHTUB, "someplace famous"; "She liked the bridge."
+  - Vili at 7:20: the white truck's transmission at one-thirty on 92; he waited because it was her mother's day; four months of her extra mortgage payments. She tells Cal "Work." "All right."
+  - At Kevin's car, Cal at Owen's window: "In eleven years you asked me for one thing. It was to sign." "You never asked me for anything either." "I was at every game, Jo." "My dad never came to one." The water heater. She still doesn't tell Cal. "You were jealous. Of Kevin." "Yes." "Over a cleat." "He knew which one." Frank, loud enough for the driveway: "Can't tell yet. Bring him back."
+- Checked: NOAA Oyster Point Marina (9414392) low -0.27 ft at 6:12 a.m.; Golden Gate slack 7:44; SFO observations that morning (westerly 13 to 14 knots at dawn, gusts to 27 by early afternoon, broken overcast near 1,000 feet, no fog); sunrise about 6:10; Catalina 27 engines (outboard or Atomic 4 gas) and genoas.
+- Method: as for 21 and 22 (plan, character sheet, style guide, fiction-craft and its observation bank, chapters 21 and 22 and the Frank, Kevin and Jo's-mother passages in 1, 6, 7, 11, 13, 19 and 20), drafted, mechanical checks, then a separate agent reviewed it cold. Taken: the phone, the crew's timing, Vili's knowledge, the life jacket, the jib in the gusts, the fender and headlight, Frank's reason said outright, pronouns, cuts, and more interior at the corner, the bridge, the deck and Kevin's line (the water heater). Not taken: cutting "You were jealous"; adding Rob and the kids.
+- Filed: manuscript/chapter-23-jo.md (project and file); the manuscript doc (inserted after ch 22, heading id m939yffkf2q.501182; Jump-to row rebuilt, now m939yffkf2q.522536; header 3:12 PM); the plan (23 outline entry, chapter log row, Frank in the cast, Dates, Claude's additions, decision entry; header 3:14 PM); the character sheet (Frank, Kevin, Denise, who-knows rows for 23; header 3:16 PM); this handoff; Todd's folder.
+- 3:33 PM: an outside note on "to sit on the deck doing nothing"; at Todd's yes the line is now "I'd left them with a man with bad knees, on my mother's birthday, to sit down next to Cal." (file, project, manuscript doc, plan decision entry, folder).
+- 3:49 PM: Todd asked for more of the bridge's beauty, "something cinematic." At his yes: the approach past Alcatraz, the road that hangs (746-foot towers, 4,200-foot span), the orange the only color under the overcast, the cables at the middle, the tires on the joints, and the first ocean swell on the far side; "On the other side my father put his cap back on." is now "My father put his cap back on." (file, project, manuscript doc, plan decision entry, folder).
+- Waiting on Todd: Connie's name and the cake; the cap; the corner by the hatch and the seasick story; Frank's Sundays in the boat; Jo leaving the sheet to sit beside Cal; Kevin's line at his car with Cal in earshot; the papers on a Sunday; the rest of the Claude's additions in the log row.
+
+## Ch 22, the car (October 11, filed by 2:14 PM)
+
+- Todd: "This adds nothing: You have met it." Claude proposed replacing the exchange; Todd: "Yes". Now: "You never fixed it," she said. / "I did not want to." / She looked at me over the roof of the car for a second. Then she got in and put her seat back two notches and her boots up on the dash. Cut: the screen, seats and glove box; "So this is the car"; "You have met it"; "She laughed."
+- Filed: the file, the project, the manuscript doc, the plan (log row quotes, decision entry), this handoff, Todd's folder.
+- 2:18 PM: Todd, "This adds nothing: Yes," I said." Cal's "Yes," I said. after Stephanie's "Abby said you were coming" is cut (file, project, doc, plan decision entry, folder).
+
+## Critique of chapter 22, applied (October 10, filed by 5:15 PM)
+
+- Todd sent an outside critique of chapter 22. Claude's view: it mostly confirms what is there; take four small changes in the chapter and three in the plan. Todd: "yes".
+- Chapter 22 (file, project, manuscript doc; doc header 5:15 PM): "It is the best one in the world." cut, and "I had it do it for my daughter." is its own paragraph; after "Jo kept my hand and looked out at the lawn." a new line, "On the lawn Stephanie was fixing the back of Abby's collar for the picture. Jo watched her do it, and then she looked up at the oaks." (the next paragraph loses its "too"); the lamp's arm and the seam in the tablecloth cut.
+- Plan (file and doc): 30, he keeps Abby's terms and cooks badly, she answers what he does; 34, line nine's meaning changes, not a contest between families; 23, Cal stays a beginner on the boat; the ch 22 log row; a decision entry.
+
+## A core for each lead (October 10, filed by 5:09 PM)
+
+- Todd proposed a core for each lead: Jo, the woman who can carry anything, whose peace is an emptied house; Cal, the man who can solve anything, whose peace is a science fair project that worked. Claude agreed and suggested adjustments. Todd: "Agreed, it wasn't meant to be revolutionary, but grounding. Make any changes you think appropriate."
+- Filed (file and doc): the plan, under What the book is about (Each lead's core, What changes, where the two pictures go on the page), two rows in the plants table, the 29 entry (the loan at zero is the emptied house, unearned), the 34 entry (Cal watches her stand in each empty room a little longer than the job needs), an Open question (where Cal tells Jo about the project, 26 or 36) and a decision entry; the character sheet, a Core paragraph under each lead's opening and What changes under The two of them.
+- Claude's adjustments: Cal is "the man who can make anything work"; his contradiction is wider than fatherhood (none of what he can make happen reaches the people he wants to reach); each lead keeps the wound and adds the picture of peace; Jo's memory is at about seven, on one of Frank's early jobs, with Frank calling her from the truck; Cal's project is one of the blue ribbons already on the shelf; Jo's picture goes on the page in 29 (her own head; 34 is Cal's chapter and already holds the winter she was eight), Cal's probably in 26 or 36.
+- No chapter text changed.
+
+## Chapter 22 drafted (October 10, filed by 5:01 PM)
+
+- Todd, 4:17 PM: "Ok, move on to chapter 22. Remember all the things you need to remember. Let's remember to show personality and growth."
+- Chapter 22 (Cal, about 3,900 words), Sunday, July 26:
+  - Dawn in the twin bed, her hand on his back, the watch face down; the walk past the school (his mother in by the side door at six; "I told her I could cross a street by myself").
+  - Abby asked Jo to the party herself ("She told me."). He asks Jo without the sentence he built; "Who's X?"; "I have not been to one."; "Then wear the gray one." She rides in his car for the first time, sleeps, reaches for her purse to pay for the gas and stops.
+  - At home he leaves Janice's card in the present (a drafting-table lamp). Owen waves from Kevin's car.
+  - Stephanie's house in Menlo Park (inside four times, all in the front hall). Stephanie watches Abby's face when Abby sees Jo. Jo's thirty-foot tape on Abby's pocket ("Thirty-six."); "Thanks, Dad!"; the Thursday carpool and the drawings on the window; Jo with Abby's friends ("Not yet.").
+  - "X wants the cake cut at seven." / "Her name is Stephanie, Dad..." He says it with her name; from then on, Stephanie. A friend photographs Cal and Jo and he lets her (for 24).
+  - Abby squares his card and points to the crossed seven: she has known since she was seven; the videos are Remy. "You weren't a bad dad. You were a really good account manager." Jo holds his hand under the table. His list, in his stage voice: tuition since four, fourteen years of birthdays, her grandmother's house. "That's three things, Dad. You did all three." The third no to a baby. He asks Abby himself to stay August 14 to 16; "Who told you to ask me that?" "Nobody did."; he cooks, not Rita; "Okay," with no exclamation point.
+  - In the car he gives Jo line nine ("We're movers."; "I cannot tell you yet."). Frank is sailing in the morning and said to bring him; Cal half makes a call for racing sailors and decides he will ask Frank. "He'll be there at five." "I will be there at a quarter to five."
+- Method: as for 21. Sources read (plan, character sheet, style guide, fiction-craft and its observation bank, chapters 8, 14, 20 and 21), drafted, mechanical checks, then a separate agent reviewed it cold. Taken from the review: the June 27 car fact; Frank's invitation and the paid crew left for 23; the house in his list is his mother's, not Stephanie's (a 2012 payoff of hers would blur the precedent in 28 and "You did it to Grandma too" in 30); "That's three things, Dad. You did all three." for the plan's "small"; West Remington Drive on first mention; the school years left unstated (Dates soft spot); unclear pronouns; glosses, ", and" joins and a maxim cut; Jo's refrigerator story heard, not reported; "I wrap all week"; Pancake's head on her shoulder now costs her something; more interior at the dress, the cards, the name and line nine. Not taken: cutting "I had not known she drew on windows" and "Janice had picked it."
+- Frank's sail checked against NOAA for July 27, 2026: slack at the Golden Gate 7:44, flood after, so five-thirty from Oyster Point; the plan's ch 23 entry said seven and is corrected.
+- Filed: the project file manuscript/chapter-22-cal.md; the manuscript doc (inserted after ch 21; heading id m939yffkf2q.481483; the Jump-to row rebuilt with a Chapter 22 link, now m939yffkf2q.500415; header 4:57 PM); the plan (22 outline entry, log row, 23 sail time, 30 and the Abby thread for her weekend, two Dates rows, Claude's additions, decision record; header 5:01 PM); the character sheet (rows 21 and 22, Abby, Stephanie; header 5:01 PM); Todd's folder (not committed).
+- Waiting on Todd: Abby's weekend and the cooking; the house in Cal's list being his mother's; line nine coming out in the car; Jo bringing Frank's invitation; the five-thirty sail; and the rest of the Claude's additions in the log row.
+- Note for Todd: the ch 21 line changed this afternoon, "Abby was four when I moved her school," was a callback to ch 10 (after the 2013 article he moved her school). The new line, "when her mother and I divorced," is also true (2012, when she was four).
+
+## The outside critique, into the plan (October 10, filed by 2:07 PM)
+
+- After chapter 21 Todd wrote the files to his folder and sent an outside developmental critique ("I did. Here's a critique. What are your thoughts?"). Claude gave its view. Todd then: "Put into the plan whatever you think will make the book better and make any changes for the same reason."
+- Plan (file and doc, header 2:05 PM): a romance rule (from 22 on, every romantic scene lets one of them do something they could not before); a Jo rule (each refusal from 21 to 28 shows something new, with the five listed); strike points for the lines that had none, each struck when he can say why, so the card runs one to six, eight, ten, nine, seven, eleven: ten in 27 (the beach, after Kevin), nine in 34 (the cafeteria), seven in 35 (after he takes her first check), eleven in 36 (the night of the keynote); the His list table and the counts to match; ch 22 keeps the children question alive (he asks himself a third time; he does not want a baby, he wanted to have been there, and Abby leaves in twenty-three days, which is why he stays for the parent events in 33); ch 28 has him ask twice (the truck, then what is wrong; "she's got it") before he goes around her; ch 36 opens with him at full power on the stage; a Voice rule, the big moments get room; a Claude's additions bullet; the decision record entry with what was taken and not taken (no 5 to 10 percent cut, because of Todd's interiority rule; Denise unchanged; not the billionaire shelf).
+- Style guide (file and doc, header 2:05 PM): the rhythm rule.
+- Chapter 21 (file, project, manuscript doc; doc header 2:05 PM): one gloss cut. "He'd been sitting on the floor in the dark, not knowing what time it was, next to somebody who wasn't saying anything. I'd watched him do that once before, at the rim, for an hour and a half." is now "I'd seen him sit like that once before, at the rim, next to Owen, for an hour and a half."
+- Written to Todd's folder (not committed): the plan, the style guide, this handoff and chapter-21-jo.md.
+- Waiting on Todd: everything marked Claude's addition above.
+- Ch 21, 4:14 PM: Todd's own line, "I am not complaining.", replaces "I have tested it." (which had replaced "I know what size it is." at 4:10).
+- Ch 21, 3:58 PM (Todd: "yes"): Cal's answer is now "A woman who already has a child knows what a father does," he said. "She has sat at the games. She would know what I did not do for Abby."
+- Ch 21, 3:55 PM (Todd: "yes"): the line-eight exchange made clear; "Then why no kids for her?" read as Abby. Now "whose line eight was" / "It was mine."; "Abby was four when her mother and I divorced"; "I wanted another child" / "I wanted to be there from the first day. I wanted every birthday."; "Then why not a woman with kids?"; "Do you still want a baby?"
+- Ch 21, 3:48 PM: Vili's "I know where it stops." (Todd: "always sounds mean") is now "I've been to San Bruno, boss." (Todd: "A warmer tease is good"). "Your mother lived in it hot" stays; Todd said no to "Your mother never had air in this house."
+- Ch 20, 2:17 PM (Todd, "your choice"): "I had a board meeting at nine. It was on the watch." is now "The watch had my board meeting at nine." (file, project, manuscript doc; doc header 2:17 PM).
+
+## Chapter 21 drafted (October 10, filed by 11:11 AM)
 
 - Before it, Todd's line notes on ch 20 (all applied, file and doc): the opening's "it"s (Gil's Thursday is now "Today, on Maui," since Maui is three hours behind); "Since Saturday night" for "For five days," which read as five days in Hawaii (the plan's two ch 20 entries changed to match); "Janice tells me what she decides I need to know" for "what she thinks I can carry" (carry is Jo's word). The first paragraph's "It was on the watch." is unchanged; Claude offered "The watch had my board meeting at nine." and Todd has not answered.
 - Todd: "Ok, let's write chapter 21. Remember all the things you should remember."
@@ -494,7 +873,7 @@ Todd sent an outside critique of chapters 1 to 10 at 5:00 PM, got an opinion, an
 
 - Todd, October 8: "Let's move on to chapter 16." Drafted from the plan's line: the date he plans alone; the car he did not order; "No cars for Jo Silveira" and "Ask me before you do anything for Jo Silveira"; Summit Road, not Napa; no reservation and no wallet; the zeppelin; line seven; she pays, and he lets her.
 - Todd, 4:21 PM, on Summit Road and Los Gatos as they really are: "The schoolhouse winery doesn't have a lawn suitable for chairs. Regale does though. Wrights station is also quite pretty. Los Gatos is a good 20 minutes a way. Nobody drives to Summit to go to one winery. They would visit Summit Store while they wine tasting. They would never go back up to Summit Store after being in los gatos. If they park in a different place they can walk to the dog park along the trail and watch the dogs. That might be interesting. And at the store there's a two tri tip sandwidtch, you cant order like a restuaraunt." And at 4:23 PM: "A nice detail in lexington resevoire outside of los gatos being full and the crew teams gliding across the water while somebody shouts the pacing." Claude rebuilt the chapter from Summit Road on (file and doc).
-- Shape now: the black car at her curb at 1:22; Friday's card in his own handwriting and Remy's "Nothing new will be booked"; "One-thirty. My house.", said at eleven with her crew not done until one; shirt nine to ten; "the usual," the car that has waited at eleven curbs; "You'd have asked"; her twenty for the driver; her truck, her bag, 1:31; scene break; the cab, "I did not want Napa," "Thirteen items remain," "I will look later," ask-first set; the zeppelin past Moffett; up 17, the reservoir full and the crews she sees at six ("The coxswain." "Is that what he is." "Same as stairs. Somebody calls it, or you drop the dresser."); scene break; the villa with a wedding on its lawn, the clipboard ("I'm sure we can find you a seat"), "We are not with the wedding," the rental truck takes the sign; "Food first"; tri tips from the case at the Summit Store; the ask-first screen at the register, the phone face down, "Thank you"; lunch and a tasting on the schoolhouse deck (she pays, and uses the bucket because she is driving); Castle Rock (plants 26); the farmhouse in the redwoods (she pays); scene break; twenty minutes down to Los Gatos, parked by the lake, the creek trail, her hand, 104; the dog park, where she watches the dogs from behind the fence; Owen's rule ("He was before the rule"); line seven, "Then it stays on"; "Come down here." "I did not ask. I came down."
+- Shape now: the black car at her curb at 1:22; Friday's card in his own handwriting and Remy's "Nothing new will be booked"; "One-thirty. My house.", said at eleven with her crew not done until one; shirt nine to ten; "the usual," the car that has waited at eleven curbs; "You didn't send it. You'd have asked me first."; her twenty for the driver; her truck, her bag, 1:31; scene break; the cab, "I did not want Napa," "Thirteen items remain," "I will look later," ask-first set; the zeppelin past Moffett; up 17, the reservoir full and the crews she sees at six ("The coxswain." "Is that what he is." "Same as stairs. Somebody calls it, or you drop the dresser."); scene break; the villa with a wedding on its lawn, the clipboard ("I'm sure we can find you a seat"), "We are not with the wedding," the rental truck takes the sign; "Food first"; tri tips from the case at the Summit Store; the ask-first screen at the register, the phone face down, "Thank you"; lunch and a tasting on the schoolhouse deck (she pays, and uses the bucket because she is driving); Castle Rock (plants 26); the farmhouse in the redwoods (she pays); scene break; twenty minutes down to Los Gatos, parked by the lake, the creek trail, her hand, 104; the dog park, where she watches the dogs from behind the fence; Owen's rule ("He was before the rule"); line seven, "Then it stays on"; "Come down here." "I did not ask. I came down."
 - Todd, 4:32 PM, asked whether they come back to Los Gatos (chapters 8, 9 and 16); the plan does not take them there again. Claude offered a line giving Cal a reason for the stop (on the way home; the curb from chapter 9). Todd, 4:34 PM: "No." The chapter stays as it is.
 - Todd, 5:13 PM: "They need to leave earlier than 2:31 to make it." San Bruno to Summit Road is about fifty miles, an hour and ten minutes in a box truck. The day moved an hour earlier: Cal leaves the house at eleven as usual, Jo says "One-thirty. My house." though her crew is not done until one, the car is at her curb at 1:22, they leave at 1:31 and reach the villa at 2:41; the card reads "1:30 Jo. 2:45 Summit Road, wine. 5:00 Los Gatos, walk."
 - Out of the chapter: the parking ticket, the dinner hunt and the second trip up to the Summit Store. The crews row early in the morning on weekends (Los Gatos Rowing Club), so they are not on the water on a Saturday afternoon; Jo has seen them at six on her Summit Road jobs. The person shouting the pace is the coxswain.

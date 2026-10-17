@@ -86,7 +86,7 @@ On Tuesday I moved a product review. I had not moved one before.
 
 On October 6, at 2:14, I was in one. I did not come out of it. Remy took my mother's call. I did not think of that when I moved this one. I thought of it at a red light in San Jose and sat through the green.
 
-I walked Pancake at five, and I was in San Jose by ten. There is a neighborhood there called Little Portugal. I did not ask Remy for the best bakery in it. I drove down the street until I found a door with nine people over seventy waiting outside, and I stood behind them for fourteen minutes.
+I walked Pancake at five, and I was in San Jose by ten. There is a neighborhood there called Little Portugal. I did not ask Remy for the best bakery in it. I drove down the street until I found a door with nine people over seventy waiting outside, and I stood behind them for fourteen minutes. Farther along, the white towers of a church stood up over the roofs. The people in line were all speaking Portuguese at once. Inside, the air was warm and smelled of yeast and burnt sugar. The case ran the length of the room. Most of it was round loaves of sweet bread with shining tops. The custard tarts at the end were scorched black in spots, every one of them. The woman behind the counter called every customer *querida* or *querido*. When it was my turn she called me *querido* too. I wanted her to say it again.
 
 At the counter I asked for sausage and egg on a sweet roll. I may have pointed. I paid with my phone, because I do not carry a wallet, and I drove north with a paper bag on the passenger seat. The car had 1,100 miles on it. I have owned it for three years.
 

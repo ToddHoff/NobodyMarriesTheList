@@ -98,6 +98,8 @@ She was pleased, though. I am learning to tell.
 
 I wanted to put my hand in her hair. On the first night I had laid my hand flat on top of her head to mark her height, with her own tape running up from under her boot heel. I could feel it for the rest of that night. I could not think of a reason to do it again that she would accept. I held the door for her and kept my hands to myself.
 
+The room is small and low, fourteen tables with candles in glass, and a wall of windows onto a courtyard where a lemon tree is lit from underneath. It was quiet enough to hear the kitchen, a knife on a board and someone saying *Yes, chef.* The air smelled of brown butter. Jo stopped inside the door. She ran two fingers along the back of the nearest chair, under the top rail, where the joint is. I watched her two fingers go along under the rail and back. I wanted them on the back of my neck. Then she looked at me, and I took her to the table.
+
 “Who booked this?” she said, at the table.
 
 “Janice did.”
@@ -110,7 +112,7 @@ I wanted to put my hand in her hair. On the first night I had laid my hand flat 
 
 The first course was one pea in a glass spoon. The second was an oyster about the size of my thumbnail. The third came under a glass dome full of smoke, and when the smoke cleared there was a radish.
 
-She ate each one in a single bite. Then she put her fork down and looked at the place where it had been.
+She ate each one in a single bite. Then she put her fork down and looked at the place where it had been. At the oyster she shut her eyes for two seconds. I left mine on its plate until she opened them.
 
 “Is that the food,” she said at the fourth, “or is that what comes with the food?”
 
@@ -118,7 +120,7 @@ She ate each one in a single bite. Then she put her fork down and looked at the 
 
 “Okay.”
 
-The fifth course was the bread. A boy of about nineteen brought it, one roll apiece and a spoon of butter, and it was the first plate she took two bites to finish. She watched him all the way back to the kitchen.
+The fifth course was the bread. A boy of about nineteen brought it, one roll apiece and a spoon of butter. The roll was warm enough to steam when she tore it open. It was the first plate she took two bites to finish. She watched him all the way back to the kitchen.
 
 I had eaten in that room since it was Manresa. I could not have told you who had ever brought me the bread.
 

@@ -82,7 +82,7 @@ Vili waited for more. There wasn't any. I had surprised myself, and I shut up.
 
 I tried to think of one thing I had asked him for. What came was the water heater. It went one morning after he'd left for school. I had a plumber whose mother I'd moved put a new one in by three. I paid him. When Kevin got home the shower was hot. I didn't mention it. I used to tell that one at my father's table as a funny story.
 
-The big hangar at Moffett was coming up on the left, the one they built for an airship before my father was born. Years ago a zeppelin flew out of there and sold rides. I used to watch it from this seat.
+The big hangar at Moffett was coming up on the left, the one they built for an airship before my father was born. For years it stood there with the siding off, nothing but frame, like a truck somebody had stripped for parts. They'd finished putting its skin back on that winter. Years ago a zeppelin flew out of there and sold rides. I used to watch it from this seat.
 
 “Okay,” Vili said. “So here's what I think.”
 

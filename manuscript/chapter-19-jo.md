@@ -76,7 +76,7 @@ He could have said it was for Owen. It was true enough. I'd have had nothing to 
 
 He'd just read the statement. He knew the month.
 
-I took two days when my mother died. I don't count those.
+I took two days when my mother died, and I take her birthday. I don't count those.
 
 “He's nine,” I said. “He tells the dentist I don't floss.”
 
@@ -136,7 +136,9 @@ Denise wrote *HAWAII??* and a minute later *JOANNA MARIE.*
 
 The plane had eight seats and a woman whose whole job was the three of us. Owen asked her where she slept. Cal didn't open his laptop. I watched him not open it for five hours.
 
-Coming in over Maui, a mountain filled my window. It went up out of the ocean with a cloud sitting on its top.
+Coming in over Maui, the ocean under us changed color. It went from the dark blue we'd had since San Francisco to a green I'd only ever seen in the fish tank at a dentist's office, so clear that the reef showed through it in brown and gold patches, with a white line of surf drawn around the edge of everything. Owen and I had our foreheads on the same window.
+
+Then a mountain filled it. It rose straight from the water, green at the bottom and rust red above the green, with a cloud sitting on its top, and it kept going up after I thought it had to stop.
 
 “That is Haleakalā,” Cal said. “It is ten thousand and twenty-three feet.”
 
@@ -156,9 +158,13 @@ I got out and looked for the front door. There wasn't one.
 
 There was a roof, wide and low, with dark wood under it and black stone walls on both sides. Between the walls was a gap twenty feet across with the ocean in it. Somebody had built it so that would be the first thing you saw.
 
+A wind came off the water through the gap, warm and salty, and lifted my hair off my neck on its way out to the gate. I've never been in a house that let the weather walk through it.
+
 Owen touches a doorframe twice going into any house. There was no frame. He touched the stone twice.
 
 The floor was koa, a gold wood with the grain running through it in waves. The boards were a foot wide and twenty feet long. Each board was most of a tree. The living room ran sixty feet. On the ocean side it had no wall. The doors were pocket doors, twelve feet high. Every one of them was slid back into the wall. The room went straight out onto a stone terrace. The terrace went out to a lawn. The lawn went down to a strip of white sand, and the sand went into water so clear I could see the rocks on the bottom from the house. Past the rocks the water turned blue, then a blue so dark it was nearly purple. Out in the purple a little island lay in a half circle, like a bangle somebody had taken off and left on a dresser. Behind it was a big brown island with nothing on it at all.
+
+My bag slid off my shoulder onto the koa. I didn't check the floor for a scratch.
 
 “You could back a truck in here,” I said, “and not touch a thing.”
 
@@ -272,7 +278,7 @@ And me, asleep at seven in the morning. Nobody in my family has slept until seve
 
 That was the minute. Then I went looking for the piano.
 
-It wasn't hard to find. You can't pay a man back for a house like that. You'd be paying the rest of your life. So would your kid.
+It wasn't hard to find. I couldn't pay him back for a house like that. All I could do was lean on him, me and my kid, with our whole weight. Then I'd wait to find out whether he was the kind who goes quiet.
 
 ***
 
@@ -290,7 +296,9 @@ Owen came up next to me, pulled his snorkel out and said a word. It was the one 
 
 “That's the state fish,” he said. “I practiced.”
 
-Then he grabbed my arm.
+Past the reef the sand went down in a long slope, and then there wasn't any bottom. There was only blue, going darker the farther I looked, with the sun coming down into it in long bright ladders that swayed. I hung over the drop and breathed through the tube. For a while I forgot I had two trucks in Burlingame.
+
+Owen grabbed my arm.
 
 The turtle came up out of the blue like it was riding a liftgate, slow and level. Its shell was the size of a card table, brown and gold, with a few barnacles on one edge. It went to a rock and put its face against it and started eating. I could hear it scrape.
 
@@ -305,6 +313,10 @@ The turtle came up for air a yard from my head. It put its face out and breathed
 None of us said anything when we came up. Owen took his mask off and looked at the water where it had been.
 
 “I didn't go to him,” he said. “He came to me. That's allowed.”
+
+I came up the sand last, in the black suit from Target I've owned since Owen was in kindergarten, with my mask pushed up on my head and my hair down my back. Cal was sitting on the sand working the buckles on his vest. He stopped working them. He watched me all the way up the beach. I could feel exactly where he was looking.
+
+I didn't reach for a towel.
 
 ***
 
@@ -330,7 +342,7 @@ I went and stood in the water up to my knees for a while and looked at the littl
 
 ***
 
-The sun went down into the ocean. Owen had read on the plane about a green flash, a green spark right as the sun goes under. He watched for it with his whole body.
+The sun went down far to the right of the little island, behind a long flat island way out. The sea between us and the sun turned gold, then the color of the inside of a peach, and the far island went black. Owen had read on the plane about a green flash, a green spark right as the sun goes under. He watched for it with his whole body.
 
 It didn't come.
 
@@ -390,7 +402,7 @@ Gil came in at five and watched me wrap them.
 
 “First time anybody's used it,” he said.
 
-We flew to the Big Island at six, forty minutes over water into the sunrise. The airship was waiting in a field outside Hilo, tied by its nose to a mast on the front of a truck. It was white. I paced it off without meaning to. Nine of my big trucks nose to tail, with some left over.
+We flew to the Big Island at six, forty minutes over water into the sunrise. Behind us the top of Haleakalā stood up out of the clouds, pink. Ahead of us the Big Island ran up from the water like a loading ramp, two mountains so wide and so slow I couldn't tell where they started, with their tops above the clouds and the first sun lying across them. The airship was waiting in a field outside Hilo, tied by its nose to a mast on the front of a truck. It was white. I paced it off without meaning to. Nine of my big trucks nose to tail, with some left over.
 
 In 2009 I watched one of these go over 101 every week from my cab. Five hundred dollars an hour. I'd looked it up so many times Denise asked if I was saving for it. I didn't say anything now. I stood there with a grocery bag of sandwiches until Owen pulled on my sleeve.
 
@@ -418,9 +430,11 @@ The airship never sat down. It hung on its engines a foot off the grass with a l
 
 Then the men let go of the lines. The ground went down.
 
-That was all. Nobody pushed back in a seat. Nothing roared. I've been in freight elevators that made more fuss. I looked out. The truck was a toy. The men were looking up at us with their hands over their eyes. I'd missed the part where we left.
+That was all. Nobody pushed back in a seat. Nothing roared. I've been in freight elevators that made more fuss. I looked out. The truck was a toy. The men were looking up at us with their hands over their eyes. I'd missed the part where we left. Our shadow went across the pasture, nine trucks long, and over a fence and into the trees.
 
 Inside it was one long room with windows down both sides and a big curved one around the back. One window on each side opened. Owen had his open before the pilot finished telling us we could, and put his whole head out. I held his belt. I'd have held it if he were thirty.
+
+Then I put my own face out beside his. The air was warm and wet and smelled like rain on hot ground. Under us the forest went by close enough to pick out single trees, and here and there a top had gone red with flowers, like spatter off a roller. I had one hand on my son's belt and nothing else in the world to carry.
 
 It was quiet. The engines were out on the sides and behind, not under us. You can't talk on an airplane. Here you could talk in your regular voice. With the window open you could hear a dog barking in Hilo, a thousand feet down.
 
@@ -468,7 +482,7 @@ My face went hot at a thousand feet.
 
 ***
 
-Then we went up the mountain toward the top, over black ground and green ground and black again. The steam came first, out of cracks in the ground in long white rows. Then the ground fell away under us all at once. We were over the crater.
+Then we went up the mountain toward the top, over black ground and green ground and black again. The steam came first, out of cracks in the ground in long white rows. Then the ground fell away under us all at once. We were over the crater. Heat came in Owen's window like opening the back of the truck at three o'clock in August, and the whole airship rose a little on it, the long room all at once, like my father's boat lifting on a wake.
 
 I measure everything by eye. I've done it since I was a kid in the cab with my father. I couldn't put a number on that hole. It went on for miles. The walls were cliffs, gray and tan, with layers in them. The floor was black and shining, like a parking lot after rain. Down in one end of it were two black hills, like the piles at the transfer station.
 
@@ -641,6 +655,8 @@ I took my coffee down to the beach. Gil was on the sand with his. Cal and Owen w
 Cal put his ears in. He lay back and sank. He stood up and wiped his face and lay back again. On the third try he stayed up, with his arms out and his eyes shut and the light coming across him.
 
 “Now don't do anything,” Owen said.
+
+Out past them the water broke in a line of fins, a dozen, then twenty, going along easy. One of them shot clear of the sea, spun around three times in the air like a top, and fell back in on its side with a smack I heard from the sand. Owen screamed. Cal opened his eyes and sank.
 
 Gil drank his coffee.
 

@@ -2,7 +2,7 @@
 
 **Cal**
 
-At 4:58 on Thursday morning I turned my watch face up. It had been face in since the Saturday before, when Jo turned it over in her bed. I had a board meeting at nine. It was on the watch.
+At 4:58 on Thursday morning I turned my watch face up. It had been face in since the Saturday before, when Jo turned it over in her bed. The watch had my board meeting at nine.
 
 Since Saturday night I had not known the time without asking someone. On Maui I asked Owen. He told me to the minute, and then he told me how many minutes it was until we could go back in the water. On the Big Island the time was whatever the volcano was doing. I would have predicted that not knowing would bother me. I had gone two whole days without wanting to know.
 

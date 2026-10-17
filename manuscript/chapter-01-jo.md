@@ -38,6 +38,8 @@ At the hotel door I texted my sister, Denise.
 
 Vili is my crew lead. He is six foot four, and he can carry a refrigerator up a flight of stairs by himself.
 
+I came in past a room off the lobby with a glass ceiling glowing amber high up on marble columns and crystal chandeliers hanging down the middle. I was twenty minutes late. I slowed down anyway. I've wrapped chandeliers for estates in Atherton. I'd want two men and a day for one of those.
+
 The bar is named for the painting behind it, which I'd put at sixteen feet and which shows a piper walking a line of children out of town. Somebody decided that was the thing to look at over a drink.
 
 He was at the corner table, reading something in his lap.

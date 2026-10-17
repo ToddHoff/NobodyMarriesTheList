@@ -90,7 +90,7 @@ Vili looked down the hall. The frames were done, the hall was swept twice, and C
 
 “Caltrain. It stops in San Bruno.”
 
-“I know where it stops.”
+“I've been to San Bruno, boss.”
 
 He went back to the cab and got my cooler off the seat and carried it up the walk and set it on the step. He picked it up again, a couple of inches, and let it down.
 
@@ -138,7 +138,7 @@ Most days I like a room best when it's just me and the work. That afternoon it w
 
 At three the hall said ninety-seven, and I lay down on the floor.
 
-I'd told his daughter everybody does. She'd lain on this slab when she was little. It was the coolest thing in the house, and it came straight up through my shirt. I put my arms out. I hadn't been flat on a floor without a flashlight in my hand since I was a kid.
+I'd told his daughter everybody does. She'd lain on this slab when she was little. It was the coolest thing in the house, and it came straight up through my shirt. I put my arms out. I hadn't been flat on a floor without a flashlight in my hand since I was seven, in an empty house in Millbrae.
 
 Cal came out of his room with a ribbon in each hand and found me there. He stood over me for a while.
 
@@ -224,7 +224,7 @@ I'd never heard him say that about the time. He knows it to the minute. On a job
 
 I could see it. It was face down.
 
-He'd been sitting on the floor in the dark, not knowing what time it was, next to somebody who wasn't saying anything. I'd watched him do that once before, at the rim, for an hour and a half.
+I'd seen him sit like that once before, at the rim, next to Owen, for an hour and a half.
 
 My phone was in my back pocket. It said 9:47. Under the time was a text from Owen at 8:31.
 
@@ -246,17 +246,17 @@ He didn't ask what I meant.
 
 He'd heard me say something about him to my sister that I hadn't said to him. I was owed one of his. I hadn't asked on the plane. I didn't want to hear it with Owen asleep on his arm. I'd found the piano on that lanai. I'd been afraid ever since that eight was a second one. If he wanted a baby, that was the end of it. I'm forty-four. I'm done having kids. You can't strike that one with a pencil.
 
-“On the plane you did not ask me who wanted it,” he said.
+“On the plane you did not ask me whose line eight was,” he said.
 
 “I'm asking.”
 
-“I did.”
+“It was mine.”
 
 “Why?”
 
 He didn't answer right away. Pancake moved his head on Cal's knee, and Cal put his hand on it.
 
-“Abby was four when I moved her school,” he said. “After that I had her every other weekend. Janice picked her up on Fridays. Most Fridays I came home after she was asleep.”
+“Abby was four when her mother and I divorced,” he said. “After that I had her every other weekend. Janice picked her up on Fridays. Most Fridays I came home after she was asleep.”
 
 I didn't say anything. I let him go at his own speed.
 
@@ -270,15 +270,15 @@ My stomach went over like a hand truck off a curb.
 
 I've got a phone full of Owen at two. I hardly look at them. I was there.
 
-“I wanted to do it again from the first day,” he said. “I wanted to be there for every birthday.”
+“I wanted another child,” he said. “I wanted to be there from the first day. I wanted every birthday.”
 
-“Then why no kids for her?”
+“Then why not a woman with kids?”
 
-“A woman with a child has watched a father,” he said. “She knows what one does at a game. She would have watched me not do it.”
+“A woman who already has a child knows what a father does,” he said. “She has sat at the games. She would know what I did not do for Abby.”
 
 Kevin's been at every game Owen ever played. Same folding chair, same thermos. I've never said a word against him for it. I'd watched Cal now, too. At the rim. At a bathroom door with my carpenter's pencil. I'd already been comparing them. I hadn't known it was something a man could be afraid of.
 
-“Do you still want them?” I said.
+“Do you still want a baby?” I said.
 
 It came out smaller than I meant it to.
 
@@ -332,13 +332,13 @@ After, we lay the only way that bed allowed, him on his back with his feet past 
 
 “It's a twin.”
 
-“I know what size it is.”
+“I am not complaining.”
 
 I laughed into his chest until it hurt. He let me. After a while he turned on his side toward the wall, the only other way that bed goes, and took me with him. His breathing went long. He was asleep.
 
 I wasn't.
 
-I'd been careful for three years. I'd kept my life to what I could carry by myself. The truck notes, the mortgage, a nine-year-old, my father's knees. I know the number on every bit of that. I couldn't put a number on this.
+I'd been careful for nine years. I'd kept my life to what I could carry by myself. The truck notes, the mortgage, a nine-year-old, my father's knees. I know the number on every bit of that. I couldn't put a number on this.
 
 I've emptied a lot of bedrooms where two people slept for fifty years. At the end one of them signs for the other one's things.
 

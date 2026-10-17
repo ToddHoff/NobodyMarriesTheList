@@ -1,0 +1,398 @@
+## Chapter 29
+
+**Jo**
+
+At twenty to five on Wednesday morning I stood in my driveway in my socks with a cup of coffee, looking northeast, because my son told me to.
+
+He'd texted me from his father's at 9:40 the night before.
+
+*Perseids tomorrow morning. No moon. Look northeast when you get up. Don't look at your phone for 20 minutes so your eyes get used to the dark.*
+
+I'd read that on my phone.
+
+Northeast from my driveway is the yard, three miles off, under the hill with the sign on it. For once there was no fog. There was nothing on the ridge behind the house and nothing on the hill. The sky was black all the way down to the streetlights. It was fifty-seven degrees. I had Cal's fleece on over my T-shirt, the one I'd never given back, zipped to my chin with the sleeves down past my knuckles. The motion light next door came on every time I moved my feet.
+
+I gave it four minutes. A plane came in low over the bay with its lights going, and I watched it all the way down behind the houses, which wasn't what he meant. I gave it four more, because at seven he'd want to know how long I'd looked.
+
+Then one went.
+
+It came out of nothing over the yard and went the whole way across, over my roof toward the ridge, one long white stroke, faster than anything coming into SFO. It was a box cutter going down the tape on a box. It didn't blink, and it didn't make a sound. At the very end it went green, for about as long as it takes to say green, and then the sky closed up behind it.
+
+“There,” I said out loud, to nobody, in my socks.
+
+I texted him. *Saw one.* He'd be asleep till seven.
+
+I stood out there another minute in case it did it again. Then I went in.
+
+Wednesday mornings before the yard I do my own bills, at my counter, with the light over the stove on and nothing else. The statement for September hadn't come. It comes by the eleventh, every month since 2023, and Tuesday's mail had been a pizza coupon and the calendar from Kevin's school, which he sends me every August. I don't mail a check late on account of the mail. I turned the old statement face up for the loan number. It had been face down by the coffee maker since Sunday the second, with *skip Aug* on it in my pen, for the check I'd mail in August, under the NOV 2036 I'd circled twice.
+
+I wrote the date on the check and the bank's name, and left the amount.
+
+Before I write the next one I always make sure the last one went where I told it to. The first year they parked my extra in something called unapplied funds, twice, where it sat doing nothing for anybody but them. So I got on the bank's site on my phone.
+
+The page came up with my name at the top.
+
+*Principal balance: $0.00*
+
+Under it was a green bar. *PAID IN FULL.*
+
+I looked at it for a while. Then I scrolled down to the payments.
+
+*08/10/2026. Payoff received. $521,000.00.*
+
+Under that, in smaller type, it said *Excess funds of $4,483.45 will be refunded to the borrower.*
+
+The refrigerator came on behind me. In a house after the last load's gone you can hear a refrigerator from two rooms away, with nothing left to soak it up. It was the only sound in the house.
+
+For about a minute I didn't think anything. My shoulders came down. I hadn't known they were up.
+
+I was seven the first time I felt that. My father had the one truck then. He took me along on a Saturday in the spring to a one-story in Millbrae with green carpet. All morning a man sat in a car at the curb with the engine off. Nobody went out to him. When the crew carried out the last of it, my father let me walk through by myself while he did the straps. Every room was empty. The carpet was brighter in squares where the furniture had stood, with dents in it from the legs. My sneakers were the loudest thing in the house. I lay down on my back in the front room, inside the square where the couch had been, with my arms out, and listened to it. Nothing in it needed moving. I could hear my own breathing. For as long as I lay there, nobody needed one thing from me. Then my father leaned on the horn out at the curb. When I came out, the car was gone.
+
+I didn't find out whose house it was till I was sixteen, riding home with my father on 280 from a job like it. It was a bank job. The wife had died the year before, five weeks after their baby came. Her husband sat down in a chair and didn't get up. He quit going to work. His mother took the baby. The bank took the house and paid my father to empty it. He'd brought me along because it was a Saturday.
+
+I've walked every house I've emptied since then, last, by myself. I've never told anybody why. A lot of them were houses where somebody leaned their whole weight on one thing and it went. I carry out what's left.
+
+I watched my father sit down in a chair the winter I was eight. Owen was five weeks old the first time Kevin went quiet. The next Monday I was back on a truck. I don't lean on anything that can go.
+
+Since May I'd been doing it anyway, an inch at a time. On my father's boat I'd put my shoulder against his arm and kept it there from Alcatraz to the Bay Bridge.
+
+A house I pay off myself can't go quiet on me. It was the one thing I'd let myself want. I was going to have it at fifty-five. Then I was going to lie down.
+
+On Monday, while I was packing a kitchen in Burlingame, somebody had carried everything out of mine. I hadn't lifted a thing.
+
+I knew who.
+
+I'd found his piano on the lanai in July. It had come in by wire, with my loan number on it. From now on, every time I came in my own front door, I'd be walking into something he'd given me.
+
+The bank's phones open at eight in the morning back east. That's five here. I called at a minute past and listened to the same twenty seconds of music for eight minutes.
+
+A woman named Rochelle took my date of birth and the last four of my Social.
+
+“Okay, Ms. Silveira, I'm showing that loan paid in full as of August tenth,” she said. “Congratulations!”
+
+“I didn't pay it.”
+
+“Ma'am?”
+
+“Somebody else paid it.”
+
+“Okay.” I heard her typing. “I'm showing a wire received on the tenth with your loan number in the reference. Anybody can make a payment toward a loan, ma'am. Once it's applied, it's applied.”
+
+“Can you send it back?”
+
+“I'm not able to reverse a payoff from here. If the sender wanted the wire recalled, they'd have to start that with their own bank.”
+
+She read me the rest off her screen. A letter saying the loan was paid, in about two weeks. A check for the excess funds, in about thirty days. The reconveyance, she said, which was the release of the lien, recorded with San Mateo County and mailed to me in thirty to sixty.
+
+“Is there anything else I can help you with today?”
+
+“No.”
+
+“Well, congratulations again on paying off your home.”
+
+I'd been going to make this call in 2036. Some girl in a headset was going to tell me congratulations, and I was going to laugh at her. Then I was going to hang up and go stand in my driveway.
+
+I put the phone face down on the counter. I still had his fleece on. I took it off and hung it over the back of a kitchen chair.
+
+I keep the house on a spreadsheet. I made it in October 2023, at this counter, the night the notary came and I signed for the refinance. It has a line for every payment from December 2023 to November 2036. One column says what I'll owe the bank after each one. The next one is where I type the date the check clears, and the last one is for notes. Every month I check the bank's number against mine, and they come out within a few cents.
+
+Thirty-three lines had a date in them. Thirty-two of them had the nineteen hundred on top.
+
+I'd sat down this morning to put a zero in the extra for September and add a line at the bottom for December 2036. It would have been the first line I ever had to add.
+
+I scrolled to the bottom. There are a hundred and fifty-six lines. Two weeks ago I'd written that number on a found sheet in his mother's hall, in my capitals, with a number of dollars under it.
+
+On the last line, in the column where I keep notes, I'd typed *55*. I typed it in 2023. In November 2036 I'll be fifty-five, and Owen will be nineteen. In July I told Cal at my table I was going to have a party in my driveway, and I wasn't inviting the bank.
+
+Every line from September down to that one had been mine. I knew what each one was going to cost me and which month I'd feel it. I'd have typed the last date in myself, at this counter, on a weeknight, with the dishes done.
+
+I didn't put anything in September. I closed the laptop.
+
+I wrote VOID across the check in capitals and put it in the back of the checkbook, where the voids go. I put the statement back by the coffee maker, face down, where it lives till the next one comes.
+
+On the fifteenth of July, at a sink as big as a bathtub in a kitchen where he didn't know where his own dish soap was, I'd made him promise. *You don't pay for anything of mine without asking me first. Not a sandwich. Nothing.* He dried his hands on his shirt and said it back to me word for word. *I will not pay for anything of yours without asking you first.*
+
+It was the only promise I ever asked him for. He'd said yes before he knew what it was.
+
+He keeps what he says to me. He'd kept every Saturday he promised me on his mother's lawn in May.
+
+I picked the phone back up and opened his thread.
+
+The last thing in it was his, from Thursday night at 10:02. *Your father and I folded forty-eight pads.*
+
+I'd read it at a quarter to five on Friday morning, at this counter, in the dark. On Thursday I'd watched the two of them out the office window with their backs to the wind, my father calling the folds. When Cal looked up and saw me watching, I'd turned away from the glass. I'd had six days to answer it. Every answer I had started with thank you.
+
+I didn't type anything now either. I wasn't going to say this on a phone.
+
+I put my boots on. It was still dark. The sea glass on the sill over the sink was black.
+
+***
+
+At ten past six Denise was on the office steps in her earrings with two coffees. The low stuff had come in off the ocean while I drove. The sky I'd stood under at twenty to five was gone, flat and gray down to the top of the hill.
+
+She held mine out and looked at my face. Denise can't keep hers still when she's reading mine.
+
+“What happened?”
+
+“Nothing.”
+
+“Is it Dad?”
+
+“No.”
+
+“Is it HIM?”
+
+“What's on the calendar?”
+
+She looked at me a second longer. “Westlake. The two-bedroom. Dad's got the sixteen-footer for the loads.” She drank her coffee. “And Janice Louie called yesterday afternoon. HERSELF. Not the robot. She moved her office up from December to the twenty-EIGHTH, and she wants it walked again. Four o'clock today.” She looked at me over the lid. “She asked for YOU. I said you'd be in Westlake all day. She said she'd wait.”
+
+Janice Louie's office is on his floor. I'd meant to drive to Woodside tonight and say it to his face. Four o'clock was sooner.
+
+“I can send Vili,” Denise said.
+
+“She asked for me.”
+
+“Joanna Marie.”
+
+“Four o'clock,” I said, and went to see whether the four-wheel dolly was on the truck.
+
+At 7:02, at the light at the bottom of the hill in Westlake, my phone lit up on the seat.
+
+*Only one? Where were you looking*
+
+*Northeast*, I wrote.
+
+*Tonight is the peak. Dad says I can stay up till 11.*
+
+*Good. Look northeast.*
+
+***
+
+It was my second Westlake house since Maui. This one was pink. Every house on that street is the same house in a different color, built around 1950 by one man, with the garage on the street and everybody's life upstairs over it. On a Westlake job everything goes down the inside stairs and out through the garage. By the second trip you know which stair talks.
+
+The fog was down on the roofs, same as July.
+
+The daughter was at the kitchen table with the found sheet when we came up. Sharon. She was in her sixties, up from Bakersfield, and she'd been sleeping on an air mattress in her old room for a week. Her father bought the house new in 1951 and died in it in June, at ninety-six. She hadn't labeled a thing.
+
+I put Vili and Manny on the bedrooms and did the hall myself.
+
+A hall closet in a house like that is fifty years deep. Coats in dry-cleaner plastic from cleaners that closed before Owen was born. Christmas lights wound on squares of cardboard, every string tagged in a man's square printing, GOOD or BAD. Two pairs of galoshes, one inside the other. Behind the coats on a hook, a gray cardigan with half a roll of mints in the pocket. You check every pocket. After the freezer, the coats are where the money is. I found two dollars and a ticket stub from Candlestick. I called them down the hall to Sharon. She said green without looking up.
+
+The whole time I was in that closet, I was at my counter at ten to five, looking at a green bar.
+
+The pictures came last. There were eleven of them up the hall wall, every one dead level. I took them down one at a time, called each one, and wrapped it.
+
+The ninth was a five-by-seven in a dime-store frame. A man in a short-sleeved shirt stood in the driveway of this house, holding a sheet of paper over a barbecue with a pair of tongs. The paper was on fire. The garage door was up behind him. The whole street was out on the sidewalk in lawn chairs with highballs, and a girl of about twelve stood by the barbecue with both hands over her mouth.
+
+“Picture, hall, framed,” I said. “Man with a barbecue.”
+
+Sharon came down the hall and looked at it over my arm.
+
+“That's the mortgage,” she said. “Nineteen seventy-one. Twenty years, and he paid it to the month. Mom made him do it on a Saturday so the street could come.” She put her finger on the glass over the girl. “That's me.”
+
+I looked at him a while. He had his feet set wide, like the low man on a ramp, and he was grinning at the fire with his whole face. He'd made two hundred and forty payments to get to that barbecue.
+
+I've found three or four of those over the years. Every one of them was in a driveway.
+
+“It was a copy,” Sharon said. “He kept the real one in his safe deposit box with the bank's stamp on it. I found it in June. He never told my mother.”
+
+“Green or blue?”
+
+“Green.”
+
+I wrote it on the sheet. I wrapped it myself, face in.
+
+At half past twelve my father brought the sixteen-footer back from the donation dock and backed it into the driveway in one pass. He got down sideways, both hands on the door, his good leg first. He stood a second with his hand on the mirror before he let go.
+
+I stood at the top of the garage stairs with a lamp in each hand and did the number. On the first of September I wasn't sending the bank three thousand nine hundred ninety-one dollars and eighty-one cents. I wasn't sending it on the first of any month, ever again. That was a driver in that cab till the part came for the white truck, and then some. It was my father off his knees by Friday.
+
+Kevin's folks gave us the down payment in 2012. His mother said grace every Sunday for eleven years, and then she said something about the house. I paid them back with interest nobody asked for. This was five hundred and twenty-one thousand dollars.
+
+Every one of those dollars had Cal's name on it. I wasn't putting a driver in my father's cab with them.
+
+I carried the lamps down the stairs and out to the ramp myself. My father took them from me and walked them up and set them on top, where lamps go. He looked at me a second longer than the lamps needed.
+
+“Two more?” he said.
+
+“One.”
+
+At ten past three Vili had the last of the blue on the truck, and Sharon had her green in four boxes by the front door with the picture on top. I walked the house, every room, garage last. In the front room I stood in the brighter square on the carpet where her father's couch had been, and listened. All I could hear was Rochelle telling me congratulations. I gave Sharon back her keys at the curb.
+
+***
+
+At five to four I parked on level two of his garage, nose out, where I'd parked twice before. I took the clipboard and my tape and got on his elevator with pad fuzz all down the front of my shirt.
+
+His floor is sixty desks with nothing between them, and I had to walk the length of it. Every head came up. I knew most of them had seen the picture from Abby's party. Somebody by the stairs turned her phone over on her desk when I went by.
+
+Janice's door was open at the far end.
+
+In June there had been fourteen file cabinets in her office, a desk and two chairs, and I'd counted the cabinets out loud for her. The cabinets were still there. The rest of the room was in boxes, lids on, three high along the wall, every one labeled on both ends in her printing with a year, 2009 through 2026. She'd crossed the seven on 2017. Every box was packed right. Books flat. Nothing over forty pounds. Somebody had taught her.
+
+Janice was at her desk with a tape gun. She put it down when she saw me and stood up. She's a small woman, and she stands with her weight on both feet.
+
+“Ms. Silveira.”
+
+“You said December.”
+
+“I gave notice on Friday.”
+
+I looked the room over. “Where do the cabinets go?”
+
+She looked at the inside door. His. It was shut.
+
+“In there.”
+
+“That's twenty feet.”
+
+“Twenty-two,” Janice said.
+
+I hooked my tape on the nearest cabinet and ran it across the carpet to his door. It was twenty-two.
+
+“Your building's got a man with a dolly,” I said.
+
+“He doesn't know what's in them.”
+
+I knew what was in them. She'd told me in June. A card for everybody he'd met since 2009, in her printing. Two of them were mine.
+
+I pulled the top drawer of the nearest one to see how full they ran. They were packed tight, on edge, with the tabs in her printing. You don't move a file cabinet full. The frame racks, and the drawers come open on the dolly. Every card would have to come out and go back in, in the same order, in his office, with him in the room. I wrote it down.
+
+“I didn't send it,” Janice said.
+
+I wrote *14 cab, full, unload/reload* on the sheet.
+
+“I know who sent it,” I said.
+
+“He asked me to on Friday morning. I told him to ask you first.”
+
+“He didn't.”
+
+“No.” She folded her hands. “He sent it himself at twelve minutes past three. I gave him my notice at half past.”
+
+In June she'd had till December in this office. She'd given up the rest of the year in it on Friday afternoon, over my house.
+
+“I've sent all the others,” Janice said.
+
+“What others.”
+
+“He always gives a present before the end.”
+
+I looked at her. She looked right back. My neck went hot from the collar up.
+
+“The end of what,” I said.
+
+“That's his to tell you.”
+
+She picked up the tape gun and taped a box shut, one strip down the middle and one across each end, and set it on the stack square.
+
+On the twenty-third of May, in his grandmother's hutch, I'd fanned a stack of packing slips with my thumb. Each one was cut down with scissors to its two typed lines. *Happy Birthday, Mom. Love, Cal.* They'd come out of the plastic windows on thirty-four boxes his office had sent her. She'd kept every slip, in order, and opened no box. I'd counted thirty-four of those for the found sheet.
+
+He'd said it to my face on a rock, with his heart going under my hand. I hadn't said it back.
+
+Standing in Janice's office with her tape gun going behind me, I couldn't tell anymore which kind I'd gotten.
+
+I put the clipboard down on Janice's desk to work out the number.
+
+There was a sheet of paper on the desk, face up, on top of a stack she'd squared to the corner. One page, typed. Twelve lines with a number in front of each one, and a line of small type at the bottom.
+
+```
+1.  5'8″ or taller
+2.  Age 30 to 36
+3.  Dresses well
+4.  Athletic. Works out most days
+5.  College degree, minimum
+6.  Private. No social media
+7.  Comfortable being looked after
+8.  No kids. Wants them
+9.  Good family
+10. Never married
+11. Doesn't need to work. Free to travel
+12. Doesn't go quiet
+
+Generated by Remy. Approved by C. Brennan.
+```
+
+The small type was the same as at the bottom of the agreement that came to my yard in July, give or take a word.
+
+I'd never seen it. I'd struck eight of its lines in pencil on the back of his card, one at a time. Here they were in type, all twelve, with nothing through any of them.
+
+I didn't pick it up. I'd read line one before I knew what I was reading, and after that I couldn't stop.
+
+Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked me if I really needed to work this much. I'd said yes. On Friday at twelve past three he'd fixed it so I didn't.
+
+*I said I would fix it.* He'd said that to the water at Carmel, about his wife, with his ears red.
+
+Twelve. In the margin beside it somebody had made a check in ink and written a date and one word. *5/4. Joanna.*
+
+Nobody but Dawn Pruitt calls me plain Joanna. She's known me since I carried her mother's dresser. May fourth was three days before she sent me to that bar. He'd never told me that one either.
+
+I stood there with the pencil in my hand and everything I'd come up here to say to his face.
+
+I picked the clipboard back up. “Which wall do they go on?” I said.
+
+Janice knocked twice on his door and opened it.
+
+“Ms. Silveira needs your wall,” she said. Then she went out past me onto the floor and pulled her own door to behind her.
+
+He was already standing behind his desk. His sleeves were pushed up, and he looked like he'd been up since four. The corner of the card stuck up out of his shirt pocket.
+
+My stomach went over the hill. It always does, with him. I wanted my hand flat on his chest, where I'd put it on the rock. I stayed by the door.
+
+His office had a desk with nothing on it and a long blank wall across from the window. I went to the wall, hooked the tape on the corner and walked it out to the window frame.
+
+“Nineteen feet,” I said, to the clipboard.
+
+Fourteen cabinets at fifteen inches is seventeen and a half. I wrote it down. Behind me he hadn't moved.
+
+“May I tell you why?” he said.
+
+I wrote *wall 19'* under the cabinets. I didn't turn around yet.
+
+“You read my statement upside down,” I said. “At my table in July. At my counter, the Sunday after Carmel.”
+
+“Yes.”
+
+“You promised me at your sink.”
+
+“Yes.”
+
+I turned around then. He had his hands at his sides. His ears were red.
+
+“You didn't ask me,” I said. “You knew what I'd say.”
+
+He took his time.
+
+“Yes,” he said.
+
+In June, Dawn had told me to watch what a man does with a no. Last Thursday on my dock he'd had two of mine, one about a truck and one about a transmission. I'd watched what he did with them. He'd folded forty-eight pads with my father. The next afternoon he'd sent five hundred and twenty-one thousand dollars to my bank.
+
+“I wanted you to have your party in August,” he said.
+
+My driveway, in December now, or February. Chairs off the truck. Denise with a sheet cake. Owen home from wherever he'd gone. My father in his chair with his cushion, if his knees let him down the front steps. Every date in my spreadsheet typed in by me.
+
+He'd moved it to August and paid for it. He thought the party was about the bank.
+
+“My name was on that loan,” I said.
+
+I had more. I'd had it since ten to five that morning, in order, the way I'd lay out a job for Vili. Under all of it was the thing I hadn't said on the rock. If I said one more word to him, I didn't know which one would come out. If it was that one, I'd be putting my whole weight on a man whose own assistant had just told me he always gives a present before the end.
+
+I shut my mouth.
+
+I wrote it up at the bottom of the sheet. Fourteen cabinets, empty and reload, two men and me, one full day. I signed it and tore off the yellow copy. Then I went back out through Janice's office and opened her door.
+
+She was standing just outside it with her hands folded, where she could see the whole floor and nobody could see in.
+
+I held the yellow copy out. “Every card comes out and goes back in the same order. One day. Denise will send you the number.”
+
+“Thank you, Ms. Silveira.”
+
+Behind me Cal said, “May I walk you to your truck?”
+
+The first night, on Minna Street, he'd walked me to my truck and read my father's name off the door.
+
+I didn't turn around. I put the pencil behind my ear and walked down the middle of his floor, between the sixty desks. Nobody was typing. All the way to the elevator my boots were the loudest thing on his floor.
+
+I pushed the button. When the doors opened I got in and turned around.
+
+He was standing in Janice's door with his hands at his sides, waiting to be told where to be.
+
+The doors closed.

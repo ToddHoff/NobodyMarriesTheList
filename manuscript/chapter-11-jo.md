@@ -208,7 +208,7 @@ Owen looked at the dog for about four seconds.
 
 “No. He's a client. And the dog stays on his side of the glass.”
 
-Owen put the phone in his pocket. He didn't argue. He goes quiet when he's told no, and that part he gets from his father.
+Owen put the phone in his pocket. He didn't argue. He goes quiet when he's told no, and that part he gets from his father. I've watched for it in him since he could walk.
 
 Cal looked at me, and then at his dog. He kept quiet too.
 
