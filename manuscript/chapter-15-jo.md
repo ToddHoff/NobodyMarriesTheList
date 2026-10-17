@@ -8,7 +8,7 @@ On Sunday night Cal Brennan asked if he could work a load, and I put him on my p
 
 That was the whole message. There was no semicolon in it and nothing about anybody's mother. Janice would have given me a reason. He hadn't.
 
-He'd written once before, on the Wednesday after the fight, at 10:02. *I still owe linguica.* I read it in my kitchen in my socks, and I knew who wrote it by the last word, because Janice would have looked it up. He could have had his phone write me anything. He sent four words. One was spelled wrong.
+He'd written once before, on the Wednesday night after the fight, at 10:02. *I still owe linguica.* I read it in my kitchen in my socks, and I knew who wrote it by the last word, because Janice would have looked it up. He could have had his phone write me anything. He sent four words. One was spelled wrong.
 
 I didn't answer it for three days, because I didn't trust what I'd say. On Saturday night I fixed his spelling and sent that. It was the most I could manage.
 
@@ -46,7 +46,7 @@ After Denise took the couch, I sat up at the counter with the Delgados' estimate
 
 ***
 
-He was in my yard at 5:12. I'd planned to beat him there.
+He was in my yard at 5:12 the next morning. I'd planned to beat him there.
 
 He was standing beside his car under the light over the dock, in the gray shirt, with a pair of work gloves in one hand. They still had the cardboard on them.
 

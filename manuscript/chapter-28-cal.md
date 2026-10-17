@@ -384,9 +384,9 @@ I sent it. I sat at my counter with the phone face up and Pancake on my feet. Ev
 
 At 9:00 on Friday morning Remy put it on my screen.
 
-*Relationship 12. Month four begins today. The last item in the plan is a gift. Prior large gifts: 11. Average value: $31,400. Largest gift on record to one person: October 2012, D. Brennan, mortgage paid in full. What is the gift?*
+*Relationship 12. Month four begins today. The last item in the plan is a gift. Prior large gifts: 11. Average value: $31,400. Options ready: 3. View?*
 
-I read it three times. Fourteen days from today was August 21. I sat at my desk with my hands flat on it until 10:06.
+I read it three times. I did not open the options. Fourteen days from today was August 21. I sat at my desk with my hands flat on it until 10:06.
 
 At 10:06 I typed the name of her lender and her loan number. I had read them upside down on her table on July 18 and again on Sunday at her counter. I read everything with a number on it. Under them I typed the balance from her July statement, $518,395.69, and the rate.
 

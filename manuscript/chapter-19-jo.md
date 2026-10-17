@@ -104,7 +104,7 @@ I thought about Vili running both trucks in Burlingame, and Denise on the phone 
 
 ***
 
-He came back at five, after Kevin's car had gone, and asked my son in my front room. Owen stood with his hands at his sides and heard all of it before he said anything.
+He came back at five that afternoon, after Kevin's car had gone, and asked my son in my front room. Owen stood with his hands at his sides and heard all of it before he said anything.
 
 “Is it erupting?”
 
@@ -278,7 +278,7 @@ And me, asleep at seven in the morning. Nobody in my family has slept until seve
 
 That was the minute. Then I went looking for the piano.
 
-It wasn't hard to find. I couldn't pay him back for a house like that. All I could do was lean on him, me and my kid, with our whole weight. Then I'd wait to find out whether he was the kind who goes quiet.
+It wasn't hard to find. I couldn't pay him back for a house like that. All I could do was lean on him, me and my kid, with our whole weight.
 
 ***
 
@@ -320,7 +320,7 @@ I didn't reach for a towel.
 
 ***
 
-At five he drew a pufferfish nest in the wet sand.
+At five that afternoon he drew a pufferfish nest in the wet sand.
 
 He paced it first, heel to toe. Six and a half feet across. He drew the circle with a stick. Then he showed Cal how to make the ridges, from the edge in toward the middle, all the way around, like the spokes on a wheel.
 
@@ -394,7 +394,7 @@ Owen was across the hall. I slept in my room and Cal slept in his.
 
 ***
 
-At 4:30 on Tuesday I made sandwiches in his kitchen. On the way in from the airport I'd had the car stop at a store in Kīhei. I paid with my own card. The food in his refrigerator was going to the pantry on Thursday. I wasn't taking it off them.
+At 4:30 on Tuesday morning I made sandwiches in his kitchen. On the way in from the airport I'd had the car stop at a store in Kīhei. I paid with my own card. The food in his refrigerator was going to the pantry on Thursday. I wasn't taking it off them.
 
 I made twelve, plus one for Gil. Two pilots, Dr. Okamura, four men on the ground lines, the three of us, and two more, because there are always two more people than anybody tells you. Sausage and cheese on sweet bread, buttered out to the edge.
 
@@ -530,7 +530,7 @@ I stayed on the bench with him. He'd had the zeppelin put on a ship and sent acr
 
 ***
 
-We landed at eleven. At two Dr. Okamura drove us up to the top in her own truck, which had a cracked windshield and a dashboard full of rocks. She took us out to a place on the rim with a rope across it and a ranger who knew her name. From there the crater lay out in front of us. The two hills were down at the far end of the floor, a couple of miles off. The north one was still spilling.
+We landed at eleven that morning. At two Dr. Okamura drove us up to the top in her own truck, which had a cracked windshield and a dashboard full of rocks. She took us out to a place on the rim with a rope across it and a ranger who knew her name. From there the crater lay out in front of us. The two hills were down at the far end of the floor, a couple of miles off. The north one was still spilling.
 
 Every few minutes it did something I didn't have a word for. The red would rise up inside the top of it, and a roar would come up with it, louder and louder, like a truck with a hole in the muffler going up a grade. Then it would stop dead. The red would drop out of sight. Then it would come back up and spill a little more.
 

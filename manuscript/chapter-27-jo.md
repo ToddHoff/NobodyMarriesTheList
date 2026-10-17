@@ -2,7 +2,7 @@
 
 **Jo**
 
-At ten past four on Friday my father backed the sixteen-footer to the dock in one pass. Then he sat in the cab with the engine off.
+At ten past four on Friday afternoon my father backed the sixteen-footer to the dock in one pass. Then he sat in the cab with the engine off.
 
 I was on the dock with the clipboard. The four o'clock wind was coming over the hill off the ocean, hard enough to lift the corners of the pads on the stack, and I had my boot on them.
 
@@ -102,7 +102,7 @@ He answered before I'd put the phone down.
 
 ***
 
-Cal was at his gate at 5:55 with the dog on the leash, a canvas bag at his feet and a fleece over his arm. He had his sleeves pushed up, and he looked like he'd been up since four. My stomach went over the hill. I sat in the cab with the engine running and let it.
+On Saturday morning Cal was at his gate at 5:55 with the dog on the leash, a canvas bag at his feet and a fleece over his arm. He had his sleeves pushed up, and he looked like he'd been up since four. My stomach went over the hill. I sat in the cab with the engine running and let it.
 
 He lifted Pancake into my back seat with both arms under him and set him down on my seat covers. Then he got in next to me and put the bag between his feet.
 
@@ -414,7 +414,7 @@ There was a menu for the dog. Cal read it to him. “Chicken and rice, twelve do
 
 “Chicken,” I said. “On my card.”
 
-At six the boy in the vest knocked with two shopping bags from a store in Carmel and a bag of the old-dog kind of dog food. Inside the shopping bags were a shirt, a pair of pants, socks, a sweater and a toothbrush, each one folded in tissue with a sticker holding it shut. Somebody had driven fifty minutes down 1 with a toothbrush. Cal set the dog food by the bowl for the morning. I went down to the truck and got my shirt out from behind the seat.
+At six that evening the boy in the vest knocked with two shopping bags from a store in Carmel and a bag of the old-dog kind of dog food. Inside the shopping bags were a shirt, a pair of pants, socks, a sweater and a toothbrush, each one folded in tissue with a sticker holding it shut. Somebody had driven fifty minutes down 1 with a toothbrush. Cal set the dog food by the bowl for the morning. I went down to the truck and got my shirt out from behind the seat.
 
 We ate our dinner on the terrace with the dog under the table. Dinner came with the room. I'd said yes to the room.
 

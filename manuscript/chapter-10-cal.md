@@ -4,7 +4,7 @@
 
 Nineteen messages had gone to Jo Silveira in my name, and on Friday night I read eighteen of them for the first time.
 
-On Wednesday, at 9:14, Jo had quoted one to me across a table, and I had told her I noticed it recently. It was the one lie I had told her, and I had until seven on Saturday to make it true.
+On Wednesday, at 9:14 in the evening, Jo had quoted one to me across a table, and I had told her I noticed it recently. It was the one lie I had told her, and I had until seven on Saturday to make it true.
 
 I told her that because she was pleased with me, for a sentence I had not written. I wanted one more minute of that.
 
@@ -50,7 +50,7 @@ I did not tell Janice to stop the messages either. It would have taken one sente
 
 ***
 
-I was at the house at 6:41 with three lunches. I did not know what was in mine. It had been packed.
+I was at the house at 6:41 on Saturday morning with three lunches. I did not know what was in mine. It had been packed.
 
 I put Pancake in the back yard and stood at the curb, where I could see down Remington.
 

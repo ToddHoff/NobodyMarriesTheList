@@ -2,7 +2,7 @@
 
 **Jo**
 
-On Thursday I packed a dead woman's kitchen in Westlake by myself, in fog so thick I'd driven over with my headlights on at seven. My nose was peeling from Maui. Every time I wiped it on my sleeve I was back on that lanai.
+On Thursday I packed a dead woman's kitchen in Westlake by myself, in fog so thick I'd driven over with my headlights on at seven in the morning. My nose was peeling from Maui. Every time I wiped it on my sleeve I was back on that lanai.
 
 Her son had flown in from Phoenix. He sat in the garage with the door up, on a folding chair, with his phone, and every hour he came in and asked if I needed anything. I've cleared a lot of houses for people's children. They'll go through their mother's closet with a box of tissues, and her jewelry and her desk. They leave the kitchen to me.
 

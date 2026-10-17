@@ -2,7 +2,7 @@
 
 **Cal**
 
-I reached my mother's house at 6:19 on the first Saturday, forty-one minutes early, and I spent all forty-one of them in the car.
+I reached my mother's house at 6:19 in the morning on the first Saturday, forty-one minutes early, and I spent all forty-one of them in the car.
 
 The house is 15.4 miles from mine. It takes twenty-two minutes. Until that Friday on the sidewalk I had not made the drive since the week she died, and in the five years before that I had made it four times.
 
@@ -13,6 +13,112 @@ My grandfather bought it new in 1960 for $21,500, and I own a watch that cost mo
 My mother worked the cafeteria line at that school for thirty years. While I was a student there she handed me a tray five days a week, and I thanked her exactly as I thanked the woman next to her.
 
 She paid $612 a month on the house until 2012, when I paid it off. I had considered that the end of the subject.
+
+At 6:21 my phone rang. It was Dawn Pruitt.
+
+At midnight on the seventh I had left her eleven minutes on her machine, from the car, with the times in them. At 6:20 the next morning she had reached me on 280 to tell me that Jo had said no to dinner. I had said all right. She had not called since.
+
+“You're in the car,” she said.
+
+“I am in the car outside my mother's house. How do you know that?”
+
+“You booked Joanna's Saturdays. Her crew starts at seven, and you're early to everything. And if you were in the house you wouldn't have picked up on the first ring.”
+
+I heard her pour. She pours half a cup at a time. I had counted three on 280 on the eighth.
+
+“I told the other three no for you,” Dawn said. “So I owe you a debrief. I do one for everybody. You left me eleven minutes, and not one minute of it said whether you had a good time.”
+
+“I stayed three hours and five minutes.”
+
+“That's a duration.”
+
+“It is the longest I have stayed.”
+
+“Did you have a nice time?”
+
+I have been asked that question about dinners for fourteen years. I have an answer for it.
+
+“Yes,” I said. I heard that it was the answer.
+
+Dawn did not say anything. She practiced family law for fifteen years before she did this. She knows what a man sounds like when he has stopped one sentence early.
+
+“It did not feel like a good thing,” I said.
+
+“What did it feel like?”
+
+I looked at the house. From the car I could see the front door and the edge of the glass, and nothing behind it.
+
+“I wrote it down,” I said. “The times. I did not know what else to do with it.”
+
+“With what?”
+
+“My mother died in October. I have not been inside her house since. On the seventh I sat in a bar for three hours and laughed twice. I did not plan either one. At midnight I gave you every time I had. I did not tell you that part.”
+
+“You're telling me now.”
+
+“Yes.”
+
+She poured again.
+
+On the seventh Jo had asked about the girl who named the dog. My eyes filled at the table. I had blamed the horseradish. Jo had passed me a napkin and waited until I used it.
+
+“Tell me about her,” Dawn said.
+
+“About Jo?”
+
+“About your mother.”
+
+Nobody had asked me that. At the funeral a great many people told me about my mother. They had worked with her, or had lived on the next street since 1961. I stood by the door and thanked them. None of them asked me anything.
+
+“She worked at the school across the street,” I said.
+
+I waited for the rest of it. I had lived eighteen years in that house. What came was the school.
+
+“What was her name?”
+
+I had it. It is on the deed and on the trust. It was on the program at the funeral, under a photograph Janice had chosen.
+
+“Everyone at the school called her by her first name,” I said. “The students too. She did not like Mrs.”
+
+Dawn waited. I heard what I had done a second after she did. I did not go back and fix it.
+
+“All right,” she said.
+
+She did not ask again.
+
+“When my mother died,” Dawn said, “I cleared her garage myself. I gave the house to a mover and kept the garage. Every Saturday for a month. One Saturday I found the dish she brought to every Thanksgiving, under a bag of potting soil, and I sat down on the concrete and cried so hard I couldn't see it.”
+
+I waited. She had not finished.
+
+“The mover was on the driveway with a box,” she said. “She put the box down and went and sat in her truck for ten minutes so I could have the garage. Then she came back and picked it up again. That was eleven years ago. She has never mentioned it.”
+
+I did not have to ask who the mover was.
+
+The street was empty. Somebody had left a sprinkler going two houses down, and it was ticking against a car. Ten minutes in a truck. I had not known that was a thing a person could give.
+
+“She said no to dinner,” I said.
+
+“She did.”
+
+“She said it fast.”
+
+“Under a second,” Dawn said. “I've known Joanna since she carried my mother's dresser. She says no fast when she's afraid of what she'd say if she waited.”
+
+“I told her on the sidewalk that I would not ask her again.”
+
+“Then don't.”
+
+“That is what I said.”
+
+“Good,” Dawn said. “Then she'll have to.”
+
+I did not see how that followed. I filed it.
+
+“Your file stays open,” she said. “Go in when she gets there.”
+
+The line went quiet. She had hung up.
+
+It was 6:44. Pancake put his chin on my shoulder from the back seat. I sat with the phone in my hand and looked at my mother's door.
 
 I had walked Pancake at five, as I do. Nobody has ever asked for a meeting at five, so it is the one hour of my day that has stayed mine. After that I had run out of things that were mine to do, so I drove. He rode with his chin on my shoulder from the back seat. He has done that for eleven years, and it is the one habit of his I never tried to correct. At 6:50 I lifted him down from the back seat, sixty-four pounds, and put him in the back yard through the side gate. Jo had told me where she wanted a dog. A gate does the work of a railing.
 

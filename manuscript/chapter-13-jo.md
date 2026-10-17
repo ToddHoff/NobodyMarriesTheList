@@ -88,6 +88,8 @@ She said it the way I'd say every kitchen has a junk drawer. At my level I sign 
 
 “She thought they were presents.”
 
+Back then Dawn sent me one of those wives, out of a four-bedroom in Hillsborough. She packed her bracelets in a shoebox herself and wouldn't let the crew carry it to her car.
+
 I had bought a cushion because of one of those messages. I had read another one to Vili at a red light. I had turned my phone face down on my counter every night for a month, like I was sixteen. If Cal Brennan kept a spreadsheet, I'd been on it since May.
 
 “How did you tell which ones they were?” I said. “Before.”

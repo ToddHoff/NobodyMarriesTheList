@@ -2,7 +2,7 @@
 
 **Cal**
 
-At 1:22 on Saturday a black car was parked at Jo Silveira's curb. I had not sent it.
+At 1:22 on Saturday afternoon a black car was parked at Jo Silveira's curb. I had not sent it.
 
 I had planned the day myself. On Friday night I wrote it on one of my own cards, in my own handwriting, which I had never done: *1:30 Jo. 2:45 Summit Road, wine. 5:00 Los Gatos, walk.* It took me forty minutes. I was proud of it. Then I told Remy that I was planning Saturday myself and it was to book nothing.
 
@@ -184,7 +184,7 @@ A rental truck was trying to back through the gate with a load of tables. Jo sto
 
 He took the sign.
 
-I had my phone out before I knew I had taken it out. I put it back. Since 2009 Janice had made every reservation I had. Remy had made the rest. It was 2:41 on a Saturday. I was standing on Summit Road with a card in my pocket that said *wine*.
+I had my phone out before I knew I had taken it out. I put it back. Since 2009 Janice had made every reservation I had. Remy had made the rest. It was 2:41 on a Saturday afternoon. I was standing on Summit Road with a card in my pocket that said *wine*.
 
 Jo held out her hand. I gave her Friday's card. She read it.
 
@@ -209,6 +209,10 @@ The store was across the road. She knew it. She had moved four houses off Summit
 “I asked his daughter. She said, ‘In case.’”
 
 She had said more crossing that road than in four hours at my mother's house. I would have listened to a fifth garage. I had asked what the paint was for so that she would not stop.
+
+The store was a grocery and a general store under one roof. Jo said the first one had come down in the earthquake in 1989. They built this one after. She said it the way she gives the age of a house.
+
+I had not been inside a grocery store since Abby was small. Rita buys my food. Jo went down the aisle ahead of me without a basket and read every shelf she passed. I walked behind her. Her hair had come forward over one shoulder in the truck. I could see the back of her neck where the collar stood away from it. I wanted to put my mouth there. Two men at the register looked at her when she went past. Then they looked at me. I would have looked too.
 
 The tri tip sandwiches were already made, in the case by the register. There was nothing to order. She took two, with two root beers out of the cooler.
 
@@ -362,7 +366,11 @@ I could feel a pulse where our hands met. I could not tell whose it was. I did n
 
 I wanted to stop and kiss her. I did not ask. I did not want to give her a reason to let go of my hand.
 
+North of the lake the trail ran between the creek and a string of ponds. Jo said the water district fills them so the water soaks back into the ground. The sun was low over the mountains to the west. The ponds had the sky in them, gold going orange. There were ducks out on the water. People went by the other way with their dogs. Jo watched every one of them.
+
 Farther up the trail there was a fenced field with dogs in it, big ones on one side and small ones on the other. Jo stopped at the fence.
+
+The field was an acre of fake grass, greener than anything else in the valley in June, with a fountain set on a short post for the dogs. The big side had eleven dogs in it. I counted. Their owners stood in a loose ring in the middle with the leashes hung around their necks, talking to each other and not watching. The light came in flat across the grass. Every dog in the field was running at something. Their shadows went out long behind them.
 
 She keeps a truck door between herself and every dog she meets. On the mountain she had kept me between herself and the dog all afternoon. This fence ran the length of a field. She put her free hand on the wire. A gray dog came down the fence line at a dead run with a ball in its mouth. She laughed out loud.
 

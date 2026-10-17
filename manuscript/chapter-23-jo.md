@@ -14,6 +14,8 @@ My phone was in the glove box. It stays there till the boat's in.
 
 I took the exit and went out past the biotech buildings, dark except for their lobbies, to the end of the point. There were three cars in the marina lot. One had its front fender pushed in and no headlight on that side. I'd put that there on June 6. Cal had driven up from Woodside in the dark on one headlight.
 
+At that hour the bay was black. The lights of the East Bay were strung along the far side of it from Oakland down past Hayward. To the south the runways at SFO were lit white and blue. The tide was going out. I could smell the mud. In the marina the masts stood up out of the dark, rocking together in the wind.
+
 He was standing at the top of the gangway with his hands in his jacket pockets, looking down at the docks. He turned around when my door shut.
 
 “You said a quarter to five,” I said.
@@ -256,7 +258,7 @@ Kevin would be there. He brings Owen every year and stays for cake. My sister wo
 
 My father's house is the one I grew up in, up the hill in South San Francisco. His kitchen table has had the same oilcloth on it since Denise was in high school.
 
-Cal's car was at the curb at 5:22. My father had linguiça and chicken on the grill in the yard, and Cal stood next to him and held the platter and was told when. Denise came at a quarter to six with the sweet bread and the cake box and her earrings in. She looked at Cal at the grill with our father, and then at me.
+Cal's car was at the curb at 5:22 that evening. My father had linguiça and chicken on the grill in the yard, and Cal stood next to him and held the platter and was told when. Denise came at a quarter to six with the sweet bread and the cake box and her earrings in. She looked at Cal at the grill with our father, and then at me.
 
 “He's holding Dad's PLATTER,” she said, and went in with the cake.
 

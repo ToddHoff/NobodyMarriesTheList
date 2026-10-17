@@ -72,7 +72,7 @@ I had. On Monday I drove under forty-eight feet of that man and checked my hair 
 
 ***
 
-Cal Brennan was at the curb at 6:57 with three paper bags.
+Cal Brennan was at the curb at 6:57 on Saturday morning with three paper bags.
 
 His car was across the street, with the fender the way I had left it. Vili took the driveway in one pass, and he looked at me in his mirror while he did it.
 

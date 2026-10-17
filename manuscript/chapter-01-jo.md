@@ -20,7 +20,7 @@ Dawn had called on a Tuesday while I was signing a permission slip.
 
 I was also twenty minutes late.
 
-That was a recliner's fault. A widow in Daly City had kept one hand on a La-Z-Boy until ten past seven, and then the hotel valet looked at my truck and said a hundred and ten dollars. Oversized vehicle. I told him I'd be forty-five minutes. He said a hundred and ten. I put it in a yellow zone on Minna Street, where the curb said loading until six, and changed my shirt in the cab.
+That was a recliner's fault. A widow in Daly City had kept one hand on a La-Z-Boy until ten past seven that night, and then the hotel valet looked at my truck and said a hundred and ten dollars. Oversized vehicle. I told him I'd be forty-five minutes. He said a hundred and ten. I put it in a yellow zone on Minna Street, where the curb said loading until six, and changed my shirt in the cab.
 
 I keep a clean one behind the seat in a dry-cleaning bag. People will let you into their dead mother's house in a clean shirt. The boots I could do nothing about.
 

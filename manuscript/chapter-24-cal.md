@@ -28,7 +28,7 @@ I knew what they would be a count of. It was the times in eleven years that my o
 
 ***
 
-I parked on West Remington Drive at 6:31. Jo had said seven. I did not sit in the car.
+I parked on West Remington Drive at 6:31 on Tuesday evening. Jo had said seven. I did not sit in the car.
 
 In May I could not get past the kitchen floor in this house. I let myself in with my key, turned on my mother's oven and put the meat loaf in it to warm. The kitchen was nearly empty. The table was still there, and the coffee maker, because Jo says everybody needs the coffee maker till the end. The house had held the heat of the afternoon. The hall said seventy-nine. Pancake went to the slab and lay down on it with his legs out behind him.
 
@@ -138,7 +138,7 @@ I did not take either one.
 
 “Yes.”
 
-She looked at the closet, and at the hall floor. She had been on her feet since before six. It was 7:48.
+She looked at the closet, and at the hall floor. She had been on her feet since before six that morning. It was 7:48.
 
 “Okay,” she said, and sat down on the slab with her back against the bathroom door frame and the clipboard on her knees.
 

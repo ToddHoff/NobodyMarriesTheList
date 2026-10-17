@@ -2,9 +2,9 @@
 
 **Cal**
 
-On Wednesday at 7:50 I took Jo Silveira's name off Janice's list.
+On Wednesday morning at 7:50 I took Jo Silveira's name off Janice's list.
 
-It is a list in Remy of the people Janice writes to for me. There were forty-one names on it that morning. Hers had gone on May 16. I took it off, and the list said forty.
+It is a list in Remy of the people Janice writes to for me. There were forty-one names on it. Hers had gone on May 16. I took it off, and the list said forty.
 
 I had decided at 5:10, on the walk, while Pancake was at the fence post he inspects every morning. The night before, in the back of her truck, she had told me that anything I had to say before Saturday I was to type myself. I could not do that while her name was on a list for somebody else to write to.
 
@@ -84,7 +84,7 @@ The shirts took fifty-two minutes. On Friday I wore number one. She did not answ
 
 ***
 
-On Saturday the car said fifty-four degrees on Remington at 6:41, and there was no sun. I parked across the street, where I have parked since June 6. I had on number two. The contract was with Silveira Moving, and it did not say which Silveira had to come.
+On Saturday morning the car said fifty-four degrees on Remington at 6:41, and there was no sun. I parked across the street, where I have parked since June 6. I had on number two. The contract was with Silveira Moving, and it did not say which Silveira had to come.
 
 I had read it again on Friday night. If she sent Vili with the truck and stayed in San Bruno, the contract was kept. I had decided that if she did, I would say nothing about it to Vili. I would be on the same curb at seven the Saturday after.
 
@@ -274,7 +274,7 @@ I had stopped at the end of the front walk, because on Tuesday she had told me n
 
 ***
 
-At 7:30 I did not call Janice. It was the first Saturday since May 16 that I had not. I put the form on my kitchen counter and read it again, and I sat with Pancake until it was dark.
+At 7:30 that night I did not call Janice. It was the first Saturday since May 16 that I had not. I put the form on my kitchen counter and read it again, and I sat with Pancake until it was dark.
 
 There was nothing to call her for. Janice did not write to Jo now. I did not want the form in anybody's notes, Janice's included.
 

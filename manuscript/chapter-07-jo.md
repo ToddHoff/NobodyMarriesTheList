@@ -114,7 +114,7 @@ The trouble was that I had done it. Six years ago on 280, in the rain, I pulled 
 
 ***
 
-Cal Brennan was at the curb at 6:58 with three paper bags.
+Cal Brennan was at the curb at 6:58 that morning with three paper bags.
 
 The boots had a week on them. The gray shirt was one of the other thirty-nine. He was standing under the trees on West Remington Drive with three lunches, looking down the street for my truck, and my stomach went over the hill again before I had the brake set.
 

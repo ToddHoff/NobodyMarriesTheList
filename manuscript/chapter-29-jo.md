@@ -8,21 +8,25 @@ He'd texted me from his father's at 9:40 the night before.
 
 *Perseids tomorrow morning. No moon. Look northeast when you get up. Don't look at your phone for 20 minutes so your eyes get used to the dark.*
 
-I'd read that on my phone.
-
 Northeast from my driveway is the yard, three miles off, under the hill with the sign on it. For once there was no fog. There was nothing on the ridge behind the house and nothing on the hill. The sky was black all the way down to the streetlights. It was fifty-seven degrees. I had Cal's fleece on over my T-shirt, the one I'd never given back, zipped to my chin with the sleeves down past my knuckles. The motion light next door came on every time I moved my feet.
 
-I gave it four minutes. A plane came in low over the bay with its lights going, and I watched it all the way down behind the houses, which wasn't what he meant. I gave it four more, because at seven he'd want to know how long I'd looked.
+I gave it four minutes. A plane came in low over the bay with its lights going, and I watched it all the way down behind the houses, which wasn't what he meant. I gave it four more, because at seven he'd want to know how long I'd looked. Then I held my phone up to take him a picture of the sky, so he'd have proof.
 
-Then one went.
+One went right through it.
 
 It came out of nothing over the yard and went the whole way across, over my roof toward the ridge, one long white stroke, faster than anything coming into SFO. It was a box cutter going down the tape on a box. It didn't blink, and it didn't make a sound. At the very end it went green, for about as long as it takes to say green, and then the sky closed up behind it.
 
 “There,” I said out loud, to nobody, in my socks.
 
-I texted him. *Saw one.* He'd be asleep till seven.
+On the screen it was a long white line going up from the hill with the sign on it, and the top of it was green. I sent it to Owen. *Saw one.* He'd be asleep till seven.
 
-I stood out there another minute in case it did it again. Then I went in.
+Cal would be up. He walks his dog down to his gate at five.
+
+I opened his thread. The last thing in it was his, from Thursday night. *Your father and I folded forty-eight pads.* I hadn't answered it. I put the picture under it. My thumb sat over the arrow until the screen went dark.
+
+I stood out there another minute in case it did it again. Then I went in. I'd send him the picture after I paid my bank.
+
+***
 
 Wednesday mornings before the yard I do my own bills, at my counter, with the light over the stove on and nothing else. The statement for September hadn't come. It comes by the eleventh, every month since 2023, and Tuesday's mail had been a pizza coupon and the calendar from Kevin's school, which he sends me every August. I don't mail a check late on account of the mail. I turned the old statement face up for the loan number. It had been face down by the coffee maker since Sunday the second, with *skip Aug* on it in my pen, for the check I'd mail in August, under the NOV 2036 I'd circled twice.
 
@@ -42,27 +46,57 @@ I looked at it for a while. Then I scrolled down to the payments.
 
 Under that, in smaller type, it said *Excess funds of $4,483.45 will be refunded to the borrower.*
 
-The refrigerator came on behind me. In a house after the last load's gone you can hear a refrigerator from two rooms away, with nothing left to soak it up. It was the only sound in the house.
+The refrigerator came on behind me. It was the only sound in the house.
 
-For about a minute I didn't think anything. My shoulders came down. I hadn't known they were up.
+I logged out and logged back in. It still said zero.
 
-I was seven the first time I felt that. My father had the one truck then. He took me along on a Saturday in the spring to a one-story in Millbrae with green carpet. All morning a man sat in a car at the curb with the engine off. Nobody went out to him. When the crew carried out the last of it, my father let me walk through by myself while he did the straps. Every room was empty. The carpet was brighter in squares where the furniture had stood, with dents in it from the legs. My sneakers were the loudest thing in the house. I lay down on my back in the front room, inside the square where the couch had been, with my arms out, and listened to it. Nothing in it needed moving. I could hear my own breathing. For as long as I lay there, nobody needed one thing from me. Then my father leaned on the horn out at the curb. When I came out, the car was gone.
+When I bring the heavy end of a dresser down a flight of stairs and it touches the floor, my back lets go a second after my hands do. I was sitting at my own counter with my phone, and my back let go anyway.
 
-I didn't find out whose house it was till I was sixteen, riding home with my father on 280 from a job like it. It was a bank job. The wife had died the year before, five weeks after their baby came. Her husband sat down in a chair and didn't get up. He quit going to work. His mother took the baby. The bank took the house and paid my father to empty it. He'd brought me along because it was a Saturday.
+I was seven the first time I felt that. My father had the one truck then. He took me along on a Saturday in the spring to a one-story in Millbrae with orange shag carpet and green drapes. All morning a man sat in a car at the curb with the engine off. Nobody went out to him but the son, who was about sixteen and carried his own boxes out to the trunk. My father put me on the kitchen floor with newspaper and the everyday glasses. The wife walked him through the house and put her hand on everything that was hers. She talked the whole time. She never looked at me.
 
-I've walked every house I've emptied since then, last, by myself. I've never told anybody why. A lot of them were houses where somebody leaned their whole weight on one thing and it went. I carry out what's left.
+“She's his hygienist,” she said. “She's twenty-six years old.”
 
-I watched my father sit down in a chair the winter I was eight. Owen was five weeks old the first time Kevin went quiet. The next Monday I was back on a truck. I don't lean on anything that can go.
+“Yes, ma'am,” my father said.
 
-Since May I'd been doing it anyway, an inch at a time. On my father's boat I'd put my shoulder against his arm and kept it there from Alcatraz to the Bay Bridge.
+“He told me I didn't need to work. Fifteen years I didn't need to work.” She put her hand on the hutch. “That's mine. That was my mother's.”
 
-A house I pay off myself can't go quiet on me. It was the one thing I'd let myself want. I was going to have it at fifty-five. Then I was going to lie down.
+My father tore off a piece of tape, stuck it on the hutch and wrote on it.
 
-On Monday, while I was packing a kitchen in Burlingame, somebody had carried everything out of mine. I hadn't lifted a thing.
+“The apartments on El Camino want a pay stub. I haven't had a pay stub since Nixon. Every card in my purse has his name on it. He's got a place in Foster City on the water. He didn't even need a truck. He bought all new. He bought towels.”
+
+“Yes, ma'am.”
+
+“Scott's going with him. Scott says it's closer to school.”
+
+Through the window over the sink I could see the son putting another box in the trunk.
+
+When the crew carried out the last of it, my father let me walk through by myself while he did the straps. Every room was empty. The carpet was brighter in squares where the furniture had stood, with dents in it from the legs. My sneakers were the loudest thing in the house. I lay down on my back in the front room, inside the square where the couch had been, with my arms out, and listened to it. Nothing in it needed moving. I could hear my own breathing. For as long as I lay there, nobody needed one thing from me. Then my father leaned on the horn out at the curb. When I came out, the car was gone.
+
+We took her things to her sister's in Daly City that afternoon. The back bedroom held the bed and one dresser. The rest went under a tarp in the garage, with the boy's trophies on top. On the way home my father said, “What you hear in a house stays in the house.” He didn't say anything else till we were back at the yard.
+
+I've walked every house I've emptied since then, last, by myself.
+
+I did a ranch house in San Carlos in April. The wife sat on her own stairs with a mug while we did the dining room.
+
+“Nineteen years I kept his books,” she said. “He never put me on the payroll. Why would he? It was all ours.” She had the mug in both hands. “He's marrying the girl who answers his phone. The landlord wants pay stubs. I said, from when?”
+
+“Yes, ma'am,” I said.
+
+“My daughter's doing Christmas at his place. She says it has more room.”
+
+Half of it went to a one-bedroom by the freeway in Redwood City. The rest went into a storage unit in Belmont she'd pay for by the month, on a card she'd opened that week.
+
+My house has one name on the deed. I bought Kevin out in 2023 to get it that way.
+
+The tenth was Monday. On Monday I'd been in Burlingame all day, wrapping a client's everyday glasses. Somebody had paid off my house while I did it.
 
 I knew who.
 
-I'd found his piano on the lanai in July. It had come in by wire, with my loan number on it. From now on, every time I came in my own front door, I'd be walking into something he'd given me.
+The first night, over his shrimp, I'd told him whoever owns the thing is in the room when it gets decided. It's in my contract.
+
+On the lanai in July I'd known I could never pay him back for a house like that. Now I owed him five hundred and twenty-one thousand dollars.
+
+From now on, every time I came in my own front door, I'd be walking into something he'd given me.
 
 The bank's phones open at eight in the morning back east. That's five here. I called at a minute past and listened to the same twenty seconds of music for eight minutes.
 
@@ -196,7 +230,11 @@ I've found three or four of those over the years. Every one of them was in a dri
 
 “It was a copy,” Sharon said. “He kept the real one in his safe deposit box with the bank's stamp on it. I found it in June. He never told my mother.”
 
-“Green or blue?”
+“He did it himself,” I said. It was out before I could stop it.
+
+Sharon looked at me.
+
+“Green or blue?” I said.
 
 “Green.”
 
@@ -204,7 +242,7 @@ I wrote it on the sheet. I wrapped it myself, face in.
 
 At half past twelve my father brought the sixteen-footer back from the donation dock and backed it into the driveway in one pass. He got down sideways, both hands on the door, his good leg first. He stood a second with his hand on the mirror before he let go.
 
-I stood at the top of the garage stairs with a lamp in each hand and did the number. On the first of September I wasn't sending the bank three thousand nine hundred ninety-one dollars and eighty-one cents. I wasn't sending it on the first of any month, ever again. That was a driver in that cab till the part came for the white truck, and then some. It was my father off his knees by Friday.
+I stood at the top of the garage stairs with a lamp in each hand and did the number. On the first of September I wasn't sending the bank three thousand nine hundred ninety-one dollars and eighty-one cents. I wasn't sending it on the first of any month, ever again. That was enough to hire a driver for the sixteen-footer until the white truck was fixed, with some left over. My father could be out of that cab by Friday.
 
 Kevin's folks gave us the down payment in 2012. His mother said grace every Sunday for eleven years, and then she said something about the house. I paid them back with interest nobody asked for. This was five hundred and twenty-one thousand dollars.
 
@@ -220,7 +258,7 @@ At ten past three Vili had the last of the blue on the truck, and Sharon had her
 
 ***
 
-At five to four I parked on level two of his garage, nose out, where I'd parked twice before. I took the clipboard and my tape and got on his elevator with pad fuzz all down the front of my shirt.
+At five to four that afternoon I parked on level two of his garage, nose out, where I'd parked twice before. I took the clipboard and my tape and got on his elevator with pad fuzz all down the front of my shirt.
 
 His floor is sixty desks with nothing between them, and I had to walk the length of it. Every head came up. I knew most of them had seen the picture from Abby's party. Somebody by the stairs turned her phone over on her desk when I went by.
 
@@ -317,6 +355,8 @@ I'd never seen it. I'd struck eight of its lines in pencil on the back of his ca
 
 I didn't pick it up. I'd read line one before I knew what I was reading, and after that I couldn't stop.
 
+Seven. *Comfortable being looked after.* In April I'd made up a bed in a one-bedroom by the freeway in Redwood City.
+
 Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked me if I really needed to work this much. I'd said yes. On Friday at twelve past three he'd fixed it so I didn't.
 
 *I said I would fix it.* He'd said that to the water at Carmel, about his wife, with his ears red.
@@ -361,7 +401,13 @@ I turned around then. He had his hands at his sides. His ears were red.
 
 He took his time.
 
-“Yes,” he said.
+“Yes,” he said. “It was a gift. You do not ask.”
+
+“You said that about Mrs. Bautista.”
+
+“Yes.”
+
+“She thinks her husband sent her to Alaska.”
 
 In June, Dawn had told me to watch what a man does with a no. Last Thursday on my dock he'd had two of mine, one about a truck and one about a transmission. I'd watched what he did with them. He'd folded forty-eight pads with my father. The next afternoon he'd sent five hundred and twenty-one thousand dollars to my bank.
 

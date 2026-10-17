@@ -2,7 +2,7 @@
 
 **Cal**
 
-I have turned my phone face down on a table once in my life, and I can give you the time. It was 8:45 on a Thursday in May.
+I have turned my phone face down on a table once in my life, and I can give you the time. It was 8:45 on a Thursday night in May.
 
 I cannot give you the reason. I have looked for it.
 

@@ -146,7 +146,7 @@ I put on number thirty-nine and moved the card to its pocket. I left the watch o
 
 ***
 
-At 4:05 by the clock in my car I parked across the street from Jo's house. I was twenty-five minutes early.
+At 4:05 that afternoon, by the clock in my car, I parked across the street from Jo's house. I was twenty-five minutes early.
 
 A gray sedan was pulling away from her curb. A boy in the back seat had his face at the window. He saw my car and lifted his hand.
 
@@ -179,6 +179,10 @@ She did not say anything to that. She looked out her window at the hills the res
 ***
 
 X's house is on a street in Menlo Park where the oaks meet over the middle. I had been inside it four times. All four were in the front hall.
+
+By the clock in my car it was 4:56 in the afternoon. Under the oaks the light came down green. The trunks were older than any house on the block. The houses sat back behind hedges and old board fences. There was no sidewalk. Cars were parked up on the gravel shoulder for a block on both sides.
+
+Jo got out under the trees and stood looking up into them. In that light the green dress went nearly black. We walked up the shoulder toward X's door. Her arm touched mine every few steps. I did not move my arm. I wanted her to keep doing it.
 
 A girl opened the door with her phone already up. She was filming everyone who came in. She filmed the couple ahead of us for about a second each. She kept it on me for four. She had found the billboard.
 
@@ -300,7 +304,7 @@ I have squared every card I have ever put down. I did not know she did it.
 
 “Janice crosses her sevens,” Abby said.
 
-I had read that card at my counter at two o'clock. I had not read the date.
+I had read that card at my counter at two o'clock that afternoon. I had not read the date.
 
 “When did you know?” I said.
 

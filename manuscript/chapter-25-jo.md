@@ -76,7 +76,7 @@ I put the phone in my back pocket without turning it over.
 
 ***
 
-Denise had two coffees and two hundred and six reviews at ten past six on Wednesday.
+Denise had two coffees and two hundred and six reviews at ten past six on Wednesday morning.
 
 She was on the office steps in her good shoes with her phone out in front of her, the way you'd hold a dish somebody else cooked. The fog was down to the tops of the trucks. My father's pickup was parked by the fence. He doesn't come in on Wednesdays.
 
@@ -152,7 +152,7 @@ My phone buzzed on my hip with every new review, every couple of minutes. After 
 
 I worked till the den was four stacks and a swept floor. When the cabinets were empty I pulled each drawer all the way out and looked behind it, because once in Burlingame there was cash taped to the back of the bottom one. There was nothing. I put the drawers back. I like a room right before I tape the door, when it's down to what goes and what stays and nobody's arguing.
 
-At 3:41 the phone buzzed different. Kevin.
+At 3:41 that afternoon the phone buzzed different. Kevin.
 
 *Got him at 3:30. A mom at camp asked Owen if you're dating Cal Brennan. He told her Cal's his friend so he's allowed to ask him things. Then he told her about the volcano. I didn't say anything. I can keep him off his phone tonight if you want. Whatever works for you.*
 
@@ -166,7 +166,7 @@ I put the phone in my pocket and taped the den door.
 
 ***
 
-At 11:58 I was at my kitchen table with my glasses on and three hundred and twelve to go.
+At 11:58 that night I was at my kitchen table with my glasses on and three hundred and twelve to go.
 
 By then there were four hundred and three new ones. The office laptop was in front of me with Denise's password on a sticky note under it in her capitals. I'd made a sentence for the ones I couldn't place. *We don't have a record of moving you. If we did, call me at the yard. Jo Silveira, owner.* I'd typed it sixty-something times. The ones I could place I wrote to by name.
 
@@ -177,6 +177,8 @@ The trouble was the ones in between.
 I've moved a lot of mothers out of San Mateo. I could have moved this one. Except we stop at eleven. Every job, every day. You don't put a man who hasn't eaten since five under a dresser at two.
 
 So that one was nobody. The one under it said Burlingame and a piano and a woman named Carol. I'd moved a Carol in Burlingame with a piano, I was almost sure, in 2021. Or 2019. The one under that was a man who said I'd saved his marriage. I didn't remember his marriage.
+
+Further down a woman had written, *Jo moved me out of the house I raised three kids in and into a one-bedroom, and before she left she made up my bed.* That one I could place, March of 2022. She'd stood in the bedroom door holding her pillow. She didn't know which wall the bed went on. She said in thirty-one years she'd never picked one. I asked her which wall she wanted. She took the one under the window. I wrote to her by name.
 
 At midnight I got up and cleaned the knobs on my stove. All six. They didn't need it. I sat back down.
 
@@ -326,9 +328,9 @@ I watched the one headlight go down the street.
 
 ***
 
-The courier came at 12:50 on Thursday. I wasn't there. Denise signed for it.
+The courier came at 12:50 on Thursday afternoon. I wasn't there. Denise signed for it.
 
-I got back to the yard at 1:20 for the afternoon load. Denise was on the office steps with a white envelope in both hands. She'd held it up to the window. I could tell by her face.
+I got back to the yard at 1:20 for the next load. Denise was on the office steps with a white envelope in both hands. She'd held it up to the window. I could tell by her face.
 
 “From HIM,” she said. “A courier. In a little gray car, with a tablet for me to sign.”
 

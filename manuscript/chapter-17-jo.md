@@ -2,7 +2,7 @@
 
 **Jo**
 
-On Tuesday at four I walked an empty house in Redwood City by myself. I made it about a minute at a time without thinking about Cal Brennan.
+On Tuesday afternoon at four I walked an empty house in Redwood City by myself. I made it about a minute at a time without thinking about Cal Brennan.
 
 I do the last walk-through alone. The crew had taken the second truck back to the yard. The owners were in Sacramento with everything they owned. I open every door in a house before I give back the keys. Every closet, every cupboard, the oven, the dryer, the space under the stairs. Last year I found a wedding ring in a dryer in Millbrae. The woman cried on the phone for ten minutes.
 
@@ -37,6 +37,10 @@ I checked every message for a semicolon. There never was one. Most nights I wrot
 ***
 
 His house is at the end of a gravel drive in Woodside, under oaks. I parked the sixteen-footer on his gravel and looked at the house the way I look at any house. Three trucks, if they had anything. There was nothing on the front step. No shoes, no hose, no dog toy. Somebody picked up after a man who didn't leave anything out.
+
+His gate had been standing open at the bottom. Past it the drive climbed between split-rail fences. In the field across the road a horse stood in the shade. Somebody rakes this gravel. Under the oaks the air through my window was cooler than Redwood City's and smelled like dry grass and bay leaves.
+
+The house was long and low, gray wood and a lot of glass, set into the hill so you couldn't see all of it from one spot. I've moved a dozen houses in Woodside. Long and low means every box goes the length of it.
 
 I'd driven up his drive looking for the piano. A house that size always has one.
 
@@ -78,7 +82,7 @@ The last time we'd been in a room together, she'd booked an estimate for her own
 
 Janice already had a card on me, somewhere in his office. She looked at my bag once. I figured it was going on the card. My face was still hot from the driveway.
 
-“Your cards for the board meeting,” she said to Cal. “Eight o'clock. Eleven cards.”
+“Your cards for the board meeting,” she said to Cal. “Eight o'clock tomorrow. Eleven cards.”
 
 Rita came in behind us.
 

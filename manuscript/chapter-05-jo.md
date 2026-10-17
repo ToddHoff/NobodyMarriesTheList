@@ -234,7 +234,7 @@ I had told Dawn no eight days before. At the counter with the cereal I went back
 
 ***
 
-The phone went at 9:14.
+The phone went at 9:14 that night.
 
 I didn't know the number, but I knew whose it was before I opened it. My cell number was on the paperwork I had given him that morning.
 

@@ -2,7 +2,7 @@
 
 **Jo**
 
-At twenty past nine there was a taco truck in the parking lot with its window up and every light on, and it had come for one customer.
+At twenty past nine that night there was a taco truck in the parking lot with its window up and every light on, and it had come for one customer.
 
 He had asked me first. At the ninth course he'd had his phone in his hand, and he asked. I told him he had picked the place, so he owed me something to eat. I had been up since four-thirty. I had moved a dentist's office and eaten twelve courses that came to about a cup. I said all right.
 
@@ -234,7 +234,7 @@ It is forty-five minutes home at that hour. I took 17 to 85 to 280 with the wind
 
 At the last light before the freeway I could still feel where his hand had been on the side of my face. I put my own hand there, like a fool, and the man in the next car saw me do it.
 
-On Saturday I'd be in his mother's house at seven with a clipboard, saying green or blue, with Vili watching. I tried to work out how I'd keep my face shut for four hours. I didn't get anywhere.
+On Saturday morning I'd be in his mother's house at seven with a clipboard, saying green or blue, with Vili watching. I tried to work out how I'd keep my face shut for four hours. I didn't get anywhere.
 
 I had gone to that dinner to find the piano. I went back through the night for it, one room at a time.
 

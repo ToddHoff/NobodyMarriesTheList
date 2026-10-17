@@ -2,7 +2,7 @@
 
 **Cal**
 
-On Saturday at 5:52 I was on Jo Silveira's front step in San Bruno with nothing in my hands, because she had told me to bring nothing.
+On Saturday evening at 5:52 I was on Jo Silveira's front step in San Bruno with nothing in my hands, because she had told me to bring nothing.
 
 On Thursday I had written to ask what time and what I should bring. She wrote back *6. Nothing.* I read it four times looking for a second meaning. There was not one. I had not walked into anyone's house empty-handed since I was twenty-four.
 

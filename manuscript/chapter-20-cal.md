@@ -66,7 +66,7 @@ That was as close as she was going to come. I took it. I went to bed.
 
 ***
 
-On Saturday the car said seventy-one degrees on Remington at 6:52. I had parked across the street, where I have parked since June 6. I had on number thirty-eight. I had a gallon of water and a bowl for Pancake, and my lunch, which I had made at 5:40 with the butter out to the edge. I had decided in the car that I would not bring up Hawaii unless she did.
+On Saturday morning the car said seventy-one degrees on Remington at 6:52. I had parked across the street, where I have parked since June 6. I had on number thirty-eight. I had a gallon of water and a bowl for Pancake, and my lunch, which I had made at 5:40 with the butter out to the edge. I had decided in the car that I would not bring up Hawaii unless she did.
 
 Her truck turned onto Remington at 6:59. Vili was driving. He backed it in on one pass and got down. Jo came around the front with the clipboard already in her hand.
 
@@ -104,7 +104,7 @@ My mother's house is glass on three sides. It was built in 1960. Nobody ever put
 
 ***
 
-At 10:20 a white sedan pulled in behind my car. It had a dealer frame from Colma on the plate. A woman got out with three iced coffees in a cardboard tray. She had on earrings and lipstick and shoes that had never been near a ramp. She was taller than Jo by most of five inches. She was dressed for a different day than anyone else on the block.
+At 10:20 that morning a white sedan pulled in behind my car. It had a dealer frame from Colma on the plate. A woman got out with three iced coffees in a cardboard tray. She had on earrings and lipstick and shoes that had never been near a ramp. She was taller than Jo by most of five inches. She was dressed for a different day than anyone else on the block.
 
 I had heard her voice twice on the phone and once from a window.
 
@@ -281,6 +281,96 @@ It was true. Remy had a plan for what came after. I had not read it. What I had 
 She looked at me for some time. She has her sister's eyes. Hers move more.
 
 “Find out,” she said, and got in.
+
+***
+
+At 11:48 that morning I sat in my car across the street with the engine off and called Dawn Pruitt. She had called me twice since May. I had not called her. For eight years Janice had made my appointments with her.
+
+She picked up on the second ring. I heard a door close behind her, and the street noise went away.
+
+“Cal.”
+
+“Denise Silveira just asked me what happens after the house is empty,” I said. “I did not know. You are the one who closes things for me.”
+
+“I've done it seven times with you. The four before me I can't speak for.”
+
+“Then tell me the seven.”
+
+She poured. I waited for it.
+
+“What did they say?” I said. “When you closed their files.”
+
+“You want to know that?”
+
+“Yes.”
+
+“You've never asked.”
+
+“No.”
+
+She was quiet long enough that I looked at the screen to see whether the call had dropped. It had not. Across the street Vili came out of my mother's house with a lamp in each hand and looked at my car.
+
+“I call every one of them at the end,” Dawn said. “Them, not you. I ask how it was, and I write down what they say, the first thing, before they've thought about it. I have all seven in front of me.”
+
+She had pulled them before I asked. I have sat across tables from people like that since I was twenty-three. I raised money from some of them.
+
+“Read them to me,” I said.
+
+“The first one said generous. Then lovely. Busy. Generous. Very generous. Kind. The last one said generous, and then she said, he sends the most beautiful things.”
+
+I counted while she read. Three of them had said generous, and a fourth very generous. Not one of them had said anything I could not have put on a slide.
+
+“None of them were unkind,” I said.
+
+“None of them. They liked you. I've closed files where the woman needed a minute before she could talk. None of yours needed a minute.”
+
+“Is that good?”
+
+“Cal. You know what a woman means when the best thing she can tell me about a man after four months is that he was generous?”
+
+“No.”
+
+“She means she never met him. She met the packages.”
+
+The car was hot. I had left the windows up. Across the street Vili had put the lamps on the truck and gone back in, and the front door of my mother's house stood open on the atrium.
+
+I went down the seven. I could not see their faces. I could see the inn in Napa, and the boxes. Remy had chosen the boxes. I had approved them in about a second each. Each of the seven had written to thank me for them. I had approved the replies.
+
+“What do I do with that?” I said.
+
+“You don't have to do anything with it. You asked me what they said.” She poured. “Let me ask you one. What does Joanna do when you're wrong?”
+
+I did not have to look for it. I had it to the minute, from the first night.
+
+“She tells me in four words or fewer,” I said. “Then she hands me something to do. At the bar she told me my card was wrong. She corrected it in pencil. On the first Saturday I cut my thumb on the tape gun. She said let me see it. She put tape on it and gave me thirty-six more boxes to build. In June she told me butter is a barrier. In Hawaii I went gray in a zeppelin. She gave me her rag.”
+
+“And then?”
+
+“And then she stays in the room.”
+
+Dawn did not say anything for a while. I heard her set the cup down on something hard.
+
+“Seven women,” she said, “in eight years, and not one of them ever told me she'd seen you wrong.”
+
+My watch tapped against my wrist. I did not turn it over.
+
+I had been wrong in front of Jo nineteen times since May that I could name. She had never sent me a thank-you.
+
+“Two more Saturdays,” I said. “Then the house is empty. Denise asked me then what. I told her I did not know.”
+
+“Good answer.”
+
+“It is not an answer.”
+
+“It's the first true one you've given about a woman since I've known you.”
+
+“Why do you call them at the end?” I said. “The women. You said not me.”
+
+She took a while with that one.
+
+“Because nobody else does,” she said. “When it's over, everybody calls the man.”
+
+Then she was gone. It was 11:58. I sat in the car with the windows up until I could not breathe in there. Then I went back across the street.
 
 ***
 
