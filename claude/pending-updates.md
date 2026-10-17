@@ -1,6 +1,6 @@
 # Nobody Marries the List: Pending Updates
 
-Last updated: Friday, October 16, 2026, 5:25 PM PDT. Everything decided during Todd's read-through of October 16 that is already in the manuscript but not yet in the book plan, character sheet, style guide or handoff (held at his request until the read-through ends). Those four files are as of October 15, 11:36 PM.
+Last updated: Friday, October 16, 2026, 5:52 PM PDT. Applied: at Todd's "Apply any pending." (5:30 PM), everything below is now in the book plan, character sheet, style guide and handoff, in the files, the project, the four docs and his folder. Kept as the record of what was decided during Todd's read-through of October 16, while those four were held at his request.
 
 ## Chapter 28 read-through (Oct 16, morning) — filed to manuscript
 - 9:13 AM, ch 28, para 2: "Pancake inspects the same post every morning, at the bottom, for as long as it takes him." -> "Every morning Pancake inspects the bottom of the same post. He takes his time." (Todd: "Awkaward"; yes)
