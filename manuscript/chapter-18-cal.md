@@ -32,8 +32,6 @@ I had never seen her at her own door with nowhere to be. I wanted to kiss her ri
 
 Owen's shoes were inside the door, one of them on its side. The front room had a couch with a blanket folded over the arm and a television not much bigger than the screen in my car. She had vacuumed. The lines were still in the carpet. The hall closet door would not quite shut on whatever she had put in it in a hurry. I kept that to myself.
 
-Everything in that house had been put down by somebody who was coming back for it.
-
 She had cleaned for me. On Tuesday she had sat in her truck in my driveway working up her nerve. She had told me so to my face. I put the odds at better than even that she had stood at her front window through my second lap doing the same thing. I kept that to myself. I was not going to make her answer for Tuesday in her own front room.
 
 I followed her into the kitchen and stood in front of the drawer she wanted.
@@ -230,7 +228,11 @@ I read it right. I ran it, nineteen hundred a month extra at seven percent, from
 
 “Yes.”
 
-“Too bad.” She took the statement back. “I'll be fifty-five. Owen'll be nineteen. I'm going to have a party in the driveway. I'm not inviting the bank.”
+“Too bad.” She took the statement back. “I'll be fifty-five. Owen'll be nineteen. Party in the driveway.”
+
+“Who is invited?”
+
+“Not the bank.”
 
 It was ten years and four months from that table to her driveway. I wanted to be standing in it in November 2036. I did not say so. She had done the spreadsheet by herself. It was her party.
 

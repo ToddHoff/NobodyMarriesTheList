@@ -2,7 +2,7 @@
 
 **Jo**
 
-At eight o'clock on Sunday morning, in my crew shirt and my reading glasses and not much else, I was asked if I wanted to go see a volcano.
+On Sunday morning, in my crew shirt and my reading glasses and not much else, I was asked if I wanted to go see a volcano.
 
 He'd been at my kitchen table about a minute. He'd squared my chipped mug to the edge of it.
 
@@ -60,7 +60,7 @@ I looked at him for a while.
 
 “For Owen.”
 
-“It is for you,” he said. “I had it put on a ship on the twenty-ninth of June. Owen had already told me about the volcano. You were always going to be in it.”
+“It is for you,” he said. “I had it put on a ship on the twenty-ninth of June. Owen had already told me about the volcano.”
 
 I sat there in my crew shirt and waited for the piano.
 
@@ -104,7 +104,7 @@ I thought about Vili running both trucks in Burlingame, and Denise on the phone 
 
 ***
 
-He came back at five that afternoon, after Kevin's car had gone, and asked my son in my front room. Owen stood with his hands at his sides and heard all of it before he said anything.
+He came back that afternoon, after Kevin's car had gone, and asked my son in my front room. Owen stood with his hands at his sides and heard all of it before he said anything.
 
 “Is it erupting?”
 
@@ -122,7 +122,7 @@ He came back at five that afternoon, after Kevin's car had gone, and asked my so
 
 Cal said that was fair. Owen asked whether the zeppelin had a bathroom. It did. It had a window in it. Owen went to his room and shut the door. Through it I could hear a woman explaining lava. He'd found every video Dr. Helen Okamura ever made.
 
-At nine I could hear him in there saying one word over and over. It was mostly vowels.
+After bedtime I could hear him in there saying one word over and over. It was mostly vowels.
 
 I texted Kevin. He wrote back, *Whatever works for you.*
 
@@ -224,7 +224,11 @@ The refrigerator was full. Milk with a Thursday date. A papaya cut in half under
 
 I didn't have to ask what happened in April.
 
-“Nobody came to Maui that year,” Gil said. “Nobody came anywhere. Every house on this road let their people go. He kept all six of us. Full pay. Two years, for nobody.”
+“Nobody came anywhere that year,” Gil said.
+
+“And you?”
+
+“Six of us. He kept us on. Full pay.”
 
 “What'd he say about it?”
 
@@ -320,7 +324,7 @@ I didn't reach for a towel.
 
 ***
 
-At five that afternoon he drew a pufferfish nest in the wet sand.
+Late that afternoon he drew a pufferfish nest in the wet sand.
 
 He paced it first, heel to toe. Six and a half feet across. He drew the circle with a stick. Then he showed Cal how to make the ridges, from the edge in toward the middle, all the way around, like the spokes on a wheel.
 
@@ -348,7 +352,7 @@ It didn't come.
 
 “It's resting,” he said, and looked at Cal. Cal laughed out loud.
 
-We ate at the kitchen counter, sausage and eggs on sweet bread, because nobody wanted to sit at a table for twelve. Gil went home. By ten o'clock every good towel in that house had been wet. Most of them were on the floor of Owen's bathroom. I picked them up. I hung them. I didn't fold them.
+We ate at the kitchen counter, sausage and eggs on sweet bread, because nobody wanted to sit at a table for twelve. Gil went home. By bedtime every good towel in that house had been wet. Most of them were on the floor of Owen's bathroom. I picked them up. I hung them. I didn't fold them.
 
 Then we went out on the lawn in the dark, on beach towels, and looked up.
 
@@ -376,7 +380,7 @@ He came back out and lay down next to me on the towel.
 
 I laughed. He waited until I was done.
 
-“I was going to come in April of 2020,” he said. “After that I was going to come every April. I did not have a reason that was not work.” He was looking straight up. “Owen asked me if I take days off.”
+“I was going to come in April of 2020,” he said. “After that I was going to come every April.” He was looking straight up. “Owen asked me if I take days off.”
 
 “I heard.”
 
@@ -394,15 +398,15 @@ Owen was across the hall. I slept in my room and Cal slept in his.
 
 ***
 
-At 4:30 on Tuesday morning I made sandwiches in his kitchen. On the way in from the airport I'd had the car stop at a store in Kīhei. I paid with my own card. The food in his refrigerator was going to the pantry on Thursday. I wasn't taking it off them.
+Before it was light on Tuesday I made sandwiches in his kitchen. On the way in from the airport I'd had the car stop at a store in Kīhei. I paid with my own card. The food in his refrigerator was going to the pantry on Thursday. I wasn't taking it off them.
 
 I made twelve, plus one for Gil. Two pilots, Dr. Okamura, four men on the ground lines, the three of us, and two more, because there are always two more people than anybody tells you. Sausage and cheese on sweet bread, buttered out to the edge.
 
-Gil came in at five and watched me wrap them.
+Gil came in and watched me wrap them.
 
 “First time anybody's used it,” he said.
 
-We flew to the Big Island at six, forty minutes over water into the sunrise. Behind us the top of Haleakalā stood up out of the clouds, pink. Ahead of us the Big Island ran up from the water like a loading ramp, two mountains so wide and so slow I couldn't tell where they started, with their tops above the clouds and the first sun lying across them. The airship was waiting in a field outside Hilo, tied by its nose to a mast on the front of a truck. It was white. I paced it off without meaning to. Nine of my big trucks nose to tail, with some left over.
+We flew to the Big Island before sunup, forty minutes over water into the sunrise. Behind us the top of Haleakalā stood up out of the clouds, pink. Ahead of us the Big Island ran up from the water like a loading ramp, two mountains so wide and so slow I couldn't tell where they started, with their tops above the clouds and the first sun lying across them. The airship was waiting in a field outside Hilo, tied by its nose to a mast on the front of a truck. It was white. I paced it off without meaning to. Nine of my big trucks nose to tail, with some left over.
 
 In 2009 I watched one of these go over 101 every week from my cab. Five hundred dollars an hour. I'd looked it up so many times Denise asked if I was saving for it. I didn't say anything now. I stood there with a grocery bag of sandwiches until Owen pulled on my sleeve.
 
@@ -424,7 +428,7 @@ I handed out the sandwiches. The pilots looked at each other. The men on the gro
 
 Getting it here had taken a phone call to the governor. Cal had told me on the plane that he'd promised to build something in Hilo. I didn't ask what. It wasn't mine to ask.
 
-I'd known he could buy things. I hadn't known what it looked like when the whole world said yes. It looked like a zeppelin in a cow pasture at seven in the morning, and a scientist with forty-one volcanoes giving her Tuesday to a nine-year-old, and four men holding ropes so my son could go up.
+This was a zeppelin in a cow pasture at first light, and a scientist with forty-one volcanoes giving her Tuesday to a nine-year-old, and four men holding ropes so my son could go up.
 
 The airship never sat down. It hung on its engines a foot off the grass with a little set of stairs under the door. Every time two of us went up the stairs, the men on the ground took two bags of lead shot off, to keep it even. It was the cleanest load-in I've ever watched.
 
@@ -530,7 +534,7 @@ I stayed on the bench with him. He'd had the zeppelin put on a ship and sent acr
 
 ***
 
-We landed at eleven that morning. At two Dr. Okamura drove us up to the top in her own truck, which had a cracked windshield and a dashboard full of rocks. She took us out to a place on the rim with a rope across it and a ranger who knew her name. From there the crater lay out in front of us. The two hills were down at the far end of the floor, a couple of miles off. The north one was still spilling.
+We landed late that morning. After lunch Dr. Okamura drove us up to the top in her own truck, which had a cracked windshield and a dashboard full of rocks. She took us out to a place on the rim with a rope across it and a ranger who knew her name. From there the crater lay out in front of us. The two hills were down at the far end of the floor, a couple of miles off. The north one was still spilling.
 
 Every few minutes it did something I didn't have a word for. The red would rise up inside the top of it, and a roar would come up with it, louder and louder, like a truck with a hole in the muffler going up a grade. Then it would stop dead. The red would drop out of sight. Then it would come back up and spill a little more.
 
@@ -538,7 +542,7 @@ Every few minutes it did something I didn't have a word for. The red would rise 
 
 Owen sat on the ground at the rope with his knees up and watched every one.
 
-At five it was still clearing its throat. At six Dr. Okamura looked at her phone for a long time.
+Late in the afternoon it was still clearing its throat. Then Dr. Okamura looked at her phone for a long time.
 
 “The tilt is still going up,” she said. “It may be tomorrow afternoon.”
 
@@ -570,7 +574,7 @@ I'd turned it around on him myself, Saturday night in my bed, so neither of us c
 
 The sun went down behind the big mountain to the west. The cliffs went pink and then gray. Down the rim, people were coming out from the parking lot in jackets, a few at a time, and lining up along the rope. Half a moon was already up over the crater, very white. The red in the north vent got brighter as the sky got darker, and the steam over it lit up orange from underneath.
 
-At 7:40 the north vent cleared its throat. It didn't stop.
+Then the north vent cleared its throat. It didn't stop.
 
 The roar went up and kept going up. The red jumped up over the lip in big loose gobs, ten feet, thirty feet. Owen stood up. The gobs went fifty feet and came apart in the air and fell back burning. Then something came up under them from inside the hill, all at once. It went straight up.
 
@@ -616,7 +620,7 @@ I've never told him my rule about jobs. He had it anyway.
 
 I had my hand flat on my own chest. I didn't know when I'd put it there.
 
-I'd been doing sums for three days. The house, the plane, the zeppelin, a governor. What it cost and who'd be paying it back. Nobody had paid for this. Not Cal, not the governor. It wasn't on anybody's bill. It went up because the ground was full. It would have gone up if nobody was there to see it. Cal hadn't made a call. He'd sat on the ground in the cold.
+Cal hadn't made a call. He'd sat on the ground in the cold.
 
 I looked at him. He wasn't counting anything. He didn't ask how high. Cal wants the number on everything. His face was orange and it was wet. It was cold enough up there that it could have been the wind. I didn't ask.
 
@@ -626,7 +630,7 @@ Owen sat back down on the ground next to Cal. I sat down on his other side, on t
 
 “It counts,” Cal said.
 
-It went for three hours. We stayed for all of it. At 10:52 it quit, both vents at once, like a truck when you turn the key. It was so quiet I could hear Owen breathing.
+It went for three hours. We stayed for all of it. Then it quit, both vents at once, like a truck when you turn the key. It was so quiet I could hear Owen breathing.
 
 Then the people along the rope started to clap. They clapped for a long time. You clap for a volcano. I didn't know that.
 
@@ -634,15 +638,15 @@ Down on the floor the rivers were still running red. They would for hours. Over 
 
 Owen looked out at it with his hood up.
 
-“It did the whole week for that,” he said.
+“Fourteen hundred feet,” he said. “It's first.”
 
 ***
 
 We flew back to Maui after midnight. Owen slept the whole way. Cal carried him in again and found the right door on the first try.
 
-On Wednesday I woke up and the room was full of light. I looked at my watch. It was ten past seven.
+On Wednesday I woke up and the room was full of light. I looked at my watch. It was past seven.
 
-I've never done that. Not when Owen was a baby. Not on Christmas. I lay there for a while and let it be ten past seven.
+I've never done that. Not when Owen was a baby. Not on Christmas. I lay there for a while and let it be past seven.
 
 I took my coffee down to the beach. Gil was on the sand with his. Cal and Owen were out in the water up to their chests. Cal had been up since four. His body thought the dog was waiting.
 
@@ -674,7 +678,7 @@ Before we left I walked it one more time. I always walk a house at the end. Ther
 
 I went to strip the beds. Gil stopped me in the hall.
 
-“Leave it,” he said. “I've got something to do now.”
+“Leave it,” he said. “I'll do them.”
 
 ***
 

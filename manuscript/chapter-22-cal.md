@@ -332,13 +332,11 @@ Jo kept my hand and looked out at the lawn. On the lawn Stephanie was fixing the
 
 My throat had shut. I kept my face toward the lawn. My watch was on the counter in Woodside. If I had been wearing it, it would have been tapping.
 
-I have hired twenty-six account managers. The best one I ever had knew every client's birthday and the name of every client's dog. Her clients sent her flowers. None of them had seen her in a room in years. I built a product that does what she did, for forty million people.
-
-I had it do it for my daughter.
+I have hired twenty-six account managers. The best one I ever had knew every client's birthday and the name of every client's dog. Her clients sent her flowers. None of them had seen her in a room in years.
 
 Last night in my old room Jo had asked me whether I still wanted a baby. I asked myself a third time, at the end of a table in Stephanie's yard, with her hand in mine and my daughter on the lawn holding still for a picture.
 
-It was still no. I had wanted to be at our kitchen table in 2010, when Abby counted to ten and skipped six. A baby would not put me at that table.
+It was still no. I had wanted to be at our kitchen table in 2010, when Abby counted to ten and skipped six.
 
 The child I could still sit at a table with was on the lawn with Jo's tape on her pocket. She was leaving in twenty-three days.
 

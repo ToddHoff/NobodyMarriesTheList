@@ -18,7 +18,7 @@ He was holding still to ask it.
 
 “No,” I said.
 
-“It is your face, on a page that sells pictures of me.”
+“It is your face.”
 
 “It's a good picture.”
 
@@ -62,13 +62,13 @@ I didn't say any of that. It was his.
 
 “I will not touch anything of yours without asking you first.”
 
-He'd said that once already, in July, at his own sink, about money. He'd kept it. On Saturday he'd asked me about air.
+He'd said that once already, in July, at his own sink, about money. On Saturday he'd asked me about air.
 
 His hand came across the slab and found mine without looking. His fingers were cold. I held on to them.
 
 The picture was still up, with the two words under it. His hand stayed tight on mine.
 
-At eleven I sat up.
+After a while I sat up.
 
 “I've got Millbrae at seven,” I said.
 
@@ -76,7 +76,7 @@ I put the phone in my back pocket without turning it over.
 
 ***
 
-Denise had two coffees and two hundred and six reviews at ten past six on Wednesday morning.
+Denise had two coffees and two hundred and six reviews on Wednesday morning, before the first truck went out.
 
 She was on the office steps in her good shoes with her phone out in front of her, the way you'd hold a dish somebody else cooked. The fog was down to the tops of the trucks. My father's pickup was parked by the fence. He doesn't come in on Wednesdays.
 
@@ -110,7 +110,7 @@ Burlingame was a four-bedroom. On the sixteen-footer that's three loads. Somebod
 
 I should have walked over there and told him to go home. His knees had done the gangway on Monday. He'd come in at five-thirty so I wouldn't have to ask him. By the time I got there he had the keys. I drank my coffee and let him sit there.
 
-My phone went at 6:21. Denise saw the name before I did. Her eyebrows went up into her hair.
+My phone went before the first truck was out. Denise saw the name before I did. Her eyebrows went up into her hair.
 
 “Good morning,” Cal said. “Remy can report the reviews that were not written by customers. Most of them would be gone by tomorrow. Do you want that?”
 
@@ -152,7 +152,7 @@ My phone buzzed on my hip with every new review, every couple of minutes. After 
 
 I worked till the den was four stacks and a swept floor. When the cabinets were empty I pulled each drawer all the way out and looked behind it, because once in Burlingame there was cash taped to the back of the bottom one. There was nothing. I put the drawers back. I like a room right before I tape the door, when it's down to what goes and what stays and nobody's arguing.
 
-At 3:41 that afternoon the phone buzzed different. Kevin.
+That afternoon the phone buzzed different. Kevin.
 
 *Got him at 3:30. A mom at camp asked Owen if you're dating Cal Brennan. He told her Cal's his friend so he's allowed to ask him things. Then he told her about the volcano. I didn't say anything. I can keep him off his phone tonight if you want. Whatever works for you.*
 
@@ -166,7 +166,7 @@ I put the phone in my pocket and taped the den door.
 
 ***
 
-At 11:58 that night I was at my kitchen table with my glasses on and three hundred and twelve to go.
+That night I was at my kitchen table with my glasses on and three hundred and twelve to go.
 
 By then there were four hundred and three new ones. The office laptop was in front of me with Denise's password on a sticky note under it in her capitals. I'd made a sentence for the ones I couldn't place. *We don't have a record of moving you. If we did, call me at the yard. Jo Silveira, owner.* I'd typed it sixty-something times. The ones I could place I wrote to by name.
 
@@ -180,9 +180,9 @@ So that one was nobody. The one under it said Burlingame and a piano and a woman
 
 Further down a woman had written, *Jo moved me out of the house I raised three kids in and into a one-bedroom, and before she left she made up my bed.* That one I could place, March of 2022. She'd stood in the bedroom door holding her pillow. She didn't know which wall the bed went on. She said in thirty-one years she'd never picked one. I asked her which wall she wanted. She took the one under the window. I wrote to her by name.
 
-At midnight I got up and cleaned the knobs on my stove. All six. They didn't need it. I sat back down.
+Around midnight I got up and cleaned the knobs on my stove. All six. They didn't need it. I sat back down.
 
-My phone lit at 12:04.
+My phone lit.
 
 *Are you awake?*
 
@@ -238,9 +238,9 @@ He was going to make me say the whole thing.
 
 I put the phone down on the table.
 
-I'd asked him for something. I hadn't sent him a bill for it. In May I'd billed him two lines for a dinner I wanted. On Monday in my father's driveway Kevin had told me that in eleven years I'd asked him for one thing. Cal had heard it across the roof of the car. I'd heard it myself every day since, at red lights, in a dead man's den. Tonight I'd said can you, at midnight, at my own table, to a man with eleven billion dollars. I'd asked him to read. I sat there and waited for it to cost me something. My face was hot.
+Tonight I'd said can you, at midnight, at my own table, to a man with eleven billion dollars. I'd asked him to read. I sat there and waited for it to cost me something. My face was hot.
 
-One headlight came up my street at 12:31.
+Half an hour later one headlight came up my street.
 
 I watched him from the front window. He parked behind my pickup, went around to the back door of his car and lifted the dog down off the seat, sixty-four pounds, the way you'd lift a box you've been told is glass. The dog came up my walk and over my front step on his own.
 
@@ -272,7 +272,7 @@ He had my estimate pad next to him. When he hit a person, he wrote the name on i
 
 I watched him more than I watched my phone. He reads with his whole face still and his mouth a little open. He'd shaved at some point today and missed a spot under his jaw on the left. His forearms were on my table. I wanted my hands on them. I wanted to take the glasses off and go around the table and sit in his lap in my own kitchen at one in the morning with three hundred reviews open. I typed my sentence instead, and signed it, and typed it again.
 
-At 1:52 he stopped and didn't say anything.
+Around two he stopped and didn't say anything.
 
 “What,” I said.
 
@@ -292,7 +292,7 @@ I didn't say anything for a while. Cal left the laptop facing me and waited.
 
 I wrote Rowena back. It took me longer than any of the others.
 
-At 2:20 he stopped on another one and turned it to me without a word.
+A while later he stopped on another one and turned it to me without a word.
 
 *Booked for 8. Showed up at 10:40. Nobody called. Everything got there fine. One star for the morning I took off work for nothing. Saw this company in the news and remembered.*
 
@@ -306,7 +306,7 @@ I answered Gary Roth before Cal could go on. *You're right. I put two jobs on th
 
 Cal read it upside down on my phone and went back to the laptop.
 
-In the three hundred and twelve there were nine people. He finished at 2:41. The pad had nine names on it in his capitals.
+In the three hundred and twelve there were nine people. He finished a little before three. The pad had nine names on it in his capitals.
 
 He stood up. The dog came out from under the table and leaned on his leg.
 
@@ -328,9 +328,9 @@ I watched the one headlight go down the street.
 
 ***
 
-The courier came at 12:50 on Thursday afternoon. I wasn't there. Denise signed for it.
+The courier came on Thursday while I was out on the first load. Denise signed for it.
 
-I got back to the yard at 1:20 for the next load. Denise was on the office steps with a white envelope in both hands. She'd held it up to the window. I could tell by her face.
+I got back to the yard for the next load. Denise was on the office steps with a white envelope in both hands. She'd held it up to the window. I could tell by her face.
 
 “From HIM,” she said. “A courier. In a little gray car, with a tablet for me to sign.”
 
@@ -353,8 +353,6 @@ On page five it said the Recipient would see to it that her employees, agents an
 Family members. My father, out there in the sixteen-footer. Denise on the steps. My son, at day camp, who'd told somebody's mother at pickup that Cal was his friend.
 
 Nothing in it asked a thing of him.
-
-I'd sat at my own table at midnight waiting for asking him to cost me something. Here it was, fourteen pages, by courier, with a tablet to sign for it.
 
 At the bottom of every page, in small gray type, it said the same thing.
 

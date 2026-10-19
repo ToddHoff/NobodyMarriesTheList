@@ -2,7 +2,7 @@
 
 **Jo**
 
-At 4:38 on Monday morning I drove under Cal's face with my headlights on.
+On Monday morning, before it was light, I drove under Cal's face with my headlights on.
 
 The billboard is a quarter mile before the Oyster Point exit. They keep it lit all night. Forty-eight feet of gray shirt and CALL YOUR MOTHER, and nobody on 101 to read it but me and a bread truck.
 
@@ -50,7 +50,7 @@ I looked at his feet. Boat shoes, brown leather and white soles, without a mark 
 
 He looked down at them for a while.
 
-My father's pickup came into the lot at 4:58. He's early for everything. He parked next to Cal's car and sat for a minute with the engine off, looking at the fender. He'd have heard about the claim. I never told him I was looking at Cal in my mirror when I backed into it.
+My father's pickup came into the lot before five. He's early for everything. He parked next to Cal's car and sat for a minute with the engine off, looking at the fender. He'd have heard about the claim. I never told him I was looking at Cal in my mirror when I backed into it.
 
 Then he got out, with his cap on and the cooler in one hand and the tide book in a bread bag in the other. He came across the lot slow, the way he walks in the mornings now.
 
@@ -74,7 +74,7 @@ My father's list has one line on it. Can he carry.
 
 Cal held the cooler in both hands and waited to be told where it went.
 
-The tide was nearly all the way out. Low at Oyster Point was 6:12, a minus tide. The gangway went down to the docks as steep as a ramp off the back of a truck.
+The tide was nearly all the way out. Low at Oyster Point was a minus tide, right around sunup. The gangway went down to the docks as steep as a ramp off the back of a truck.
 
 My father went down it backward with a hand on each rail. I went down below him, backward too, one step under his feet.
 
@@ -92,7 +92,7 @@ Getting into the boat took my father a while. Cal and I looked at the water whil
 
 “I can swim,” Cal said. “I cannot float. I tested it for an hour on Wednesday in Maui.”
 
-I hadn't known that. On Wednesday I'd slept till ten past seven. He'd been out in the Pacific the whole time, trying to lie on top of it.
+I hadn't known that. On Wednesday I'd slept till after seven. He'd been out in the Pacific the whole time, trying to lie on top of it.
 
 I laughed. My father didn't. He held the life jacket out until Cal put it on. Then he reached up and pulled the strap at the waist tighter himself.
 
@@ -122,7 +122,7 @@ Cal looked at the sail for a long time. Then he took seven clips off and did the
 
 My father went back to the tiller and ran the blower four minutes before he started the engine. It's a gas engine as old as the boat. He hasn't skipped the four minutes in thirty-two years. Cal stood in the cockpit and watched him. I could see Cal's lips going. He was counting.
 
-At 5:31 we backed out of the slip with the running lights on.
+We backed out of the slip in the dark with the running lights on.
 
 Outside the breakwater the wind came over the hills out of the west at fourteen knots. It was cold. My father put the bow into it. Cal went to the mast and hauled the main up, hand over hand, while my father told him when to stop.
 
@@ -142,13 +142,13 @@ I dug out the yellow jacket that's lived in there since the nineties and gave it
 
 His teeth were going. He kept his mouth shut so we wouldn't hear them. Above the life jacket his wet collar was stuck to his neck. It was my mother's birthday, with my father four feet away. I looked anyway.
 
-The sun came up at ten after six somewhere behind the overcast. We never saw it. The gray over us got lighter. The water went from black to the gray of his mother's slab. Behind us the first planes were going up off SFO, one every couple of minutes. We went north past Sierra Point and Candlestick and Hunters Point.
+The sun came up somewhere behind the overcast. We never saw it. The gray over us got lighter. The water went from black to the gray of his mother's slab. Behind us the first planes were going up off SFO, one every couple of minutes. We went north past Sierra Point and Candlestick and Hunters Point.
 
 I had the jib sheets. On this boat I'm crew. My father calls it, and I pull when he says.
 
 He steered and gave Cal the names of things. Port. Starboard. Sheet. Halyard. Cal said every one back once, like a new man on my crew saying back an address. Every question he asked my father was about the boat.
 
-We went under the Bay Bridge at seven. I take loads to Oakland on its lower deck. The bottom of it is gray steel crossed every which way, a long way up, with rust in the seams. Then we were out the other side and the city was right there, lights on here and there in the towers, close enough that I could read the clock on the Ferry Building. It said four minutes after seven.
+We went under the Bay Bridge. I take loads to Oakland on its lower deck. The bottom of it is gray steel crossed every which way, a long way up, with rust in the seams. Then we were out the other side and the city was right there, lights on here and there in the towers, close enough that I could read the clock on the Ferry Building. It said four minutes after seven.
 
 Cal had turned around on the high side to look at the city. The yellow sleeves had ridden up. His wrists were red with cold. I wanted to put my hands around them. I had the jib sheets.
 
@@ -158,7 +158,7 @@ Past Alcatraz there was nothing in front of us but the bridge. It gets bigger th
 
 From the water it doesn't sit on anything. I move weight for a living. That's what gets me every year. Two towers stand up out of the bay seven hundred and forty-six feet, and the road hangs between them off two cables, four thousand two hundred feet of it. I looked that up the first year, when I was twelve. Under the overcast the orange was the only color anywhere. The water was gray, the sky was gray, the Marin hills were gray-brown, and the bridge looked lit from inside, like running lights on a truck at five in the morning.
 
-Slack water at the Golden Gate was 7:44. My father had us under the middle of the bridge at ten to eight, with the main up and the engine turning slow. He's done it that way every year since 1994.
+Slack water at the Golden Gate was 7:44. My father had us under the middle of the bridge right on it, with the main up and the engine turning slow. He's done it that way every year since 1994.
 
 From underneath, it's orange steel two hundred and twenty feet over your head. At the middle the big cables come down almost to the road on both sides and then go back up to the towers. You can hear the Monday traffic going across into the city, the tires knocking over the joints.
 
@@ -172,7 +172,7 @@ I kept my hand on the winch and watched the water go by. Every year until 2019 m
 
 The year she died he didn't say ten words to anybody from the funeral in February to her birthday. He came to the yard at five-thirty, drove whatever was on the calendar and went home and sat in this boat at the dock till dark. Denise talked for both of them. I ran three trucks and didn't ask him for anything. I'd seen him go quiet once before, the winter I was eight, in a chair in our front room. That time he didn't get up till spring.
 
-On her birthday I was on this dock at a quarter to five without being asked, and I took the sheets like always. Under the bridge he took his cap off for the first time. Coming back in under it, he said she'd have been sick right there. It was the first thing he'd said to me since February.
+On her birthday I was on this dock before five without being asked, and I took the sheets like always. Under the bridge he took his cap off for the first time. Coming back in under it, he said she'd have been sick right there. It was the first thing he'd said to me since February.
 
 All morning I'd been afraid of what a man who didn't know any of that would do right here. Say something nice. Ask me.
 
@@ -258,11 +258,11 @@ Kevin would be there. He brings Owen every year and stays for cake. My sister wo
 
 My father's house is the one I grew up in, up the hill in South San Francisco. His kitchen table has had the same oilcloth on it since Denise was in high school.
 
-Cal's car was at the curb at 5:22 that evening. My father had linguiça and chicken on the grill in the yard, and Cal stood next to him and held the platter and was told when. Denise came at a quarter to six with the sweet bread and the cake box and her earrings in. She looked at Cal at the grill with our father, and then at me.
+Cal's car was at the curb that evening long before six. My father had linguiça and chicken on the grill in the yard, and Cal stood next to him and held the platter and was told when. Denise came next with the sweet bread and the cake box and her earrings in. She looked at Cal at the grill with our father, and then at me.
 
 “He's holding Dad's PLATTER,” she said, and went in with the cake.
 
-Kevin's gray sedan pulled up at ten after six. He got out and looked up the street and down it before he shut his door. Owen came out of the back seat with his phone in his hand and went straight to Cal.
+Kevin's gray sedan pulled up last. He got out and looked up the street and down it before he shut his door. Owen came out of the back seat with his phone in his hand and went straight to Cal.
 
 “Did you go under the bridge?”
 
@@ -293,8 +293,6 @@ Cal held on a second before he let go. He'd had that handshake before. My son ga
 “I did not do anything,” Cal said. “I sat.”
 
 “Yeah,” Kevin said.
-
-Kevin had just thanked another man for sitting down next to his son. I couldn't have done that.
 
 We ate at the kitchen table, the six of us, with the platter in the middle and the window open to the yard.
 
@@ -352,7 +350,7 @@ Nobody said anything.
 
 My father tore a piece off the sweet bread. Since 2019 the ladies at church have asked him that about once a month. He says no before they're done asking. He passed Denise the bread.
 
-At seven Denise took the cake out of the box. It comes from the same bakery every year, white, with blue roses on the corners. HAPPY BIRTHDAY CONNIE, in blue. One candle.
+After supper Denise took the cake out of the box. It comes from the same bakery every year, white, with blue roses on the corners. HAPPY BIRTHDAY CONNIE, in blue. One candle.
 
 Owen blew it out. He's done it every year since he was two.
 
@@ -372,7 +370,7 @@ Under the table Cal's foot found the side of my boot and stayed there.
 
 He'd seen the cap, and me in the corner by the hatch, and her name in blue frosting. He didn't ask me anything about her. I wanted to kiss him at my father's table, in front of my ex-husband and my son. I ate my cake.
 
-My phone went at 7:20. It was Vili. He's never called me on her birthday.
+My phone went while we were still on the cake. It was Vili. He's never called me on her birthday.
 
 I took it out the back door into the yard.
 
@@ -428,7 +426,7 @@ I sat down. Across the table Kevin was watching me. He'd put his fork down.
 
 ***
 
-At eight Kevin said Owen had camp in the morning. We walked them out to the car.
+When the cake was gone Kevin said Owen had camp in the morning. We walked them out to the car.
 
 Owen got in the back and put his window down to show Cal *Volcanoes I Have Met*. It has one volcano in it.
 

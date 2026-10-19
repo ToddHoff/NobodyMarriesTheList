@@ -22,7 +22,7 @@ She was at her desk with her glasses pushed up into her hair. She took them down
 
 “Then keep them short,” Janice said. “She already knows what you sound like.”
 
-I knew what I sounded like. On Tuesday, in the sixteen-footer, Jo had read all thirty-two out loud. I had named the writer of every one. Mine were the nine with a number or a time in them. Janice had written the other twenty-three. The one about the dog was hers. When Jo read that one, her voice went on the last word.
+I knew what I sounded like. The one about the dog was hers. When Jo read that one, her voice went on the last word.
 
 Janice had stopped on Tuesday, when Jo told her she already had her sister's name. I had been standing there. I had heard it as a correction. Janice had heard an instruction. She had followed it before I knew there was one.
 
@@ -168,7 +168,7 @@ Vili went out to the truck. Nobody had told him to.
 
 All morning he had stood in the doorway because she wanted him there. He had looked at her face and decided by himself that she did not want him there now.
 
-“Remy wrote that line from fourteen years of the women I went out with,” I said. “Every one of them had a degree. I never asked for one. I would have told you it did not matter to me.”
+“Every one of them had a degree,” I said. “I never asked for one.”
 
 She waited.
 
@@ -184,9 +184,9 @@ I was glad she did not. The reason I had always had for it was gone. I did not h
 
 She took her time with it.
 
-“For about a year,” she said. “Then I had a crew to pay. Nobody's asked me that since.”
+“For about a year,” she said. “Then I had a crew to pay.”
 
-She was forty-four. If she had gone to Skyline at eighteen and stayed two years, nobody had asked her in about twenty-four years. I had asked because I wanted to know, which is not my usual reason for a question. I wanted to ask her the rest of it. I did not. It was the first time that morning she had said more to me than a color. I did not want her to be sorry she had.
+I had asked because I wanted to know, which is not my usual reason for a question. I wanted to ask her the rest of it. I did not. It was the first time that morning she had said more to me than a color. I did not want her to be sorry she had.
 
 She held out her hand. I gave her the card. She took the pencil from behind her ear and wrote *COLLEGE DEGREE, MINIMUM* under the other five, and she drew the line.
 
@@ -259,8 +259,6 @@ She nodded and unwrapped her own. We ate without talking. The sky stayed white o
 On our first night she had told me she would want my dog on the other side of a railing from her. Now he had all sixty-four pounds against her leg. I wanted to be where the dog was. I stayed on my end of the bench.
 
 At 11:40 she folded her foil into a square and stood up. She did not say anything about Tuesday. Neither did I.
-
-On Tuesday I had driven to her yard so that I would not have to say any of it here, in front of two men she pays. I had said all I had. She had read my four words at 10:04 on Wednesday. Anything more I said on that bench would have been asking her for an answer. I had decided on Thursday that I would not ask.
 
 At 12:40 the bedroom was empty except for what was green. Jo turned the clipboard around and held out the pencil.
 

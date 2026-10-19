@@ -26,7 +26,7 @@ At midnight on the seventh I had left her eleven minutes on her machine, from th
 
 I heard her pour. She pours half a cup at a time. I had counted three on 280 on the eighth.
 
-“I told the other three no for you,” Dawn said. “So I owe you a debrief. I do one for everybody. You left me eleven minutes, and not one minute of it said whether you had a good time.”
+“You left me eleven minutes,” Dawn said. “Not one of them said whether you had a good time.”
 
 “I stayed three hours and five minutes.”
 
@@ -52,11 +52,17 @@ I looked at the house. From the car I could see the front door and the edge of t
 
 “With what?”
 
-“My mother died in October. I have not been inside her house since. On the seventh I sat in a bar for three hours and laughed twice. I did not plan either one. At midnight I gave you every time I had. I did not tell you that part.”
+“My mother died in October.”
+
+“I know, Cal.”
+
+“I have not been inside her house since. On the seventh I sat in a bar for three hours and laughed twice.”
+
+“Did you plan to?”
+
+“No. I did not put that in the eleven minutes.”
 
 “You're telling me now.”
-
-“Yes.”
 
 She poured again.
 
@@ -88,13 +94,13 @@ She did not ask again.
 
 “When my mother died,” Dawn said, “I cleared her garage myself. I gave the house to a mover and kept the garage. Every Saturday for a month. One Saturday I found the dish she brought to every Thanksgiving, under a bag of potting soil, and I sat down on the concrete and cried so hard I couldn't see it.”
 
-I waited. She had not finished.
+“What did the mover do?” I said.
 
-“The mover was on the driveway with a box,” she said. “She put the box down and went and sat in her truck for ten minutes so I could have the garage. Then she came back and picked it up again. That was eleven years ago. She has never mentioned it.”
+“She put the box down and went and sat in her truck for ten minutes. Then she came back and picked it up again.”
 
 I did not have to ask who the mover was.
 
-The street was empty. Somebody had left a sprinkler going two houses down, and it was ticking against a car. Ten minutes in a truck. I had not known that was a thing a person could give.
+The street was empty. Somebody had left a sprinkler going two houses down, and it was ticking against a car. Ten minutes in a truck.
 
 “She said no to dinner,” I said.
 
@@ -102,7 +108,7 @@ The street was empty. Somebody had left a sprinkler going two houses down, and i
 
 “She said it fast.”
 
-“Under a second,” Dawn said. “I've known Joanna since she carried my mother's dresser. She says no fast when she's afraid of what she'd say if she waited.”
+“Under a second,” Dawn said, and poured. “Write that one down with your other times.”
 
 “I told her on the sidewalk that I would not ask her again.”
 
@@ -343,7 +349,7 @@ She looked at the strip of aluminum. She looked at the telephone, for no reason 
 
 “You need the coffee maker till the end. Everybody does.” She came back across the linoleum and stepped over the strip to my side of it. “We start in the hall closet. I need forty boxes built, and Vili's still on the runners.”
 
-She had seen where my boots had stopped. She had given them a reason to be there that was about coffee makers and everybody, with nothing in it about me. Whether it was true did not matter. She was close enough to touch. I wanted to take hold of her arm above the elbow, where she had taken hold of mine on the ramp. She was on a job. I kept my hands at my sides.
+She had seen where my boots had stopped. She had given my boots a reason to be there. She was close enough to touch. I wanted to take hold of her arm above the elbow, where she had taken hold of mine on the ramp. She was on a job. I kept my hands at my sides.
 
 She put a tape gun in my hand.
 
@@ -353,7 +359,7 @@ It had a handle, a roller and a row of teeth. I held it by the wrong end, and sh
 
 “It makes an H.”
 
-“If the bottom falls out of a box of your mother's dishes, I want it to be my fault and not yours.”
+“Your mother's dishes go in these. The bottom falls out, that's on me.”
 
 “Understood.”
 

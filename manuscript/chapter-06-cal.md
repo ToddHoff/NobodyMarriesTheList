@@ -148,13 +148,13 @@ She unwrapped it on the edge of the dock and lifted the top of the roll.
 
 “I can go back.”
 
-“Don't go back.” She took another bite. “It's wrong and it's good. That's a first, from you.”
+“Don't go back.” She took another bite. “It's wrong and it's good.”
 
-“What were the others?”
+“Is wrong a problem?”
 
-“Right.”
+“The flowers were right. The text was right.” She took another bite. “I'm eating, Cal.”
 
-She did not mean it as praise. I did not follow, and she did not explain. She ate the bifana standing up, all of it, and I watched her do it. I did not think about the product review. She wiped her hands on her jeans.
+She ate the bifana standing up, all of it, and I watched her do it. I did not think about the product review. She wiped her hands on her jeans.
 
 “That doesn't count,” she said. “You still owe me half a linguiça.”
 
@@ -312,7 +312,11 @@ I had not specified that outcome.
 
 Every item Jo had listed was in my request. On the night we met she had told me about the envelope in the coat. I could not leave it alone. I sent a second envelope to the same woman, with no name on it. Mrs. Bautista had put the two together.
 
-“Rowena wants to send it back. She couldn't find who to send it to, and now she can't send it anywhere, because as far as her mother is concerned it's from her father.”
+“Rowena wants to send it back.”
+
+“To me?”
+
+“To who? It's from her father.”
 
 “That is on me,” I said. “I will fix it.”
 

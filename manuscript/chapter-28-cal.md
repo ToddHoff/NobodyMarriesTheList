@@ -128,8 +128,6 @@ Owen looked at me for some time. Then he unzipped his backpack and took out a mi
 
 It was the bowl from the back of Jo's truck at Carmel. She had poured my dog water in it on the asphalt. Owen had carried it from his mother's kitchen so that my dog could drink out of it on top of a ridge.
 
-His quiet was his father's. Jo had told me about Kevin's on the log at Carmel. I had sat beside Owen's on a volcano. He had been told no. He was putting it somewhere until he could look at it.
-
 I could have had Pancake on top of the ridge by eight. There is a paved road up from Sneath Lane, closed to cars. Somebody has the key to the gate. It would have taken two calls. I kept my phone in my pocket and walked beside him.
 
 The trail went up a fire road around a hill of coastal scrub, gray-green and waist high, gone dry at the tips in August. Where our sleeves brushed it the air went sharp and medicinal.
@@ -180,8 +178,6 @@ He said it to the road.
 
 “You came, though.”
 
-He had not brought me up here for the bay. He had brought me so that she would come. In June, in my mother's back yard, question six had been whether I take days off, and he had told me she would take one when the house was paid. He had not been able to get her up this ridge since June. With me as the reason, it had taken him one sentence and an hour with Remy.
-
 The wind hit us at the water tank. It came over the ridge from the ocean, steady, cold enough to make my eyes run, and it had the fog in it. I could feel the wet on my face.
 
 At the top there was a granite post with the names of the mountains around the bay cut into it. West of it there was nothing but white.
@@ -218,7 +214,7 @@ Owen went around to the other side of the post to find Diablo.
 
 Jo came and stood in front of me with her back to the wind. Then she leaned back against my chest. I put my arms around her, over my fleece. Her hair came loose. The wind blew it out in front of her toward the bay. The back of her neck was bare. I wanted my mouth on it. Under my hands I could feel her breathing slow down, the climb going out of her. I wanted her so much that I held still.
 
-She stood against me and watched the bay. I waited for her to say it. I could feel each breath she took through the fleece. I counted them. At nine I stopped, because I was not counting to anything. I know what to do with a yes and with a no. I have been told no in rooms since I was twenty-three. I did not know how to stand in the time in between. I had been standing in it since Thursday. My watch tapped against her hip.
+She stood against me and watched the bay. I waited for her to say it. I could feel each breath she took through the fleece. I counted them. At nine I stopped, because I was not counting to anything. I had been waiting since Thursday. My watch tapped against her hip.
 
 Out over the bay a line of lights hung in the air, one behind another, each one a plane with its lights on, coming in toward the runways under us. I counted eight. While I counted, the one in front came down onto the runway and a new one showed at the back of the line, far out over the water.
 
@@ -278,9 +274,21 @@ Denise called me at 12:46 on Thursday afternoon. I could hear her turn signal.
 
 “Hello, Denise.”
 
-“The white truck's transmission went on 92. Monday the twenty-SEVENTH. Seventy-six hundred dollars and three weeks for the part. Hillsborough stopped a check because of the picture, forty-eight SIXTY, and cancelled her Saturday. Dad's been driving the sixteen-footer since last Wednesday on his knees, and he gets down out of it SIDEWAYS.” She took a breath. “And she's not putting the extra on the house this month. She hasn't skipped a month since 2023. I do her TAXES.”
+“The white truck's transmission went on 92. Monday the twenty-SEVENTH.”
 
-She had it in order. She had written it down before she dialed and was reading it to me with the signal going.
+“How much?”
+
+“Seventy-six hundred. Three weeks for the part.”
+
+“What else?”
+
+“Hillsborough stopped a CHECK. Forty-eight sixty, because of the picture. She cancelled her Saturday.”
+
+“Who is driving?”
+
+“Dad. The sixteen-footer, since last Wednesday, on his knees. He gets down out of it SIDEWAYS.” She took a breath. “And she's not putting the extra on the house this month. She hasn't skipped a month since 2023. I do her TAXES.”
+
+She had written it down before she dialed. I could hear her turn the page.
 
 The transmission had gone on the twenty-seventh. The next night she had lain on the slab in my mother's hall with her head against mine. On Thursday I had sat at her table until 2:41 reading reviews with her. She had driven me to Carmel and back with a truck down in her yard, and paid eighty-one fifty for our lunch, and made me coffee on Sunday with the statement face down beside my mug. In ten days she had not said one word about any of it. My watch tapped against my wrist. I let it.
 
@@ -340,8 +348,6 @@ She went past me down the dock steps and across the yard to the office, with the
 
 Frank came over with a pad in his hands. He held one end of it out to me.
 
-He had driven her loads all week on knees that made him get down from the cab sideways. He had just listened to his daughter tell a man no three times on his own dock. He did not want me standing there with my hands empty while she shut a door on me.
-
 I took my end.
 
 “Corners,” Frank said.
@@ -352,9 +358,9 @@ He stood with his hip against the back of the truck to take the weight off his k
 
 I turned my back to it.
 
-“Half.”
+“Thirds.”
 
-We brought our corners together, long side to long side.
+He laid his long side in a third of the way, and I laid mine over it.
 
 “Walk it in.”
 

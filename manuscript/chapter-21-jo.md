@@ -8,7 +8,7 @@ Her son had flown in from Phoenix. He sat in the garage with the door up, on a f
 
 I built two dish packs on her counter and taped the bottoms in an H. Plates on edge, cups rim down, glasses in their own cells. I can do a kitchen like hers in five hours if nobody talks to me. Nobody did. The house was so quiet I heard the furnace come on twice before noon, in July.
 
-I was three days behind, with two trucks out and me on neither one. Vili had the white truck in Foster City. The other crew had a one-bedroom in San Carlos. At 5:40 that morning Denise had texted me the Friday payroll with nothing else on it, which is how she yells.
+I was three days behind, with two trucks out and me on neither one. Vili had the white truck in Foster City. The other crew had a one-bedroom in San Carlos. Before I was out of bed that morning Denise had texted me the Friday payroll with nothing else on it, which is how she yells.
 
 I had my phone in my back pocket all day. I took it out four times. In Denise's thread my *HOME* from Wednesday night sat right under her *MARRY HIM* from Monday. It didn't answer hers. She knew it didn't. Cal's was under that, with nothing in it since the terminal. I'd told him Thursday was a workday. He takes what I tell him to the letter.
 
@@ -26,7 +26,7 @@ Norma had brought something over in it when they found out she was sick. A lasag
 
 I put it back on the shelf by itself, tape side down, and shut the cupboard. I didn't write it on the sheet.
 
-At four the son came in and stood in his mother's kitchen and looked at the empty shelves for a long time. He didn't open the cupboard over the refrigerator. I didn't tell him about it.
+Late in the afternoon the son came in and stood in his mother's kitchen and looked at the empty shelves for a long time. He didn't open the cupboard over the refrigerator. I didn't tell him about it.
 
 I drove home in the fog with the heater on and my phone face down on the seat.
 
@@ -40,7 +40,7 @@ He'd heard me tell my sister that nobody had ever sat down next to Owen. Me incl
 
 From the floor I'd heard Abby at the bathroom door. *Who's Owen.* Then, *You were here for his*, and Cal saying yes. I put my head down and went after the glass.
 
-When I got up off the floor the back of his shirt was dark from the collar to his belt. The thermostat in the hall said ninety-four. It was ten to one.
+When I got up off the floor the back of his shirt was dark from the collar to his belt. The thermostat in the hall said ninety-four. It wasn't one o'clock yet.
 
 He looked at the thermostat. Then he looked at me.
 
@@ -52,7 +52,7 @@ At his sink in Woodside I'd made him promise not to pay for anything of mine wit
 
 I know what seventy-two by three o'clock looks like. I've seen it at estate sales in Atherton. Spot coolers on dollies, hoses run out the sliders, a man in a company shirt walking around with a meter. It roars like a truck idling in the next room. By three you'd have to shout to tell a man green or blue.
 
-And I'd be standing in his cold air. The last two Saturdays I'd be working in it. That's how it goes with me. I take one thing. Then I'm counting.
+And I'd be standing in his cold air. The last two Saturdays I'd be working in it.
 
 I wanted it so much my scalp itched. Sweat was running into my eyes. I'd put my hair up three times since ten.
 
@@ -74,7 +74,7 @@ I went and got the broom. My shirt was stuck to my back. I'd turned down seventy
 
 ***
 
-At one Vili pulled the door down on the truck and came up the walk wiping his face with the front of his shirt.
+After lunch Vili pulled the door down on the truck and came up the walk wiping his face with the front of his shirt.
 
 “You coming?”
 
@@ -136,7 +136,7 @@ Most days I like a room best when it's just me and the work. That afternoon it w
 
 ***
 
-At three the hall said ninety-seven, and I lay down on the floor.
+By the middle of the afternoon the hall said ninety-seven, and I lay down on the floor.
 
 I'd told his daughter everybody does. She'd lain on this slab when she was little. It was the coolest thing in the house, and it came straight up through my shirt. I put my arms out. I hadn't been flat on a floor without a flashlight in my hand since I was seven, in an empty house in Millbrae.
 
@@ -188,7 +188,7 @@ I didn't say anything to that. His mother's his business. I looked back up at th
 
 ***
 
-At six the sun went off the back glass, and air started to come through the house. I opened every slider, the way his mother did.
+When the sun went off the back glass, air started to come through the house. I opened every slider, the way his mother did.
 
 We ate on the bench in the atrium with the cooler between us. He took the second sandwich without asking whose it was. He ate it in four bites with his elbows on his knees, like a man on my crew.
 
@@ -200,7 +200,7 @@ He let that go. He's polite.
 
 After that we worked. I told him how many boxes and what size, and he built them on the hall floor and taped every bottom in an H without my saying so. In May he'd cut his thumb on that tape gun. I packed his closet. He brought me boxes before I ran out and set each one down where I'd reach for it. Nobody had to call anything. We didn't talk much.
 
-By eight my back was gone from the floor and the hall and three days of making up. I sat down on the edge of his bed to write the count on my clipboard. Forty-one boxes, his room and the hall. I'd lie back for a minute. It had been made long enough. I'd unmake it a little.
+By suppertime my back was gone from the floor and the hall and three days of making up. I sat down on the edge of his bed to write the count on my clipboard. Forty-one boxes, his room and the hall. I'd lie back for a minute. It had been made long enough. I'd unmake it a little.
 
 I don't remember putting the clipboard down.
 
@@ -226,7 +226,7 @@ I could see it. It was face down.
 
 I'd seen him sit like that once before, at the rim, next to Owen, for an hour and a half.
 
-My phone was in my back pocket. It said 9:47. Under the time was a text from Owen at 8:31.
+My phone was in my back pocket. I'd slept almost two hours. There was a text from Owen I'd slept through.
 
 *Grandpa says it counts.*
 
@@ -256,7 +256,11 @@ He'd heard me say something about him to my sister that I hadn't said to him. I 
 
 He didn't answer right away. Pancake moved his head on Cal's knee, and Cal put his hand on it.
 
-“Abby was four when her mother and I divorced,” he said. “After that I had her every other weekend. Janice picked her up on Fridays. Most Fridays I came home after she was asleep.”
+“Abby was four when her mother and I divorced,” he said. “After that I had her every other weekend.”
+
+“Who picked her up?”
+
+“Janice. On Fridays. Most Fridays I came home after she was asleep.”
 
 I didn't say anything. I let him go at his own speed.
 
@@ -270,11 +274,11 @@ My stomach went over like a hand truck off a curb.
 
 I've got a phone full of Owen at two. I hardly look at them. I was there.
 
-“I wanted another child,” he said. “I wanted to be there from the first day. I wanted every birthday.”
+“I wanted one I was there for,” he said. “I wanted to hear one skip six.”
 
 “Then why not a woman with kids?”
 
-“A woman who already has a child knows what a father does,” he said. “She has sat at the games. She would know what I did not do for Abby.”
+“She would have been to the games,” he said. “She would ask me which of Abby's I went to.”
 
 Kevin's been at every game Owen ever played. Same folding chair, same thermos. I've never said a word against him for it. I'd watched Cal now, too. At the rim. At a bathroom door with my carpenter's pencil. I'd already been comparing them. I hadn't known it was something a man could be afraid of.
 
@@ -338,7 +342,7 @@ I laughed into his chest until it hurt. He let me. After a while he turned on hi
 
 I wasn't.
 
-I'd been careful for nine years. I'd kept my life to what I could carry by myself. The truck notes, the mortgage, a nine-year-old, my father's knees. I know the number on every bit of that. I couldn't put a number on this.
+The truck notes, the mortgage, a nine-year-old, my father's knees. I know the number on every bit of that. I couldn't put a number on this.
 
 I've emptied a lot of bedrooms where two people slept for fifty years. At the end one of them signs for the other one's things.
 

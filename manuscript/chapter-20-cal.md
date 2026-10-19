@@ -80,7 +80,7 @@ Vili went to the back and pulled the door up. He looked at the house, and at me 
 
 He went for the runners. He was not angry. On Monday he had run both her trucks in Burlingame while she was over the ocean. He wanted her to know it had cost him something. She knew. On the first piece out she gave him the light end. In eight Saturdays I had never seen Vili on the light end.
 
-I could have paid for his Saturday. I had the number before he reached the runners: a day at time and a half, and something on top for Burlingame. In May I would have had Janice send it before lunch with a note in my name. I kept it to myself. He had given up his Saturday for her, not for me. She had paid him for it in the only coin he would take from her.
+I could have paid for his Saturday. I had the number before he reached the runners: a day at time and a half, and something on top for Burlingame. In May I would have had Janice send it before lunch with a note in my name. I kept it to myself. He had given up his Saturday for her, not for me.
 
 Jo looked at the water.
 
@@ -120,7 +120,7 @@ There were three coffees. She had planned for me. Mine had milk and sugar in it.
 
 Before she went in, she stopped at the truck and asked Vili how Burlingame had gone on Monday. He told her forty minutes late and a woman who wanted every lamp wrapped twice. She asked him two more questions about Burlingame. She did not ask him one about Hawaii.
 
-She had driven forty minutes on a Saturday to see whether the business ran without her sister. It did. I watched her decide whether that was good news. She had not decided by the time she went in.
+She had driven forty minutes on a Saturday to see whether the business ran without her sister. It did. She looked at the truck for a while, and then at the house. Then she went in.
 
 Jo came out to the atrium with tape on her wrist.
 
@@ -216,7 +216,7 @@ I had sat down at the rim because I could not think of anything to buy. In June 
 
 I wanted to go out through the screen and sit down on the bench between them. I wanted to tell her I had not known what else to do. I stayed where I was, with Pancake on my feet. If I went out there she would stop talking. I wanted to hear the rest of it more than I wanted to be seen.
 
-“Then it went,” Jo said. “Twenty to eight. You see it, and you count to nine before you hear it. Fourteen hundred feet. Two of them. I had my hand on my chest like a lady in church. I didn't know I'd put it there.”
+“Then it went,” Jo said. “You see it, and you count to nine before you hear it. Fourteen hundred feet. Two of them. I had my hand on my chest like a lady in church. I didn't know I'd put it there.”
 
 “You slept,” Denise said. “I can see it on you.”
 
@@ -310,7 +310,7 @@ She poured. I waited for it.
 
 She was quiet long enough that I looked at the screen to see whether the call had dropped. It had not. Across the street Vili came out of my mother's house with a lamp in each hand and looked at my car.
 
-“I call every one of them at the end,” Dawn said. “Them, not you. I ask how it was, and I write down what they say, the first thing, before they've thought about it. I have all seven in front of me.”
+“I call the women when I close the file,” Dawn said. “Not you. I write down the first thing they say. I've got all seven here.”
 
 She had pulled them before I asked. I have sat across tables from people like that since I was twenty-three. I raised money from some of them.
 
@@ -322,7 +322,7 @@ I counted while she read. Three of them had said generous, and a fourth very gen
 
 “None of them were unkind,” I said.
 
-“None of them. They liked you. I've closed files where the woman needed a minute before she could talk. None of yours needed a minute.”
+“None of them. Not one of yours needed a minute before she answered.”
 
 “Is that good?”
 
@@ -340,29 +340,37 @@ I went down the seven. I could not see their faces. I could see the inn in Napa,
 
 “You don't have to do anything with it. You asked me what they said.” She poured. “Let me ask you one. What does Joanna do when you're wrong?”
 
-I did not have to look for it. I had it to the minute, from the first night.
+I did not have to look for it.
 
-“She tells me in four words or fewer,” I said. “Then she hands me something to do. At the bar she told me my card was wrong. She corrected it in pencil. On the first Saturday I cut my thumb on the tape gun. She said let me see it. She put tape on it and gave me thirty-six more boxes to build. In June she told me butter is a barrier. In Hawaii I went gray in a zeppelin. She gave me her rag.”
+“On the first Saturday I used her tape gun wrong and cut my thumb,” I said. “She said, let me see it. She taped it and gave me thirty-six more boxes to build.”
 
 “And then?”
 
-“And then she stays in the room.”
+“She stayed in the hall until I had built them.”
 
 Dawn did not say anything for a while. I heard her set the cup down on something hard.
 
-“Seven women,” she said, “in eight years, and not one of them ever told me she'd seen you wrong.”
+“Which of the seven ever taped your thumb?”
+
+“None of them.”
+
+“No.”
 
 My watch tapped against my wrist. I did not turn it over.
 
 I had been wrong in front of Jo nineteen times since May that I could name. She had never sent me a thank-you.
 
-“Two more Saturdays,” I said. “Then the house is empty. Denise asked me then what. I told her I did not know.”
+“Two more Saturdays,” I said. “Then the house is empty. Denise asked me what then.”
+
+“What did you tell her?”
+
+“That I did not know.”
 
 “Good answer.”
 
 “It is not an answer.”
 
-“It's the first true one you've given about a woman since I've known you.”
+“From you it is.”
 
 “Why do you call them at the end?” I said. “The women. You said not me.”
 
@@ -446,11 +454,15 @@ I had never had a kite.
 
 Abby lifted the kite boy off his nail. She looked at him for a while.
 
-“When I was seven I asked Dad how computers think,” she said to Jo. “I didn't care how computers think. It was the only thing he'd talk about for an hour.”
+“When I was seven I asked Dad how computers think,” she said to Jo.
 
-“Did it work?” Jo said.
+“Did you want to know?” Jo said.
 
-“For an hour.”
+“No.”
+
+“Did it work?”
+
+“He talked for an hour.”
 
 I remembered the afternoon. I had counted it as our best hour. I had thought she wanted to know.
 

@@ -2,7 +2,7 @@
 
 **Jo**
 
-By eleven on the first Saturday we had emptied one closet, and I had looked at a client's arm for six seconds and been caught at it.
+By the end of his four hours on the first Saturday we had emptied one closet, and I had looked at a client's arm for six seconds and been caught at it.
 
 I've worked around men's arms for twenty years. I pay eleven people for theirs. I know what a forearm is for and about what it will lift, and I don't stand in a hallway holding one by the wrist.
 
@@ -20,7 +20,7 @@ He built the forty boxes. I checked the bottoms when he wasn't looking. Every on
 
 The hall had nine picture frames, and two of them still had the store's people in them. I wrote that down and left it alone. It wasn't a first-Saturday question.
 
-At eleven I called lunch. The state says thirty minutes. I give forty-five and I don't bill it. Eleven was also the end of the four hours he had given me, and I expected him to go.
+I called lunch. The state says thirty minutes. I give forty-five and I don't bill it. Lunch was also the end of the four hours he had given me, and I expected him to go.
 
 Vili and Manny took the cooler out to the tailgate. Vili looked at me, and then through the glass at Cal Brennan, who was standing in his mother's living room with a tape gun, working out what lunch was.
 
@@ -36,11 +36,11 @@ From the bench I could see straight through the living room, in one wall of glas
 
 He had been out there since before I came. Twice that morning I had seen Cal go out the back door with nothing in his hands and come back in with them wet, and I hadn't worked out why.
 
-At eleven he went out again, and this time I watched.
+Before lunch he went out again, and this time I watched.
 
 He turned on the hose bib by the fence and let it run until it was cold. Then he crouched down in his new boots with his two hands cupped together, and the dog drank out of them. He filled them again. He did it five times, with his cuffs still turned back.
 
-A little after eight that morning, with the neighbor's boxes on the hearth, I had turned around at that sink to ask him about the cabinets. His boots were on the hall carpet with the toes against the aluminum strip. He wasn't coming any farther. I looked at the yellow phone on the wall. I couldn't have told you why. It was the one thing in that kitchen that looked like somebody had used it every day. I didn't ask him about it then. He hadn't set foot past that strip since.
+Early that morning, with the neighbor's boxes on the hearth, I had turned around at that sink to ask him about the cabinets. His boots were on the hall carpet with the toes against the aluminum strip. He wasn't coming any farther. I looked at the yellow phone on the wall. I couldn't have told you why. It was the one thing in that kitchen that looked like somebody had used it every day. I didn't ask him about it then. He hadn't set foot past that strip since.
 
 There are bowls in a kitchen. There was a kitchen thirty feet from him with thirty bowls in it, and he was not going in there for one.
 
@@ -94,7 +94,7 @@ He gave it honest thought. “There is usually something.”
 
 “It is not an imposition.”
 
-“My guys brought theirs. I brought mine. You've got one job on Saturdays, and it's to be here with what you need.”
+“My guys brought theirs. I brought mine. Saturdays, you bring your own.”
 
 He put the phone back in his pocket. Then he stood in the middle of his mother's atrium with his hands still wet and nothing to eat.
 
@@ -234,7 +234,7 @@ I had told Dawn no eight days before. At the counter with the cereal I went back
 
 ***
 
-The phone went at 9:14 that night.
+The phone went that night, after I had my boots off.
 
 I didn't know the number, but I knew whose it was before I opened it. My cell number was on the paperwork I had given him that morning.
 
@@ -246,9 +246,9 @@ It was right. The sweet peas had been right too. It had the labels in it, and th
 
 There was a semicolon in it. I have been getting messages from men since 1998, and that was my first semicolon.
 
-At lunch I had asked him why the dog does that, and he said he didn't know. By nine he knew. *He leans on the people he intends to keep.* Nobody had said anything that nice about me in three years, and he had blamed it on the dog.
+At lunch I had asked him why the dog does that, and he said he didn't know. By that night he knew. *He leans on the people he intends to keep.* Nobody had said anything that nice about me in three years, and he had blamed it on the dog.
 
-I read it a third time, and then I was annoyed. I had gone through a woman's coats all morning and kept my face shut about every one. I had done fine. Now I was on a kitchen stool at a quarter past nine with my stomach doing what it did at the bar. A man who says “noted” had no business writing that.
+I read it a third time, and then I was annoyed. I had gone through a woman's coats all morning and kept my face shut about every one. I had done fine. Now I was on a kitchen stool in my socks with my stomach doing what it did at the bar. A man who says “noted” had no business writing that.
 
 I told myself he'd had the afternoon to think. I told myself people write better than they talk. I have told customers flimsier things.
 

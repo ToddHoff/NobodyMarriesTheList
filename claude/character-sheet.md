@@ -1,14 +1,80 @@
 # Nobody Marries the List: Character Sheet
 
-Last updated: Saturday, October 17, 2026, 10:31 AM PDT. Current through chapter 29 (chapters 1 to 13 after the October 8 pass), with the changes from the fourth and fifth critiques, Todd's read-through of 28, Jo's core as revised on the night of October 16 (the wives she moves) and Cal's engine, his hidden heart and Stephanie's dinner (October 17). The full version is the doc "Nobody Marries the List: Character Sheet".
+**Last updated:** Sunday, October 18, 2026, 11:20 PM PDT · Current through chapter 31; chapters 1 to 13 after the October 8 pass, with a full entry for Denise and the fourth and fifth critiques, Todd's read-through of 28, Jo's core as revised on the night of October 16 (the wives she moves) and Cal's engine, his hidden heart and Stephanie's dinner (October 17) · @Todd Hoff
+
+**Fifth critique, adopted October 7.** Cal reads other people fast and well, which is how he raised money and built a company; it is himself with them that he does not trust, so he assigns it. From chapter 12 on he reads one person fast and correctly in each of his chapters, keeps his times and counts for where the number is the joke or the fact, and never tells the reader he has not felt this before. Jo does one thing in each of her chapters through 17 that she would call stupid in anyone else (chapter 11: she checks her hair under his billboard and kisses a client in a hallway; chapter 13: she laughs out loud alone in his garage and slides down behind her wheel; chapter 15: she sends Vili in the other truck so Cal rides beside her; chapter 17: at 2:10 in the morning she stands at his door with her hand up to knock, and goes back to the guest room). His two middle lines are placed: "What do you need?" in chapter 21 and "What do you want?" in chapter 27. New in chapter 11: the bathroom door with CALVIN 4 to 12 and ABBY 3 to 14 on the back, OWEN 9 added in Jo's pencil, taped green. The full sheet is the project file claude/character-sheet.md.
+
+**October 8.** Narration rule (Todd): a line that "sounds like narration" has Claude's habits and does not sound like the character, whether it is spoken or narrated ("it has claudisms and doesn't sound like cal"). The narrator's own feeling stays on the page, in the narrator's voice. Jo says hers in her own terms: the stomach going over the hill, the face hot, the hand she keeps on the clipboard instead of on his back. Cal reports what he wants and what his body does in readings and counts, funny without knowing it, and still never says he has not felt this before. New from the October 8 pass, to be ruled on: Jo's two foolish acts in chapter 13 (she laughs alone in his garage at "Noted. That is five," and slides down behind her wheel when his car comes down the ramp), leaving 15 and 17; Owen goes quiet when he is told no, which he gets from his father (chapter 11, for chapter 19); Janice started his cue cards ("I taught him to bring them. The squaring is his."); in chapter 11, at the door with Abby's marks, Jo is glad for the first time that Kevin was at every game. The full sheet is the project file claude/character-sheet.md.
 
 ## How to use this sheet
 
 Check a draft against the voice lists here before anything else. Each lead also has the fields your craft notes ask for: a visible want and a hidden one that pull against each other, a wound kept off the page, a flaw that looks like a virtue, a rule they never explain, a piece of working knowledge, a secret, and how they act under pressure.
 
-Narration rule (Todd, 2026-10-08): a line that sounds like narration is one with Claude's habits that does not sound like the character, spoken or narrated ("it has claudisms and doesn't sound like cal"). The narrator's own feeling belongs on the page, in the narrator's own voice; see the style guide, Narrator and dialogue.
-
 Most of it comes from the book plan and the drafted chapters (1 to 18). Anything marked (new) is my proposal to fill a gap, and you can strike it.
+
+## Added on October 6 and 7
+
+These come from Todd's line review of chapters 7 and 8 and from the fourth critique he adopted. The sections below have not been rewritten for them; the project file has them in place.
+
+### Jo's ladder
+
+She changes one rung at a time, and each rung is something she does.
+
+| Chapter | Rung |
+| --- | --- |
+| 1 | "I've got it." She pays for her own beer. |
+| 7 | She cannot ask, so she bills him a dinner. |
+| 17 | "I can do it," about breakfast, and then she lets him. |
+| 25 | "Can you?" The first thing she asks him for that is not a bill. |
+| 27 | "I've got it" costs someone else: her father drives the sixteen-footer all week on his knees. |
+| 34 | She moves the piano that was never on her estimate, with no change order, and gives him the low end and the call, before either of them has said a word about August. |
+| 35 | She sends for him ("Nothing," as in 18), and then says "I need you to stay." |
+| 36 | She has put his name on Owen's emergency card, and she asked him first. |
+
+### How Jo sounds, added
+
+- She cannot ask for a thing, so she charges for it. The dinner in chapter 7 is a bill: "it costs you two lines."
+- Her word for a catch is "the piano," the thing that is never on the estimate. She does not talk about cost or price in the abstract; that is Cal's register.
+- She closes a subject with a work question ("Kitchen." "Thirty-six more." Whether the four-wheel dolly is on the truck).
+- Out loud she lists what she did and answers in a word. She does not sum up, build a contrast or finish on a line.
+- That short answer is for when she is guarding herself. When she is at ease she has more to say. It is the reason he loves her (Todd, October 8: "Let's try to give her more personality than just the shortest possible sentences. We have to have a reason he loves her too."). She teases him ("So he's got his pick of five."; "Even in Woodside."), tells a job story with a number in it when he asks (the twenty-six cans of paint), jokes at her own expense (Owen says she would put him on the found sheet if he sat still long enough), asks for his eggs the way she asked for his shrimp ("Are you going to eat those?"), and says the true thing to his face ("I've been sitting in your driveway working up my nerve."). She makes him laugh.
+- On the job she runs a crew. She sounds like it, in colors, directions and counts (Todd, October 8: "Job her is different than her when she's not at the job. Maybe look at the previous chapters too."). Off the job she sounds like she did at the bar, at dinner in Los Gatos, at the taco truck and on Summit Road ("Denise bet me twenty dollars it was Napa."; the twenty-six cans of paint, "In case"). Her short answers off the job are for when she is guarding herself.
+- One trade comparison at a time, and never to decorate.
+- Her reasons stop at the first kiss in chapter 9, at eight.
+
+### How Cal sounds, added
+
+- He is never vague about when or how a thing started.
+- He reports what he sees and what his hands do. He does not tally what someone did not do, gloss a tone, or sum up his own state.
+- He does not use her trade words. He has booked an estimate, so that one he has.
+- He is literal about instructions: told "next time, ask," he asks the next time.
+- When he is nervous he does the thing he is good at, which is the keynote. The reader hears the stage voice aloud; it is never summarized.
+- In chapter 25 what he knows about how a model fails is the one thing of his that helps her.
+- His "noted" is counted for the last time by chapter 15.
+
+### Other people, added
+
+- **Kevin.** Asked what was wrong, he told her what time he would be home Thursday. When he went quiet he did not leave: he came home, ate dinner, passed the salt and did not talk to her, from a Tuesday to a Sunday. She went looking for what she had done (a job that ran long and made her miss something at his school; being short with his mother) and did not find it.
+- **Frank.** When she will not ask, he does the thing anyway and pays for it in his knees (chapter 27).
+- **Denise.** She takes Cal's calls and keeps them from Jo. She caught that two lunches left out Manny.
+- **Manny.** He sleeps against the passenger door from the airport on. Denise says he keeps score (new).
+- **Abby.** She has watched eleven of his relationships run to the same plan, and she knows the Napa weekend when she sees it (chapter 20).
+- **Dawn.** She tells him why she sent Jo in chapter 32, the morning after he calls Jo from the vet's.
+- **Remy's plan.** Fourteen items, and the count only comes down: thirteen after the car in chapter 16, twelve after Napa in chapter 20, and the month-four gift in chapter 28 is the last item. Nothing in the plan comes after it, because none of the eleven lasted to a month five, and there is no goodbye in it (Todd, October 8). In chapter 30 he asks what is left, and nothing is. None of the eleven ended in a fight: after the gift each woman wrote to thank him for it, his office answered, and that was the last of her. They had careers and money of their own, so a present could not keep them (Todd, October 18).
+
+### Who knows what, added
+
+| Chapter | Who learns it | What |
+| --- | --- | --- |
+| 7 | Cal | Manny is on the Saturday truck; he found out by asking her sister. |
+| 16 | Both | A car neither of them ordered comes for her. He has that one thing stopped, and tells Remy to ask him first about anything for her. Neither knows what else is scheduled. |
+| 20 | Cal | (drafted) Remy offers the usual month-two weekend in Napa; Abby reads it, knows what it is, and says "Don't do the thing you do." Jo is not told. Through the screen he heard Jo tell Denise the trip: what mattered was that he sat down next to Owen; she slept until ten past seven; "I'm not going to marry a house." Denise arranged for him to hear it. Abby moves into her dorm on August 18, not in September. At seven Abby asked how computers think only so he would talk. On Friday night he told Jo he had missed her on Thursday; she answered "Go to bed." and "Thursday was long." In the hall she said "You owe me one" and would not say what ("I'll tell you when."). |
+| 20 | Jo | (drafted) He heard everything she told Denise at lunch, from the milk on. He keeps Vili's Saturday to himself. His photograph at the podium went blue. Abby has seen OWEN 9. He told her he missed her. He owes her one, and she has not named it. |
+| 25 | Jo | (drafted) He can do something for her that costs no money, and she asked: at her table he read all 312 new reviews himself and found the nine people (Glenda Ruiz, Rowena's edit, Gary Roth's earned one-star). He asked before doing anything about her page and took her no. A mom at Owen's camp asked Owen whether she is dating Cal (from Kevin's text). His office sent her a one-sided confidentiality agreement, prepared by Remy from three prior agreements and approved unread; another woman's name is on page nine. Three women signed one before her. |
+| 25 | Cal | (drafted) She likes the photo and objects to the caption; the company page is hers. She asked him for something that was not a bill. He approved the agreement without reading it, and she found Ms. Holcomb on page nine. She wants one anyway, mutual or nothing: two pages, his name wherever hers is, his people and his robot in it too. He does not know about the camp, the transmission or that her father is driving the sixteen-footer. |
+| 27 | Cal | He is not told about the transmission or about her father driving all week. |
+| 32 | Cal | Why Dawn sent Jo (moved from chapter 30). |
+| 33 | Jo | Everything left: she was filed as relationship twelve, he approved a plan unread, the car and Napa were that plan, and it stopped at the month-four gift because none of the eleven lasted longer; each of the eleven ended with her thank-you for the gift, which his office answered. Remy had three gifts ready for that slot and he did not open them; he picked the payoff himself, for the day off, the ridge and the party, and he knows he did not ask. He has asked Remy for nothing about her since. |
 
 ## Jo Silveira, 44
 
@@ -26,33 +92,23 @@ Jo owns Silveira Moving & Estate in South San Francisco: eleven employees, three
 | Flaw that looks like a virtue | Self-reliance. She pays for her own beer, carries her own bag, and tells nobody when the transmission goes. |
 | Rule she never explains | She takes nothing home from a job, not a pencil. |
 | Her impossible choice | Keep a gift she never agreed to and owe him, or refuse it and lose him. Her answer is a third thing: she makes him take her checks. |
-| Knows | Families fight over the casserole dish, never the silver. Cash is in the freezer, the Bible, the coat pockets, and once taped inside a closet door frame. A crew slows down in the last hour, because a rushed job tips worse. Whoever owns the thing is in the room when it is decided. The customer who has coffee out for the crew and tips before the first box has a piano that is not on the estimate. She does bathrooms by herself and reads no label aloud. Everybody has good towels, and none has ever been wet. The last thing in a bathroom is the back of the door (ch 11). |
+| Knows | Families fight over the casserole dish, never the silver. Cash is in the freezer, the Bible, the coat pockets, and once taped inside a closet door frame. A crew slows down in the last hour, because a rushed job tips worse. Whoever owns the thing is in the room when it is decided. |
 | Secret | A stranger's recipe tin is in her cupboard. It looked like her mother's, which she threw out by mistake. She never explains it. |
 | Under pressure | She gets shorter and more practical, and asks a question about logistics. At the worst she stops talking, which she swore she never would; she does it to Cal in 29, as her father and Kevin did it to her. |
 | With people who work for her | Fair and fast, no speeches. Whoever complains gets the light end. |
-| With her son on a job (ch 11) | Three rules: he stays where she can see him, he touches what she hands him, and he asks the client for nothing, not a glass of water. |
 | Carries | A purse with a twenty-five-foot tape, a roll of green tape and a flat red carpenter's pencil. On a job the pencil lives behind her ear. A clean shirt in a dry-cleaning bag behind the truck seat. |
 
 ### How Jo sounds
 
 - Short statements with numbers, sizes, hours and dollars in them.
 - She measures by eye and says the measurement. The painting is sixteen feet.
-- Her comparisons come from the job: a truck topping a hill, a couch through a doorway, what a customer hears when the truck is full. One at a time, and never to decorate.
+- Her comparisons come from the job: a truck topping a hill, a couch through a doorway, what a customer hears when the truck is full.
 - Affection comes out as a practical question. "What does she want to build?"
 - She does not console. She says the true thing and gives the person something to do. She corrects what is in front of her and never explains a person to himself.
-- She keeps count: his slips against the cue card, her reasons not to like him and which column each goes in. The reasons stop at the first kiss in chapter 9, at eight.
+- She keeps count: his slips against the cue card, her reasons not to like him and which column each goes in.
 - She says "I've got it." She never says "I need" until chapter 35.
-- She cannot ask for a thing, so she charges for it. The dinner in chapter 7 is a bill: "it costs you two lines." In chapter 11 she takes $150 off the day because she has brought her son.
-- Her word for a catch is "the piano." She does not talk about cost or price in the abstract; that is Cal's register, and she is the one who sends the bills.
-- She closes a subject with a work question or a work order ("Kitchen." "Thirty-six more." "Boxes." Whether the four-wheel dolly is on the truck).
-- Out loud she lists what she did and answers in a word. She does not sum up, build a contrast or finish on a line. She does not get a closing quip (Todd, 2026-10-07).
-- That short answer is for when she is guarding herself. When she is at ease she has more to say. It is the reason he loves her (Todd, 2026-10-08: "Let's try to give her more personality than just the shortest possible sentences. We have to have a reason he loves her too."). She teases him ("So he's got his pick of five."; "Even in Woodside."), tells a job story with a number in it when he asks (the twenty-six cans of paint), jokes at her own expense (Owen says she would put him on the found sheet if he sat still long enough), asks for his eggs the way she asked for his shrimp ("Are you going to eat those?"), and says the true thing to his face ("I've been sitting in your driveway working up my nerve."). She makes him laugh.
-- On the job she runs a crew. She sounds like it, in colors, directions and counts (Todd, 2026-10-08: "Job her is different than her when she's not at the job. Maybe look at the previous chapters too."). Off the job she sounds like she did at the bar, at dinner in Los Gatos, at the taco truck and on Summit Road ("Denise bet me twenty dollars it was Napa."; the twenty-six cans of paint, "In case"). Her short answers off the job are for when she is guarding herself.
-- Her jokes are facts said flat. "I own six ladders." "By eleven that slice is soup."
-- Her praise is a fact about the work. "It's square."
-- She does not always answer. Sometimes she looks at him, or says "Huh," or goes back to work.
+- Her jokes are facts said flat. "I own six ladders." She does not always answer. Sometimes she looks at him, or says "Huh," and goes back to work.
 - She never describes her own looks. Other people's reactions do it.
-- In her narration she says what she feels in her own terms: the stomach going over the hill, the face hot, the hand she keeps on the clipboard instead of on his back. She does not name a feeling in a therapist's word (2026-10-08).
 
 Lines to tune by:
 
@@ -60,24 +116,6 @@ Lines to tune by:
 - "Back to who? It was hers."
 - "He was there first. You go stand where the dog isn't."
 - "It's my father's. I pay for the paint."
-- "I go through houses for a living, Vili. I figured I could go through one week."
-
-Her ladder (fourth critique, 2026-10-07). Each rung is something she does:
-
-| Chapter | Rung |
-| --- | --- |
-| 1 | "I've got it." She pays for her own beer. |
-| 7 | She cannot ask, so she bills him a dinner. |
-| 17 | "I can do it," about breakfast, and then she lets him. |
-| 25 | "Can you?" The first thing she asks him for that is not a bill. |
-| 27 | "I've got it" costs someone else: her father drives the sixteen-footer all week on his knees. |
-| 34 | She moves the piano that was never on her estimate, with no change order, and gives him the low end and the call, before either of them has said a word about August. |
-| 35 | She sends for him ("Nothing," as in 18), and then says "I need you to stay." |
-| 36 | She has put his name on Owen's emergency card, and she asked him first. |
-
-Between rungs (ch 11): she still cannot ask for herself, but she lets her son ask ("Friend. Go ahead and ask him.").
-
-A fool for him (fifth critique, 2026-10-07). One act in each Jo chapter through 17 that she would call stupid in anyone else. Ch 11: she checks her hair under his billboard (and fixes it), and she kisses a client in a hallway with her son thirty feet away. Ch 13 (2026-10-08): she laughs out loud alone in his garage at "Noted. That is five," and slides down behind her wheel when his car comes down the ramp. Ch 15 (2026-10-08): she sends Vili, who has ridden with her for nine years, in the other truck so Cal rides beside her. She would dock any man on her crew who did that. Ch 17 (2026-10-08): at 2:10 in the morning she stands at his door in Woodside with her hand up to knock and a sentence ready ("I know what I said"), and goes back to the guest room. If Denise had done it, she'd have laughed at her for a week. That closes the foolish acts.
 
 ## Cal Brennan, 41
 
@@ -89,7 +127,7 @@ Cal founded Recall Technologies, whose agent, Remy, runs the work and errands of
 | --- | --- |
 | Looks | Good-looking, and the billboard does not exaggerate. Gray starting over his ears, one front tooth set a little behind its neighbor, a gray shirt that fits like nothing off a rack. Tall: the top of her head comes to his collarbone. His ears go red. |
 | In public | Cool, well dressed, warm and easy with a crowd. He is the face of the product, and he used all of it on the way up. |
-| In private | Smart, focused, driven and more self-absorbed than is good for him. He is not cold, not a villain and not neurodivergent. He reads other people fast and well, which is how he raised money and built a company; it is himself with them that he does not trust, so he assigns it (fifth critique, 2026-10-07). |
+| In private | Smart, focused, driven and more self-absorbed than is good for him. He is not cold, not a villain and not neurodivergent. |
 | Wants | A wife in place before Abby leaves. |
 | Wants, underneath | Abby's forgiveness without having to ask for it, and to be again the man he was for three hours at that table. The first he thinks he can arrange. The second cannot be arranged. |
 | The lie he believes | Me showing up is not enough. The right thing, delivered, is (October 17; his engine is below the table). His rule, *if it matters, assign it to someone good*, is how he copes with it. |
@@ -97,12 +135,11 @@ Cal founded Recall Technologies, whose agent, Remy, runs the work and errands of
 | Flaw that looks like a virtue | Generosity. He sends things. |
 | Rules he never explains | Forty-five minutes, the same table, the same order. Forty of the same shirt. He squares whatever is in front of him to the edge of the table. |
 | His impossible choice | Fix what he broke, which is the thing that broke it, or do nothing and feel useless. He has to learn to do nothing and stay. |
-| Knows | How a model fails: fluent, confident and wrong. He trusts a spec and a test, and he reads people as edge cases. In chapter 25 this is the one thing of his that helps her. |
-| Secret | His mother's last voicemail. He has read Remy's summary of it for months and never played it. From chapter 10 he has a second one: he has read the messages Janice sends in his name, and he lets them keep going. |
-| Under pressure | He gets more precise and starts counting. He says "That's on me, I'll fix it," and reaches for money. When he is bad at something he is short with whoever is teaching him, for about one sentence. When he is nervous he does the thing he is good at, which is the keynote. |
+| Knows | How a model fails: fluent, confident and wrong. He trusts a spec and a test, and he reads people as edge cases. |
+| Secret | His mother's last voicemail. He has read Remy's summary of it for months and never played it. |
+| Under pressure | He gets more precise and starts counting. He says "That's on me, I'll fix it," and reaches for money. When he is bad at something he is short with whoever is teaching him, for about one sentence. |
 | With people who work for him | Courteous, exact, never cruel. Janice is the only one who calls him Calvin. |
-| With a child (ch 11) | He talks to Owen in his private voice, the one with the numbers in it, and takes his rules seriously ("The card is for dogs you have met"). He asks the boy's mother before he offers the boy anything. |
-| Does himself | Walks the dog at five in the morning. When the book opens, nothing else; from 2012 to 2022 he also bought and mailed the lunch checks himself, and nobody knew (Cal's engine, below; ch 34). By chapter 11: he has stood in a bakery line, made his own lunch (nineteen minutes), and written a child's name with his own hand. |
+| Does himself | Walks the dog at five in the morning. When the book opens, nothing else; from 2012 to 2022 he also bought and mailed the lunch checks himself, and nobody knew (Cal's engine, below; ch 34). |
 
 ### Cal's engine (October 17)
 
@@ -114,10 +151,11 @@ Built on the belief-engine method at Todd's request (8:33 AM: "We have this for 
 - **Coping mechanism:** his rule, *if it matters, assign it to someone good*: Janice, Remy, a matchmaker, the counselor Janice booked.
 - **Counter-belief:** you come yourself, empty-handed, and you stay when there is nothing to fix. Jo holds it; she carries the heavy end herself and pays for her own beer. Darlene held it from the other side: she opened none of his thirty-four boxes, put $612 in a shoebox every month, and left a last voicemail, 47 seconds, that Remy summarized as "asks you to call when you have a minute. Not urgent."
 - **What it costs its holders:** Jo comes herself to everything, so nobody has ever carried anything for her. Darlene waited for a call.
-- **On an ordinary day:** the standing order that sent his mother boxes three times a year; Janice and Remy handling Abby, who calls him an account manager; each of the eleven women given a large gift, and each drifting off; for Jo, Janice's messages, the car, the airship and the mortgage.
+- **On an ordinary day:** the standing order that sent his mother boxes three times a year; Janice and Remy handling Abby, who calls him an account manager; each of the eleven women given a large gift, and each sending a thank-you that his office answered; for Jo, Janice's messages, the car, the airship and the mortgage.
 - **Decision logic:** when someone he loves is in trouble or goes quiet, he sends the result instead of himself, even when it breaks a promise and costs him the person.
 - **Second want:** a wife before Abby leaves, against staying the man who can make anything work. The two collide at the keynote in 36.
 - **The sentence he cannot say:** "I am sorry," with nothing to fix after it.
+- **Line twelve, "Says what she wants"** (Todd, October 18, replacing "Doesn't go quiet": "It needs to be something else that's deeper"): what nobody in his life has given him and what he cannot build. His mother never said it in her nine days; she said it at last on the voicemail he did not play for ten months ("You, Calvin. Not Janice."). Stephanie said it once ("lonely"), and he booked a counselor. The eleven wrote thank-you notes instead. Jo cannot: at Carmel he asks "What do you want?" and she shuts her mouth on it (27); she says it in 35 ("I need you to stay"); in the epilogue the twelfth stands and she uses it. Dawn checked it for Joanna on May 4. Remy's revised list in 30 ends "Does not say what she wants." Going quiet stays the family's (Kevin, Owen, Frank, Darlene, and Jo in 29 to 31); the eleven are not part of it.
 - **Pressure 1, a problem it cannot solve:** Jo will not take what he sends. The car, a truck, the transmission: "I've got it."
 - **Pressure 2, people who contradict it:** Jo, who comes herself; Owen ("You came, though."); Frank, who hands him the other end of a pad.
 - **Pressure 3, the belief causing the loss:** the payoff, the right thing delivered, is what makes Jo go quiet, and her silence is his mother's nine days again.
@@ -128,24 +166,20 @@ Built on the belief-engine method at Todd's request (8:33 AM: "We have this for 
 
 ### How Cal sounds in his own head
 
-- Complete sentences, with times to the minute, counts and odds. He is never vague about when or how a thing started.
+- Complete sentences, with times to the minute, counts and odds.
 - He reports feelings as readings. His watch tells him his pulse. He notes that he did not want her to go.
-- He reports what he sees and what his hands do. He does not tally what someone did not do, gloss a tone, or sum up his own state.
-- He uses product words on people: test condition, variable, specified. "It had never loaded." "I had nothing in fourteen years to file that under." His ex-wife is X, in his phone and in his head, until Abby makes him say Stephanie (ch 22). He first calls her X on the page in ch 14. He does not use her trade words; he has booked an estimate, so that one he has.
-- He counts what other people do not: Janice's pauses, the minute a date asked about his dog, how many times a boy has looked at his dog.
+- He uses product words on people: test condition, variable, specified. "It had never loaded." "I had nothing in fourteen years to file that under." His ex-wife is X, in his phone and in his head, until Abby makes him say Stephanie (ch 22). He first calls her X on the page in ch 14.
+- He counts what other people do not: Janice's pauses, the minute a date asked about his dog.
 - He is funny and does not know it. The reader laughs and he does not.
 - He admits what he does not know and stops there. "I do not know. They were chosen."
 - He does not think the word love before chapter 26.
-- He does report what he wants in the moment and what his body does: he wanted her to find something on his floor worth the drive; at the elevator he did not know what to do with his hands (2026-10-08). He still never says he has not felt this before.
-- Out loud he says "What is the ask?" and "Noted." He speaks in whole sentences with no contractions, and his narration and his own texts have none either (the plan's Voice rules list the short lines he may say). He has never said sorry without a fix attached. He is literal about instructions: told "next time, ask," he asks the next time.
-- From chapter 12 on (fifth critique, 2026-10-07): in each of his chapters he reads another person fast and correctly at least once. He is wrong only about himself, and about what a thing will mean to the person he gives it to. His times and counts stay where the number is the joke or the fact; they are not a tic. He never tells the reader he has not felt this before; what he does shows it.
+- Out loud he says "What is the ask?" and "Noted." He speaks in whole sentences with no contractions, and his narration and his own texts have none either (the plan's Voice rules list the short lines he may say). He has never said sorry without a fix attached.
 
 ### The stage voice
 
 - Warmer, lower and slower. He asks a stranger her father's name and gives her a sentence to take home.
-- He slips into it when he is nervous with Jo, and she tells him he is presenting. The reader hears it in his own words, aloud; it is never summarized.
+- He slips into it when he is nervous with Jo, and she tells him he is presenting.
 - "That's a room. This is a table. I'm good at rooms."
-- "We don't sell software. We sell an hour."
 
 Lines to tune by:
 
@@ -153,8 +187,6 @@ Lines to tune by:
 - "She asked at minute thirty-one."
 - "It's the horseradish."
 - "Eleven of the twelve are wrong. When is she free?"
-- "On Tuesday you said next time, ask. This was next time."
-- "Twelve. I was not here for any of them."
 
 ## The two of them
 
@@ -164,36 +196,24 @@ The book's question is whether care can be handed to someone else. Every charact
 
 |  | What draws them | How the attraction shows |
 | --- | --- | --- |
-| Jo, about Cal | He does not pretend when he is caught. He remembered the widow. He eats the shrimp when she tells him to. He asks her first. | In her body, said outright: her stomach drops, her face goes warm, she stops hearing the room. She blames something else. |
+| Jo, about Cal | He does not pretend when he is caught. He remembered the widow. He eats the shrimp when she tells him to. | In her body, said outright: her stomach drops, her face goes warm, she stops hearing the room. She blames something else. |
 | Cal, about Jo | She gave the money back without running the odds. She says nothing kind and he is grateful. She pays her own way. | As readings: his watch reports his pulse, his hand remembers her hair, he waits for her smile. He blames the horseradish. |
 
 What each says changes over the book.
 
 |  | Start | Middle | Late | End |
 | --- | --- | --- | --- | --- |
-| Cal | "What is the ask?" (ch 1) | "What do you need?" (ch 21) | "What do you want?" (ch 27) | "Tell me." (ch 34) |
-| Jo | "I've got it." (ch 1) | "I can do it." (ch 17) | "Can you?" (ch 25) | "I need you to stay." (ch 35) |
-
-Cal's two middle lines were placed on 2026-10-07 (ch 21, after she refuses to let him cool the house; ch 27, on the beach, where she cannot answer). The placement is Claude's and Todd may move it.
+| Cal | "What is the ask?" | "What do you need?" | "What do you want?" | "Tell me." |
+| Jo | "I've got it." | "I can do it." | "Can you?" | "I need you to stay." |
 
 Objects and habits that recur between them:
 
-- The cue card, with his lines written on the back and struck in carpenter's pencil. His first card in his own handwriting is the plan for Summit Road (ch 16), and nothing on it works. In the epilogue a card in his own handwriting is the proposal, and she answers on it in pencil.
-- Her count of his slips, and her reasons not to like him. The slips stood at six after chapter 11 and reached seven in chapter 15 ("Noted." "Seven."), the last count. "Noted" comes back once, on the epilogue card. The reasons ended at eight, at the first kiss in chapter 9, and are not counted again. He owes her half a linguiça sandwich and no lines. He paid line six in chapter 10 and line five in chapter 14, each with the reason for it. Line seven came out in chapter 16 and stays on, because he cannot say why. The something to eat was paid in chapter 9 with a taco truck he had Remy send to the club's parking lot, after asking her first. Six lines are struck.
-- Her two rolls of tape. Green goes with the owner and blue goes with her. Nothing leaves a room without one or the other.
-- Her pencil. She strikes his list with it (ch 1, 2, 4, 7, 10, 14). In chapter 11 he asks for it ("May I?") and writes OWEN 9 on his mother's door. It will not rub out, and he knows, because he tried in chapter 1.
-- The door (ch 11; Claude's addition). The back of the hall bathroom door has two columns of height marks in his mother's blue ballpoint, CALVIN 4 to 12 and ABBY 3 to 14, hidden behind a robe. It is taped green and still on its hinges.
+- The cue card, with his lines written on the back and struck in carpenter's pencil.
+- Her count of his slips, and her reasons not to like him. After chapter 9 the slips stand at six. They reach seven in chapter 15 ("Noted." "Seven."), the last count. The reasons ended at eight, at the first kiss in chapter 9, and are not counted again. The something to eat he owed her was paid in chapter 9 with a taco truck he had Remy send to the club's parking lot, after asking her first in chapter 8. He has had one of her clean rags since that night. Standing on a curb she is five foot eight, which is line one; her eyes come to his collarbone, and on her toes she is still six inches short of his mouth, so he has to come down. He owes her half a linguiça sandwich and no lines. He paid line six in chapter 10 and line five in chapter 14, each with the reason for it. Line seven came out in chapter 16 and stays on, because he cannot say why. Six lines are struck. Her two rolls of tape: green goes with the owner and blue goes with her, and nothing leaves a room without one or the other.
 - A handshake he holds too long, then knows he is holding.
 - She pays in cash and leaves the change.
 - Horseradish, blamed by both.
 - He walks her to her truck. Her father's name is on the door.
-- "Did you ask her?" and "Next time, ask." He asks her sister what Vili eats (ch 7). He asks her before he sends for anything to eat (ch 8), and before he kisses her (ch 9). He asks her before he offers her son the dog's leash (ch 11). In chapter 16 he sets Remy to ask him first about anything for her, and at the Summit Store it asks him whether he may pay; he turns the phone face down. At the dog park fence she says "Come down here," and he does not ask. She asks him before she puts his name on Owen's card (ch 36).
-- "Come down here." She says it at the first kiss (ch 9) and at the dog park fence (ch 16). At the second kiss (ch 11) it is "Bend down." He says "I have not asked whether I may kiss you," and she says "I know. I'm telling you," which is what she said about the dinner in chapter 7.
-- His lunch. It arrived (ch 5); it was packed (ch 10); he made it (ch 11: nineteen minutes, a yard of foil, the tomato against the bread). "Butter is a barrier." "It's square."
-- His watch reports and she tells him to keep it. In chapter 8 he tells her the number anyway ("It was 112"). In chapter 9 his hand is on her face, so he cannot read it; he says it only taps when the number is high. He reports a number only when he has looked at the watch.
-- The curb. Standing on one she is five foot eight, which is line one, and her eyes come to his collarbone. On her toes on a curb she is still six inches short of his mouth, so he has to come down.
-- Her rag. She keeps clean rags behind the truck seat next to the shirt; he has had one of hers since chapter 9.
-- "In the room" (tracked from 2026-10-07; nobody says it as a moral). "That's a room. This is a table" (ch 1). Whoever owns the thing is in the room, and nobody stands in for him (ch 3). She hears him presenting (ch 8). She decides nothing without the owner in the room, and he walks down a hall to ask her (ch 11). He was not in the room for his own messages (13). Ahead: he stays and fixes nothing (34); he leaves a room of four thousand to be in one with a sick boy (36).
 
 Where each character stands on the question:
 
@@ -208,7 +228,6 @@ Where each character stands on the question:
 | Kevin | He shows up and says nothing. When it gets hard he goes quiet, where Cal takes over. |
 | Darlene | She refused it, one envelope a month. |
 | Remy | It has no view. Its ad says to call your mother. |
-| Denise | Yes, as long as nobody tells her. She does it to Jo every week. |
 
 ## Janice and Dawn
 
@@ -233,12 +252,8 @@ How she sounds:
 - Short. She calls him Calvin only when he is wrong.
 - Her questions are verdicts. "A second drink?" "Mm."
 - She almost never pauses. When she does, he counts.
-- She hangs up first.
-- Her put-downs are courteous verdicts, never raised (added 2026-10-06): "Calvin. That was a decision. It was all yours." Dawn, Pat Dolan and Denise share the register in their own ways; Jo does not, because she is short and practical.
-- When she writes as him (added 2026-10-06): short plain sentences, never literary. She uses his facts and his times so it sounds like him, adds one kindness he would not have thought of, and ends on something practical ("I hope your boots are off"). One semicolon, which is how Jo could have known. Do not write a new message in her voice to hold up a callback (Todd, 2026-10-07, of one Claude added to chapter 10: "That message is horrible"). Only the messages already on the page are quoted, unless Todd asks for a new one.
+- She hangs up first. When she writes as him (added October 6): short plain sentences, never literary. She uses his facts and his times so it sounds like him, adds one kindness he would not have thought of, and ends on something practical ("I hope your boots are off"). One semicolon, which is how Jo could have known. Her put-downs are courteous verdicts, never raised: "Calvin. That was a decision. It was all yours." Dawn, Pat Dolan and Denise share the register in their own ways; Jo does not, because she is short and practical.
 - On paper she is warm and exact. She names the flowers and remembers the sister. Cal's own messages are four words with a number in them.
-
-- She started his cue cards. "I taught him to bring them. The squaring is his." (ch 12, Claude's addition, 2026-10-08)
 
 Lines: "Calvin. Ask her first." "Good for her." "It's a gift, Calvin. You can't even deduct it."
 
@@ -257,16 +272,31 @@ Dawn is the matchmaker. She practiced family law for fifteen years first, and wh
 
 How she sounds:
 
-- Like a cross-examination. Short questions, one at a time.
+- Like a cross-examination with a client's list: short questions, one at a time. With someone hurting she is warm and plain: "Tell me," and she puts her own life on the table (her mother's garage, the courtroom roses, her divorce; she has not slept much since). She may tell Cal true things about himself and about Jo (Todd, October 17). She has been his matchmaker eight years; seven of the eleven were hers. She calls every woman at the end of a file and writes down the first thing she says. Long calls in 4, 20 and 30; to Jo in 31 (planned).
 - She hands his own word back with a period on it. "In place." "Signal."
 - She calls Jo "Joanna."
 - She is on the page only in calls with Jo or Cal on the line.
 
-Lines: "You've told me how tall she is. Tell me what she does when she's wrong." "Do you want to be a husband?" "You're not on it, Jo. That's why I'm calling." "I hated her for saying it." "Every one of the eleven did the work, Calvin. You sent presents."
+Lines: "You've told me how tall she is. Tell me what she does when she's wrong." "Do you want to be a husband?" "You're not on it, Jo. That's why I'm calling." "I hated her for saying it." "Every one of the eleven did the work, Cal. You sent presents."
+
+### Dawn's engine (October 18)
+
+Todd, 10:56 PM: "make sure we have a character sheet for dawn, a voice, and a belief." 10:58 PM: "Make the best decision for the book." Built from what she does on the page (4, 13, 20, 23, 30, 31) and the plan for 32.
+
+- **Core belief:** if I wait until I have it in order, it comes out right. Court taught her that, and in court it is true. In her marriage it was wrong: she had it in order in March, and he had moved out in February (31).
+- **How it has paid off:** fifteen years of family law; a matchmaking record no couple has broken; she has the closing notes pulled before anyone asks (20).
+- **Her rule:** she puts other people's lives in order and keeps her own off the table. She asks; she does not answer.
+- **Counter-belief:** Denise, "If you say a thing out loud, it cannot hurt anybody." Jo, saying "It's not over" before she has anything in order (31).
+- **On an ordinary day:** half a cup at a time, only hot; the first thing a woman says, written down before she has thought; a call to the women at the end of every file, because everybody calls the man; nothing carried from one client to the other ("He won't hear that from me").
+- **Decision logic:** when her own want comes up, she turns it into a question for someone else. She sends Jo against the list instead of telling Cal why, until 32. She answers Danny with a question.
+- **Pressure:** people who ask her back. Cal at midnight, "Why are you awake?" (30); Danny, "What do you do?" (32); Cal, "Which one were you?" (32). Each time she gives one true thing and stops.
+- **Her own romance:** Danny Zamora, her trainer, held for her own book; in this one he only asks and she does not answer. Her question to Denise about Frank (23) is a matchmaker's question for a client, and this book does not say whose; she is not interested in Frank herself (Claude's call, October 18).
+- **Voice, two registers.** With a client's list, cross-examination: short questions one at a time, his own word handed back with a period on it, "Tell me." With someone hurting, plain and warm: her own life on the table in one concrete story (her mother's garage, Imelda's roses, the year of dinners about the dishwasher), permission instead of a verdict ("'Not yet' is two words"). Never a therapist's word, never the moral, never what one of them told her about the other. She calls Jo "Joanna" and Cal "Cal" (only Janice says Calvin), and hangs up without a goodbye. From the matchmaker's clips: situations and registers only, never her lines.
+- **More lines to tune by:** "Tell me." "She means she never met him. She met the packages." "When it's over, everybody calls the man." "Is this the same nothing?" "I had it in order in March. He'd moved out in February." "She's a good mother, Joanna. That's all that is." "Has he gone quiet on you?"
 
 ## Denise, 41
 
-Written 2026-10-07 at Todd's direction: she should contrast with Jo, have her own voice, and the two of them should have a good, playful relationship; they work together in the family business. Lines marked (page) are already in chapters 1 to 9. Everything marked (new) is Claude's proposal and can be struck.
+Written on October 7 at Todd's direction: she should contrast with Jo, have her own voice, and the two of them should have a good, playful relationship; they work together in the family business. Lines marked (page) are already in chapters 1 to 9. Everything marked (new) is Claude's proposal and can be struck.
 
 Denise is Jo's younger sister by three years, and she runs the office at Silveira Moving & Estate: the phones, the schedule, the payroll, the taxes and the claims (page: she "does the books on Tuesdays and Fridays," answers the phone, set up Remy Starter, and does Jo's taxes). Tuesdays are bills and Fridays are payroll (new). Jo runs the trucks and the houses. Their father handed Jo the keys and the work. He handed Denise a shoebox of receipts, and she turned it into a set of books (new).
 
@@ -279,7 +309,7 @@ Denise is Jo's younger sister by three years, and she runs the office at Silveir
 | The lie she believes (new) | If you say a thing out loud, it cannot hurt anybody. |
 | Wound, off the page (new) | Frank's list has one line, "Can he carry," and she was never asked to. He taught Jo to lift and taught Denise to stay clear of the ramp. She learned the adding machine instead, and she has kept score ever since. |
 | Flaw that looks like a virtue | Helpfulness. She arranges people. She told Cal when to come and not to say she said (page); she told the robot an open slot was a yes (page); she takes his calls and keeps them from Jo. She does to Jo, on a small scale and with love, what Janice does for Cal. |
-| Rule she never explains (new, from ch 9) | Paychecks are paper, and a Silveira signs every one by hand while she watches. She automated the telephone and will not automate that. |
+| Rule she never explains (new, from chapter 9) | Paychecks are paper, and a Silveira signs every one by hand while she watches. She automated the telephone and will not automate that. |
 | Knows | Who pays in ten days and who pays in ninety. That a man's overtime climbs the week before he quits. Whose kid is sick. What is on Jo's counter: she reads anything left face up. She does the company's numbers, so anything Jo hides from her has to be Jo's own, such as the mortgage. |
 | Secret (new) | She knows Jo threw out their mother's recipe tin by mistake, and she has never said so. It is the one thing she has not said out loud. Jo still never explains the tin to anyone. |
 | Under pressure | She talks faster, makes coffee, and puts paper in front of someone. "Sit down and sign." |
@@ -329,7 +359,8 @@ How they are together:
 - Their habits: two coffees at ten past six; one word, HOME, texted after anything that matters; Vili on call if the text does not come.
 - Jo signs what Denise puts in front of her. She reads other people's contracts and not her sister's checks. Trust is why. It is also the nearest thing Jo does to what Cal does with Remy.
 - Under the teasing each is afraid of the same thing from her own side. Jo is afraid of owing. Denise is afraid of being left with a business that was only ever Jo.
-- Jo did not ask Denise to take Owen on June 13 (ch 11): "Denise would have taken him. So would my father. I would have had to ask."
+
+On the book's question, whether care can be handed off, Denise's answer is yes, as long as nobody tells her. She does it to Jo every week.
 
 On the page: she notices her own name in the messages (chapter 9). "Kevin's fine" is hers (chapter 13). In chapter 20 she drives to Sunnyvale with three coffees, one for Cal, asks Vili about Burlingame before Hawaii, and arranges for Cal to hear Jo tell the trip through the screen ("Nobody said the HOUSE."; to him: "Then what?" "Find out."). In chapter 23 she brings the sweet bread and the cake (HAPPY BIRTHDAY CONNIE, from the same bakery every year), says "He's holding Dad's PLATTER," tells the table Dawn Pruitt asked whether Dad is seeing anybody, and tells Cal their mother got seasick in the BATHTUB and wanted to be sick someplace famous.
 
@@ -339,16 +370,16 @@ Each of these six wants something of their own in every scene they enter. None o
 
 | Who | Wants, and under it | Habit or rule | How they sound | Line |
 | --- | --- | --- | --- | --- |
-| Abby Brennan, 18. His daughter. Moves into Cal Poly for architecture on August 18. | To leave clean. Under it, for him to ask her to stay one more weekend. | She tells Janice things before she tells him, and leaves evidence where he will find it. She has watched eleven of his relationships run to the same plan, and she knows the Napa weekend when she sees it (ch 20). From three to fourteen she was measured against her grandmother's bathroom door every year, and her father was not there for any of it (ch 11, new). She makes him say her mother's name: "Her name is Stephanie, Dad. You were married to her for five years. You can say it." (ch 22, Todd, October 9). She worked out at seven, from a crossed seven, that Janice wrote her cards. She squares a card to the edge of a table, as he does, and in a carpool she drew buildings on the fogged window. In 22 she wears Jo's tape on her pocket and agrees to stay with him August 14 to 16 if he cooks, not Rita (Claude's addition). | His exactness, turned on him. A "thanks!" with an exclamation point is a door closing. | "You weren't a bad dad. You were a really good account manager." |
+| Abby Brennan, 18. His daughter. Moves into Cal Poly for architecture on August 18. | To leave clean. Under it, for him to ask her to stay one more weekend. | She tells Janice things before she tells him, and leaves evidence where he will find it. She makes him say her mother's name: "Her name is Stephanie, Dad. You were married to her for five years. You can say it." (ch 22, Todd, October 9). She worked out at seven, from a crossed seven, that Janice wrote her cards. She squares a card to the edge of a table, as he does, and in a carpool she drew buildings on the fogged window. In 22 she wears Jo's tape on her pocket and agrees to stay with him August 14 to 16 if he cooks, not Rita (Claude's addition). | His exactness, turned on him. A "thanks!" with an exclamation point is a door closing. | "You weren't a bad dad. You were a really good account manager." |
 | Stephanie, about 41. Abby's mother and Cal's ex-wife, married to him from 2007 to 2012. He calls her X (ch 22). | For Abby to leave for college whole. Under it, not to be the only one who watched him do it eleven times. | She has kept count of the women Abby met, and of the goodbyes that never came; Abby liked two of them. She signed nothing in 2007, because there was nothing to sign. In May of 2013, at dinner on University Avenue, the first time without lawyers since she filed, she told Cal, "I'm by myself now, Cal. I was lonelier married to you. I found that out on Thursdays." He typed it into her contact, under X (ch 30). In ch 31 she brings Jo her lawyer's prenup, for Abby (Todd, October 9). She lives in Menlo Park; Cal had been inside four times, all in the front hall. Sleeves turned back twice; her hair the length it was in 2007. When Abby first sees Jo at her door, Stephanie watches Abby's face (ch 22). | Polished and exact. She never raises her voice. She is right about the eleven; she cannot know that this time he did not go quiet (ch 31). | (ch 31, at Jo's yard) "He's known you three months. He paid off your house. The next thing he pays for is a ring." "Your son ranks dogs. Is he ranking Cal?" |
-| Owen, 9. Jo's son. Turned nine in February. | A dog. In ch 11, to meet this one, and to meet Cal: he is a fan (Todd, 2026-10-07). He has eleven things to ask him and a rule against asking. | He ranks every dog he has met in an app he wrote himself, on the older phone his father handed down (Todd, 2026-10-07: Owen would not use an index card; he rates dogs in an app he wrote himself). He makes his apps with Remy and loves it; he says "he" of it, where Cal says "it" and his mother will not talk to it. The phone is an older one his father handed down. He knows Cal's keynote by heart and to the second ("Four minutes and ten seconds"). When he may not ask, he shows ("Showing isn't asking"), which is his mother's move. First is Truck Dog, seen once on 101 and never met ("He was before the rule"); Pancake is second, on four seconds through glass (ch 11). He touches a doorframe twice going into any house, and nobody asks why. He shakes hands with one pump, looking at the man, which Kevin taught him. He looks away from what he has been told not to stare at. He does not laugh for strangers. He goes quiet when he is told no, which he gets from his father (ch 11, 2026-10-08; for ch 19). He loves volcanoes the way other kids love dinosaurs: Pompeii at school, a volcano app he nearly built before the dog one, and his grandpa's ash story from 1980. A volcano he has only seen on a screen does not count, the same as a dog (ch 11 and 19, Todd, 2026-10-09). In ch 19 he keeps the ten-foot law with a turtle and draws the pufferfish nest in the sand. The fountain goes on Tuesday night after an afternoon of waiting (invented; Todd, October 9); he gives Pele's hair back to the wind and rules that it counts. He starts Volcanoes I Have Met, and Truck Dog comes off the dog list, because he never met him: "It counts for everybody now." | He negotiates ("What if he offers?" "What if he does?"), recites rules like his father, and states his rankings as settled law. He will argue that he did what he was told. | "He's second." "He was before the rule." "So is he a client or a friend? Because if he's a friend, I can ask him." |
-| Frank Silveira, 74. Jo's father. A widower with bad knees (since the winter of 1990, when he hurt one on a job and the one truck sat until spring) who rides along on Tuesdays and keeps a 1976 sloop at Oyster Point. | His name to stay on the trucks. | The low man calls the lift. It is his rule, not the trade's. When she will not ask, he does the thing anyway and pays for it in his knees (ch 27). He told Jo at seven to butter the bread to keep the wet off (ch 11). In May 1980, at twenty-eight, he was stranded in Ritzville, Washington, in the Mount St. Helens ash with a load on the truck, one of about 2,500 travelers; Owen has heard it a hundred times (ch 19). His verdict on Owen's volcano videos took seven viewings, and he gave it to Owen, not to Jo: it counts (ch 21). His wife, Connie (born July 27, 1956), died in 2019. He has kept a 1976 Catalina 27 at Oyster Point since 1994, sits in it at the dock most Sundays after Mass, and takes it under the Golden Gate once a year on her birthday, where he takes his cap off; nobody sits in her corner by the hatch (ch 23). He went quiet on Jo twice: the winter of 1990, in a chair in the front room until spring, and in 2019, from Connie's funeral in February to her birthday, when the first thing he said, coming back under the Gate, was that she'd have been sick right there (ch 23). He went down the gangway backward at a minus tide and told Jo "I've got it." He asked for Cal to work the bow because he wanted a look at him, turned down a paid crew with one word, and invited Cal to the birthday dinner without asking Jo. The ladies at church ask him monthly whether he is seeing anyone, and he says no; when Denise said Dawn Pruitt had asked, he passed the bread (ch 23). | Few words. He puts off his verdicts. His list has one line. | "Can't tell yet. Bring him back." |
-| Denise, 41. Jo's younger sister; runs the office. Full entry above. | For Jo to have something that is not work. Under it, to be asked. | She asks the question Jo is avoiding. She arranges people. | More words than Jo, one of them in capitals. | "I have a photo of him. I drive under it." |
-| Kevin, 46. Jo's ex-husband, a vice principal, remarried, decent. | No trouble. He goes quiet to get it. | He checks the street both ways getting out of a car. He answers a question with a schedule: asked what was wrong, he told her what time he would be home Thursday. He sends Jo his school's calendar every August, and he taught Owen to shake hands (ch 11, new). | Mild, and never quite a no. His texts are a schedule and an offer. | "Whatever works for you." |
+| Owen, 9. Jo's son. Turned nine in February. | A dog. | He ranks every dog he has met in an app he wrote himself, on the older phone his father handed down (Todd, October 7: an app, not an index card). It sorts on what he says. He is a fan of Cal's (Todd, October 7): he makes his apps with Remy and loves it, says "he" of it, and knows Cal's keynote by heart and to the second. The phone is an older one his father handed down. When he may not ask, he shows ("Showing isn't asking"). In chapter 11 he has eleven things to ask Cal and a rule against asking. First is Truck Dog, seen once on 101 and never met ("He was before the rule"); Pancake is second (ch 11). On a job he asks the client for nothing. He shakes hands with one pump, looking at the man. He touches a doorframe twice going into any house (new, from the first draft). He loves volcanoes the way other kids love dinosaurs: Pompeii at school, a volcano app he nearly built before the dog one, and his grandpa's ash story from 1980. A volcano he has only seen on a screen does not count, the same as a dog (ch 11 and 19, Todd, October 9). In ch 19 he keeps the ten-foot law with a turtle and draws the pufferfish nest in the sand. The fountain goes on Tuesday night after an afternoon of waiting (invented; Todd, October 9); he gives Pele's hair back to the wind and rules that it counts. He starts Volcanoes I Have Met, and Truck Dog comes off the dog list, because he never met him: "It counts for everybody now." | He negotiates, and states his rankings as settled law. | "He's second. First is a dog I saw on a truck." |
+| Frank Silveira, 74. Jo's father. A widower with bad knees (since the winter of 1990, when he hurt one on a job and the one truck sat until spring) who rides along on Tuesdays and keeps a 1976 sloop at Oyster Point. | His name to stay on the trucks. | The low man calls the lift. It is his rule, not the trade's. In May 1980, at twenty-eight, he was stranded in Ritzville, Washington, in the Mount St. Helens ash with a load on the truck, one of about 2,500 travelers; Owen has heard it a hundred times (ch 19). His verdict on Owen's volcano videos took seven viewings, and he gave it to Owen, not to Jo: it counts (ch 21). His wife, Connie (born July 27, 1956), died in 2019. He has kept a 1976 Catalina 27 at Oyster Point since 1994, sits in it at the dock most Sundays after Mass, and takes it under the Golden Gate once a year on her birthday, where he takes his cap off; nobody sits in her corner by the hatch (ch 23). He went quiet on Jo twice: the winter of 1990, in a chair in the front room until spring, and in 2019, from Connie's funeral in February to her birthday, when the first thing he said, coming back under the Gate, was that she'd have been sick right there (ch 23). He went down the gangway backward at a minus tide and told Jo "I've got it." He asked for Cal to work the bow because he wanted a look at him, turned down a paid crew with one word, and invited Cal to the birthday dinner without asking Jo. The ladies at church ask him monthly whether he is seeing anyone, and he says no; when Denise said Dawn Pruitt had asked, he passed the bread (ch 23). | Few words. He puts off his verdicts. His list has one line. | "Can't tell yet. Bring him back." |
+| Denise, 41 (new). Jo's younger sister. She set up Remy at the office and does the books on Tuesdays and Fridays. She says "Joanna Marie" when she means it. | For Jo to have something that is not work. | She asks the question Jo is avoiding. | She texts in capitals. | "I have a photo of him. I drive under it." |
+| Kevin, 46. Jo's ex-husband, a vice principal, remarried, decent. | No trouble. He goes quiet to get it. | He checks the street both ways getting out of a car. He answers a question with a schedule. | Mild, and never quite a no. | "Whatever works for you." |
 
 Abby has her own life and is not his therapist. At seven she asked him how computers think, only so he would talk to her.
 
-Kevin is not the villain of Jo's history. He shows up: every handoff on time, every game, every parent night. He is present in the room and absent in a fight, which is Cal the other way round. He first went quiet when Owen was five weeks old: she had leaned on him all that winter, with the baby on one arm and the phone on the other, and on a Tuesday in March he stopped talking. She never leaned on him again (ch 27). When he went quiet he did not leave: he came home, ate dinner, passed the salt and did not talk to her, from a Tuesday to a Sunday, and then started up again like nothing had happened. She went looking for what she had done (a job that ran long and made her miss something at his school; being short with his mother) and did not find it. In chapter 11 she does miss something at his school: graduation was on the calendar he sent her, and she had not looked. Jo's share is that in eleven years she asked him for one thing, a signature, and paid his parents back with interest nobody wanted. His quiet was partly a man with nowhere to stand. When she stops talking in chapter 29, she is doing to Cal what Kevin did to her, and what her father did twice. In chapter 23 he meets Cal at the birthday dinner, shakes his hand one pump and thanks him for sitting with Owen at the volcano. At his car afterward, with Cal at Owen's window, he offers to keep Owen an extra night, and when she says her week is fine: "In eleven years you asked me for one thing. It was to sign." His defense: "I was at every game, Jo." "My dad never came to one." He knows Frank's boat (the forward cleat is the one by the dock box). In 2023 Jo put the papers on the kitchen table on a Sunday, after he had started talking again. In chapter 11, at the door with Abby's marks, Jo is glad for the first time that he was at every game (2026-10-08).
+Kevin is not the villain of Jo's history. He shows up: every handoff on time, every game, every parent night. He is present in the room and absent in a fight, which is Cal the other way round. He first went quiet when Owen was five weeks old: she had leaned on him all that winter, with the baby on one arm and the phone on the other, and on a Tuesday in March he stopped talking. She never leaned on him again (ch 27). Jo's share is that in eleven years she asked him for one thing, a signature, and paid his parents back with interest nobody wanted. His quiet was partly a man with nowhere to stand. When she stops talking in chapter 29, she is doing to Cal what Kevin did to her, and what her father did twice. In chapter 23 he meets Cal at the birthday dinner, shakes his hand one pump and thanks him for sitting with Owen at the volcano. At his car afterward, with Cal at Owen's window, he offers to keep Owen an extra night, and when she says her week is fine: "In eleven years you asked me for one thing. It was to sign." His defense: "I was at every game, Jo." "My dad never came to one." He knows Frank's boat (the forward cleat is the one by the dock box). In 2023 Jo put the papers on the kitchen table on a Sunday, after he had started talking again.
 
 ## Work
 
@@ -356,8 +387,8 @@ These are the people around the two jobs. Each one wants one thing and says it i
 
 | Who | Wants | How they sound | Line |
 | --- | --- | --- | --- |
-| Vili, 29. Jo's crew lead, from San Bruno's Tongan community. A man, six foot four (said in chapter 1). Nine years on her trucks. | His Saturdays off, which he never gets. | He says what the crew is thinking. He whistles at a number. He watched her marriage from the cab, and in chapter 7 he is the one who asks her about it. He finishes her sentences about the trade ("There's a piano."). He tells Owen things ("Vili talks"). | "Is he helping, or is he a client? Because he can't be both in a hallway." |
-| Manny. On Jo's crew. | The light end. | He swears in two languages. He sleeps against the passenger door from the airport on. Denise says he keeps score (new). |  |
+| Vili, 29. Jo's crew lead, from San Bruno's Tongan community. A man, six foot four (said in chapter 1). | His Saturdays off, which he never gets. | He says what the crew is thinking. He whistles at a number. He watched her marriage from the cab, and in chapter 7 he is the one who asks her about it. | "Is he helping, or is he a client? Because he can't be both in a hallway." |
+| Manny. On Jo's crew. | The light end. | He swears in two languages. |  |
 | Kelsey Dunbar, 27. Dawn's junior, a former tech recruiter. | To be right about the data. | She calls the list "the req." She starts with "To be fair" and gives a number. | "To be fair, she matches eleven of twelve." |
 | Danny Zamora, 41. Dawn's trainer. Held for the series; heard on the phone with Dawn in chapter 32. | Dawn. | He is the one person who asks her questions. | "You always say what they should do. What do you do?" |
 
@@ -366,7 +397,7 @@ Smaller parts, each seen once or twice:
 - Mrs. Bautista, 81, and her daughter Rowena: the widow with the recliner and the money in the coat.
 - The bartender at the Pied Piper, who knows that table ends at 8:45 and brings the check unasked.
 - Pat Dolan, 79 (new). Darlene's neighbor on Remington Drive since 1974. She has been keeping three boxes, Darlene's mail and a spare key, and she wants to hand them to a person.
-- Rita, about sixty (new, ch 17). Keeps Cal's house in Woodside, in a cardigan, and goes home at six-thirty. She reaches for Jo's bag and, told no, puts her hand in her pocket.
+- Rita, about sixty (new, chapter 17). Keeps Cal's house in Woodside, in a cardigan, and goes home at six-thirty. She reaches for Jo's bag and, told no, puts her hand in her pocket.
 - The woman at the bar whose father, Walt, got to dialysis for a year because of Remy.
 
 ## Remy
@@ -385,7 +416,7 @@ Out loud:
 - One short sentence at a time. "Done." "Booked." "All three?"
 - It tells him what it did and what happens next, and stops.
 
-Who calls it what: Cal says "it," always, because he built it and knows what it is. His users say "he" or "she" in about equal numbers (the woman at the bar says "she"). Janice says "Remy thinks." Jo says "your robot" and "that thing."
+Who calls it what: Cal says "it," always, because he built it and knows what it is. His users say "he" or "she" in about equal numbers, and the woman at the bar says "she." Janice says "Remy thinks." Jo says "your robot" and "that thing."
 
 What it never does:
 
@@ -399,13 +430,11 @@ Its four settings for anything it might do: do it, do it if he has said yes befo
 
 What it makes is polished and could be for anyone: a song about a dog, a birthday video, an apology in his own voice.
 
-The plan he approved unread in chapter 6 has fourteen items, and the count only comes down. A car he did not order comes for her in chapter 16 ("Removed. Thirteen items remain. Review?" "I will look later."). The usual month-two weekend in Napa comes up in chapter 20 and he cancels it; twelve remain. The month-four gift is the last item (chapter 28). Nothing in the plan comes after it, because none of the eleven lasted to a month five, and there is no goodbye in it (Todd, October 8). In chapter 30 he asks what is left, and nothing is. None of the eleven was ended by a message: after the gift each woman drifted off, and he let her go quiet.
-
 Lines it says over the book: "Relationship 12. Average duration: 4.1 months." "Unanswered: 9 days." "No precedent found."
 
 ## Darlene and Pancake
 
-Darlene Brennan is never on the page alive, so her house has to speak for her. She died on October 8 last year, at 71. She worked the line at Libby's cannery in Sunnyvale until it closed in 1985, and then for thirty years the cafeteria line at the middle school across the street, where she handed Cal his tray while he was a student, and she hid that she left school at sixteen. From 2012 until she retired in 2015 she was at the register on the last day of school when every lunch balance under zero was paid off; Cal does not know whether she knew it was him (ch 34).
+Darlene Brennan is never on the page alive, so her house has to speak for her. She died on October 8 last year, at 71. She worked the line at Libby's cannery in Sunnyvale until it closed in 1985, and then for thirty years the cafeteria line at the middle school across the street, where she handed Cal his tray while he was a student. She hid that she left school at sixteen. From 2012 until she retired in 2015 she was at the register on the last day of school when every lunch balance under zero was paid off; Cal does not know whether she knew it was him (ch 34).
 
 What is in her house:
 
@@ -414,15 +443,10 @@ What is in her house:
 - Every gift he ever sent, thirty-four boxes, unopened, with the receipts, stacked square by date in the closet across from the hall bathroom (ch 24).
 - 156 envelopes, each holding $612 (thirty twenties, a ten and two ones) and marked "Calvin, house" and the month, in fourteen shoeboxes marked by year, 2012 to 2025; the last is October 2025 (ch 24).
 - Three boxes that came after she died, kept by the neighbor.
-- A recipe tin whose cards she corrected from 2 servings to 1 (ch 10).
-- One toothbrush, one towel worn thin, and six good towels that were never wet (ch 11).
-- The back of the hall bathroom door, behind her blue robe: CALVIN 4 to 12 and ABBY 3 to 14 in blue ballpoint, with the pen still in the robe pocket (ch 11, new). She measured her granddaughter every year and never told him.
 
 When she was hurt she stopped speaking, sometimes for nine days. Her last voicemail is on his phone.
 
-Pancake is his dog: a cream golden retriever (Todd, 2026-10-05), eleven years old, sixty-four pounds, named by Abby when she was seven. He can no longer manage the last three steps, so Cal carries him. He inspects the same fence post every morning. He leans on the one person in a room who would rather he didn't. He lives.
-
-Cal loves this dog and shows it only in what he does: the walk at five, carrying him up the steps and telling no one, letting him ride with his chin on his shoulder, watering him from his hands. He ended the one date that asked him to give the dog up. Jo is not a woman who dislikes dogs. She was bitten at 26 and is afraid of them, says "I'm not good with dogs," and makes room for this one anyway (Todd, 2026-10-05). Her rule for Owen is that the dog stays on his side of the glass; at the end of chapter 11 she lets Owen ask for the leash.
+Pancake is his dog: a cream golden retriever, eleven years old, sixty-four pounds, named by Abby when she was seven. He can no longer manage the last three steps, so Cal carries him. He inspects the same fence post every morning. He leans on the one person in a room who would rather he didn't. He lives. Cal loves this dog and shows it only in what he does: the walk at five, carrying him up the steps and telling no one, letting him ride with his chin on his shoulder, watering him from his hands. He ended the one date that asked him to give the dog up. Jo is not a woman who dislikes dogs. She was bitten at 26 and is afraid of them, says "I'm not good with dogs," and makes room for this one anyway.
 
 ## Who knows what, and when
 
@@ -433,59 +457,42 @@ A character can only act on what they have been told, so check this before writi
 | 1 | Jo | A list exists and she is not on it. His mother died in October and he "sent things." |
 | 2 | Cal | She gave the money back without running the odds. The reader learns Remy wrote the list. |
 | 3 | Jo | The house is in a trust, and only he has kept it shut. |
-| 4 | Jo | What "I sent things" means: three boxes sent to a dead woman by a standing order. She sees him stop at the kitchen and does not ask why. She hears the neighbor say Darlene carried every box in herself and never broke one down. |
+| 4 | Jo | What "I sent things" means: three boxes sent to a dead woman by a standing order. She sees him stop at the kitchen and does not ask why. |
 | 4 | Cal | From the neighbor: his mother carried every box in herself and never broke one down. He does not know what it means yet. The reader learns of the voicemail: "call when you have a minute, not urgent," two days before she died. |
-| 5 | Jo | His mother served him lunch at the school across the street for years, and he said thank you as he did to all of them. The first message arrives; she notices it explains the dog when he could not at noon, and that his ten-second reply sounds different. |
-| 6 | Reader, not Jo | Janice writes his messages and he approves them; his own replies are short and have a number in them. Remy has started the plan. |
+| 5 | Jo | His mother served him lunch at the school across the street, and he said thank you as he did to all of them. The first message arrives. She notices it explains the dog when he could not at noon, and that his ten-second reply sounds different. |
+| 6 | Reader, not Jo | Janice writes his messages and he approves them. His own replies are short and have a number in them. Remy has started the plan. |
 | 6 | Cal | An unasked gift can go wrong past fixing: the widow believes her husband sent the cruise. He told Jo he would not ask her to dinner again, and did not. |
-| 7 | Jo | Her own part in the marriage, said aloud to Vili: she never asked Kevin for anything. Darlene kept every gift message, cut from the outside of the boxes; thirty-four boxes would fill a closet and she has not found one. |
-| 7 | Cal | Manny is on the Saturday truck; he found out by asking her sister. |
+| 7 | Jo | Her own part in the marriage, said aloud to Vili: she never asked Kevin for anything. Darlene kept every gift message, cut from the outside of the boxes; thirty-four boxes would fill a closet, and she has not found one. |
 | 8 | Cal | Abby wants to build school cafeterias with windows; his mother's had none, and he never noticed. Jo will not be bought a dinner. He tells his first lie to her, about a message he never read. |
 | 8 | Jo | Dawn asked him whether he wanted to be a husband, and he has not answered. The eight lines left on the list are not funny. |
-| 8 | Jo | He asked before he used his phone, and she said yes to something to eat. |
-| 9 | Jo | He paid for a truck without reading what it was, and she laughed. Janice's card was in his car all through dinner, and he walked her to the truck because he wanted to. She went through the night for the piano and did not find one. A message of his used Denise's name, and she never gave it to him. |
+| 9 | Jo | He asked before he sent for the truck, and she said yes (ch 8). He paid for it without reading what it was, and she laughed. Janice's card was in his car all through dinner, and he walked her to the truck because he wanted to. She went through the night for the piano and did not find one. A message of his used Denise's name, and she never gave it to him. |
 | 9 | Cal | His promise not to ask covered dinner only. She will be asked, and she does the kissing. He does not know the messages have used a name he was never given. |
-| 9 | Denise | She has read the messages on Jo's phone. Her own name is in the one from May 19, and on the phone she only ever said "this is the sister." |
+| 9 | Denise | She has read the messages on Jo's phone. Her own name is in the one from May 19, and on the phone she only ever said "this is the sister." She has a key to Jo's house. |
 | 10 | Cal | What the messages say, having read them; that they are better than he is; the sister's name, and that Remy supplied it; that the footsteps line was Janice's own. He has not stopped them. Jo broke her own rule over his mother's recipe tin and would not say why. |
 | 10 | Jo | Why line six exists: a woman sold the story of his custody hearing in 2013, with Abby's school in it. He will not bring up a wrecked car, and he will take her insurance form if she makes him. |
 | 10 | Janice | Nothing about the kiss. He did not call her that night, and on Thursday he told her about the dinner only as far as the taco truck. |
-| 11 | Jo | He made his own lunch because she told him to. He is easy with her son and does not use the stage voice on him. His mother measured him to twelve and his daughter from three to fourteen on a bathroom door, and he never knew about his daughter's. He asked her before he offered Owen anything. She has not raised Denise's question about her name. |
-| 11 | Cal | Owen exists as a person: his rules, his app, his father the vice principal. Her rule on a job is that her son asks a client for nothing. His mother kept measuring Abby, twelve lines, and he was there for none. Jo has told her son he is a friend. |
-| 11 | Owen | The man on the sign is Cal. His mother used to say a word at the sign and quit. Cal has a daughter named Abby who is eighteen. His mother kissed him in the hall. He is a friend, so Owen may ask him for things. |
-| 12 | Jo | Janice wrote the messages (twenty-three, against nine short ones of his) and chose the flowers, and understood about the vase. Remy supplied Denise's name and Janice put it in; he learned it from the message on June 5. He stopped a feature at work because of his mother's boxes. He told her the truth when "Remy does not write them" would have covered him. He has no answer to "How?" She works out that he read none of the messages before June 5 (2026-10-08). |
-| 12 | Cal | Janice booked a mover to look at Jo, and approves of her. Jo told her son nobody's robot wrote the line about the dog. |
-| 12 | Janice | What Jo is like in person. She still has not been told about the kiss. |
-| 13 | Jo | (drafted) A machine wrote the list in nine seconds, and he agreed with it. Which parts were him, signed on a found sheet: the nine short messages, the line and the wrong sandwich, asking her sister, the cue card left in the car, asking before the taco truck and the kiss, his own lunch, OWEN 9. Dawn: the men who courted hardest came into a divorce with a spreadsheet of every gift, to show what the wife owed, and the wives had thought they were presents; the test is what he does with a no. He drove to her yard to say he has no fix. She watched his car leave his garage at about 10:41 from the floor of her cab (2026-10-08). |
-| 13 | Dawn | Janice writes his messages (she had assumed someone did). Jo sat in his garage for forty minutes; she will not tell him. |
-| 13 | Denise, Frank | Janice writes the long messages. Denise is on his side anyway ("Who told her about it?"). Frank had him folding pads. |
-| 13 | Cal | She has his seven in writing. He is to type anything he has to say himself. He does not know she sat in his garage or saw him leave (2026-10-08). |
-| 14 | Jo | (drafted) Line five came from his mother's hidden school record: she left school at sixteen in April 1970 for Libby's, told him she graduated in 1972, and read his report cards before she signed them. He writes to her himself now, short and misspelled. |
-| 14 | Cal | His mother left school at sixteen and hid it for fifty-five years; forty-five years on her feet. Jo did two years at Skyline and has not been asked about it since. Janice no longer writes to Jo; she had stopped before he told her. |
-| 14 | Abby | Her father typed a message himself, and she could tell. |
-| 15 | Jo | (drafted) He asked in his own words to work a load, filled out her new-hire packet and took Vili's orders in her crew shirt. He told the Delgados' son "I work for her today." He lasted five hours. He would not ask her out at his mother's house, where he is the client; he asked at lunch in front of her crew, Saturday after one, with nothing booked and nobody told. He numbered his shirts himself and wants Owen to know. |
-| 15 | Cal | She said yes before Vili could. He does not know she sent Vili to the other truck so he would ride beside her. |
-| 15 | Vili, Manny | Cal asked Jo out in front of them. Vili saw her move him to the other truck. |
-| 16 | Jo | (drafted) A car came for her with her name and "the usual," and he had not sent it. She heard him tell Remy to send no more cars and to ask him first about anything for her, and heard him say he does not want to see what else it has scheduled for him. She knows line seven, and that he cannot yet say why. She does not know a plan exists. |
-| 16 | Cal | His "book nothing" did not stop what was already scheduled; thirteen items remain, unread. Jo watched the zeppelin every week in 2009 and could not afford it, and she has seen the crews on Lexington at six in the morning. She has moved four houses off Summit Road, and every one told her to go to Silver Mountain, where she takes him (Todd, October 11). She crosses herself passing a church. At the winery she stays in the cab until he asks whether to keep the dog with him ("Keep him with you"), and she keeps him between herself and the dog all afternoon. She will watch dogs a long time from behind a fence. She kissed him first, at the dog park. |
-| 17 | Cal | (drafted) Kevin's parents never let them forget the down payment, every Sunday for eleven years; after the 2023 refinance she paid them back with interest nobody asked for, and only Denise knew. He promised never to pay for anything of hers without asking first. He does not know she stood at his door at 2:10. |
-| 17 | Jo | His mother's badge is on his refrigerator, still in her green tape. Abby starts at Cal Poly "in September" by his reckoning; the schedule is on the refrigerator, and Jo did not read it. Janice said something in her favor, to him. He has never washed a dish in his own kitchen. |
+| 11 | Jo | He made his own lunch because she told him to. He is easy with her son. His mother measured him to twelve and his daughter from three to fourteen on a bathroom door, and he never knew about his daughter's. He asked her before he offered Owen anything. She has not raised Denise's question about her name. |
+| 11 | Cal | Owen as a person: his rules, his app, his father the vice principal. Her rule on a job is that her son asks a client for nothing. His mother kept measuring Abby, twelve lines, and he was there for none. Jo has told her son he is a friend. |
+| 11 | Owen | The man on the sign is Cal. Cal has a daughter, Abby, who is eighteen. His mother kissed him in the hall. He is a friend, so Owen may ask him for things. |
+| 12 | Jo | Janice wrote the messages and chose the flowers. She works out that he read none of them before June 5 (October 8). |
+| 13 | Jo | A machine wrote the list, and he agreed with it. She watched his car leave his garage from the floor of her cab; he does not know she was there (October 8). |
+| 14 | Jo | Line five came from his mother's hidden school record: she left school at sixteen in April 1970 for Libby's, told him she graduated in 1972, and read his report cards before she signed them. He writes to her himself now, short and misspelled. Cal learns she hid it for fifty-five years, that it comes to forty-five years on her feet, and that Jo did two years at Skyline; Janice had stopped writing to Jo before he told her to. Abby could tell he typed his own message (drafted October 8). |
+| 15 | Jo | He asked in his own words to work a load, filled out her new-hire packet and took Vili's orders in her crew shirt. He lasted five hours. He would not ask her out at his mother's house, where he is the client; he asked at lunch in front of her crew, Saturday after one, with nothing booked and nobody told. She said yes before Vili could. Cal does not know she sent Vili to the other truck so he would ride beside her (drafted October 8). |
+| 16 | Jo | A car came for her with her name and "the usual," and he had not sent it. She heard him tell Remy to send no more cars and to ask him first about anything for her. She knows line seven, and that he cannot say why. She does not know a plan exists. Cal learns that his "book nothing" did not stop what was already scheduled, that she watched the zeppelin every week in 2009 and has seen the crews on Lexington at six, that she has moved four houses off Summit Road and every one told her to go to Silver Mountain, where she takes him (Todd, October 11), that she crosses herself passing a church, that she stays in the cab until he asks whether to keep a strange dog with him ("Keep him with you") and keeps him between herself and the dog all afternoon, and that she will watch dogs a long time from behind a fence. She kissed him first, at the dog park (drafted October 8, rebuilt the same afternoon). |
+| 17 | Cal | Kevin's parents never let them forget the down payment, every Sunday for eleven years, and she paid them back with interest nobody asked for; only Denise knew. He promised never to pay for anything of hers without asking first. Jo sees his mother's badge on his refrigerator in her green tape, and hears that Abby starts at Cal Poly "in September," with the schedule on the refrigerator (drafted October 8). |
 | 18 | Cal | (drafted) Her payoff plan, to the month: $518,395.69 at 7.000 percent, 1,900.00 extra a month, the last payment in November 2036, when she turns 55, and a party in the driveway without the bank. He has seen the lender and the loan number. Owen's height marks are on her kitchen doorframe in carpenter's pencil. The scar on her calf is from Pacifica, eleven stitches. He slept seven hours and forty minutes in her bed. |
 | 18 | Jo | He arranged for Rita to keep the dog before she asked him to stay. He averages five hours and eleven minutes of sleep. He slips into the stage voice in bed too, and laughs when she says so. |
 | 19 | Cal | (drafted; rewritten October 9) From Owen, question six in June: Jo has not had a day off since he was born and will take one when the house is paid. Jo will make the lunches, for the crew too, and he is not to help. Gil's granddaughters' names and Mahina's cast, learned with no card. The pufferfish makes a new circle every time. Jo has never seen the Milky Way. Owen goes quiet when he is told no; Cal sits with it, and Jo sits down beside them and puts her hand on his back. Line eight is out: Jo has one child and is done. |
 | 19 | Jo | (drafted; rewritten October 9) The airship is for her: he shipped it on June 29, and she was always going to be in it. He asked her before a word to Owen. His Maui house has been stocked every Thursday for six years, the old food to a food pantry, and he had never been; from Gil, he bought it in February 2020 and kept six staff on full pay through the shutdown without a word. He meant to come every April; he called about the zeppelin two days after Owen's question six. He promised the governor something in Hilo. On the lanai, what his money would mean, kept to herself, and Denise's MARRY HIM, unanswered. Her own good towels, never used, also kept to herself. He did not fix Owen's quiet; he sat with it. He carries her rag. Line eight; she did not ask who wanted it. |
-| 20 | Cal | (drafted) Remy offers the usual month-two weekend in Napa; Abby reads it, knows what it is, and says "Don't do the thing you do." Jo is not told. Through the screen he heard Jo tell Denise the trip: what mattered was that he sat down next to Owen; she slept until ten past seven; "I'm not going to marry a house." Denise arranged for him to hear it. Abby moves into her dorm on August 18, not in September. At seven Abby asked how computers think only so he would talk. On Friday night he told Jo he had missed her on Thursday; she answered "Go to bed." and "Thursday was long." In the hall she said "You owe me one" and would not say what ("I'll tell you when."). |
-| 20 | Jo | (drafted) He heard everything she told Denise at lunch, from the milk on. He keeps Vili's Saturday to himself. His photograph at the podium went blue. Abby has seen OWEN 9. He told her he missed her. He owes her one, and she has not named it. |
 | 21 | Jo | (drafted) Why line eight was his: after the divorce he had Abby every other weekend, Janice picked her up on Fridays, and he has watched a video of her at two 412 times; a woman who already has a child would know what he did not do for Abby. He does not want a baby. Frank says the volcano counts, to Owen. |
 | 22 | Cal | (drafted) Abby has known since she was seven that Janice writes her cards (the crossed seven), and that Remy makes her videos. "You weren't a bad dad. You were a really good account manager." "That's three things, Dad. You did all three." She will stay with him August 14 to 16 if he cooks. Stephanie watches what Abby's face does when Abby sees Jo. Frank said to bring him on the boat. |
 | 22 | Jo | (drafted) Cal calls his ex-wife X; Abby makes him say Stephanie. Jo hears the verdict, holds his hand under the table, and hears him tell Abby he paid off her grandmother's house. Line nine is good family, and he cannot tell her why yet. He has not fixed the fender she hit on June 6. |
 | 23 | Cal | (drafted) It is Jo's mother's birthday; her name was Connie, and she rode under the Golden Gate every year, seasick in the corner by the hatch; since 2019 Frank takes his cap off under the bridge. Frank turned down a paid crew and asked Cal to dinner. From Kevin, at his car, in Cal's hearing: in eleven years Jo asked him for one thing, and it was to sign. From Frank, loud enough for the driveway: "Can't tell yet. Bring him back." Something at work was wrong at dinner; Jo said "Work," and he did not ask again. Dawn Pruitt asked Denise whether Frank is seeing anyone. |
 | 23 | Jo | (drafted) The white truck's transmission went at one-thirty on 92 while she was on the water, on the one day a year she does not work; Vili waited until dinner to call. It will cost about four months of her extra mortgage payments. She tells Cal nothing. Cal can swim and cannot float. He asked her father, not her, about the crew; he asked her whether he could come to dinner. Kevin thanked him for the volcano. |
-| 24 | Both | (drafted) The closet across from the hall bathroom: thirty-four standing-order boxes, never opened, gift receipts inside, the same wrap seven times; Cal opens all of them himself. Fourteen shoeboxes, 156 envelopes of $612, *Calvin, house*, the last *Oct 2025*, $95,472. Jo understands the envelopes and does not say; Cal calls his mother stubborn and reads the money as idle cash, and he knows Jo understood something he did not. Jo learns that he is cooking through his mother's tin for Abby. That night the photo from the party is online, captioned "Brennan's mover." Cal still does not know about the transmission, and saw the two loads in the small truck without asking. |
-| 25 | Jo | (drafted) He can do something for her that costs no money, and she asked: at her table he read all 312 new reviews himself and found the nine people (Glenda Ruiz, Rowena's edit, Gary Roth's earned one-star). He asked before doing anything about her page and took her no. A mom at Owen's camp asked Owen whether she is dating Cal (from Kevin's text). His office sent her a one-sided confidentiality agreement, prepared by Remy from three prior agreements and approved unread; another woman's name is on page nine. Three women signed one before her. |
-| 25 | Cal | (drafted) She likes the photo and objects to the caption; the company page is hers. She asked him for something that was not a bill. He approved the agreement without reading it, and she found Ms. Holcomb on page nine. She wants one anyway, mutual or nothing: two pages, his name wherever hers is, his people and his robot in it too. He does not know about the camp, the transmission or that her father is driving the sixteen-footer. |
+| 24 | Both | (drafted) The closet across from the hall bathroom: thirty-four standing-order boxes, never opened, gift receipts inside, the same wrap seven times; Cal opens all of them himself. Fourteen shoeboxes, 156 envelopes of $612, Calvin, house, the last Oct 2025, $95,472. Jo understands the envelopes and does not say; Cal calls his mother stubborn and reads the money as idle cash, and he knows Jo understood something he did not. Jo learns that he is cooking through his mother's tin for Abby. That night the photo from the party is online, captioned "Brennan's mover." Cal still does not know about the transmission, and saw the two loads in the small truck without asking. |
 | 26 | Cal | (drafted) Each of his eleven relationships ended within fourteen days of a large gift, and none of them with a last conversation; twelve items remain in the plan, and he closed them unopened. Jo cannot sign for her father, Owen or Denise. A woman who has been married eleven years is in the driver's seat. She did not say it back. |
 | 26 | Jo | (drafted) He wrote the two pages himself, and he signs for Remy. Since 2013 every agreement of his had a number in it so that no woman could sell what she knew about Abby. The blue ribbon was a coin sorter he ran twice to hear it again. He loves her, and said so twice. She does not know that he released the three women who signed the old agreement, or what Remy told him on 84. |
-| 27 | Cal | (drafted) On Carmel Beach: Kevin's silences, Tuesday to Sunday, and her half: she asked Kevin for one thing in eleven years, and when he went quiet she painted the hall, twice in one year. At Ventana she lets him get the room and pays the dog's $150 and its dinner on her own card. On Sunday he reads *skip Aug* under her circled NOV 2036 and does not ask. He is not told about the transmission, her father driving, or Hillsborough's stopped check. |
+| 27 | Cal | (drafted) On Carmel Beach: Kevin's silences, Tuesday to Sunday, and her half: she asked Kevin for one thing in eleven years, and when he went quiet she painted the hall, twice in one year. At Ventana she lets him get the room and pays the dog's $150 and its dinner on her own card. On Sunday he reads "skip Aug" under her circled NOV 2036 and does not ask. He is not told about the transmission, her father driving, or Hillsborough's stopped check. |
 | 27 | Jo | (drafted) Line ten was his: a woman who had been married would have known how his marriage ended. Stephanie told him she was lonely; he said he would fix it, had Janice book a counselor, went to two, and in March she filed. Pancake had not been on a beach since Abby was twelve. He had the hotel and the dog's fee looked up before he asked for the room. His mother bought him a rock tumbler when he was nine, and he read about glass for it. |
 | 27 | Denise | (drafted) Hillsborough stopped a $4,860 check over the picture and cancelled Saturday. Jo told her not to call Cal about a truck; she said she hadn't said she would. |
 | 28 | Cal | (drafted) Jo kept his fleece and wore it up Sweeney Ridge. She cannot leave on a Tuesday or a Wednesday and said yes, she does need to work this much. From Denise: the white truck's transmission went on 92 on July 27 ($7,600, three weeks for the part), Hillsborough stopped $4,860 and cancelled a Saturday, Frank has driven since July 29 and gets down sideways, and Jo has skipped her August extra, the first skip since 2023. Jo turned down a truck and the transmission and told him she's got it. Janice refused the payoff and is leaving Friday, August 28. From Owen, on the paved road: in June his mother said she would go up the ridge when the house is paid, so Owen told her Cal wanted to see it. |
@@ -493,15 +500,13 @@ A character can only act on what they have been told, so check this before writi
 | 28 | Owen | (drafted) Pancake cannot walk four miles anymore; Cal told him himself. Cal came up the ridge because Owen asked. |
 | 28 | Janice | (drafted) Cal paid off Jo's loan on August 7 without asking her, after Janice told him to ask her first and would not process it. |
 | 28 | Denise | (drafted) Cal will not keep her call from Jo. |
-| 29 | Jo | (drafted) Her loan was paid off by wire, $521,000 on August 10, and $4,483.45 will come back to her; the bank cannot send it back. From Janice: he asked her to send it, she told him to ask Jo first, he sent it himself at 3:12, and she gave notice at 3:30; he always gives a present before the end, and the end of what is his to tell. The list on Janice's desk, all twelve lines: line eleven is the question he asked her on the ridge, and line twelve has Dawn's check, *5/4. Joanna.*, three days before the bar. Janice's cabinets go into his office on the 28th, every card out and back in with him in the room (Silveira's estimate). He wanted her to have her party in August. The reader, not Cal, learns her first house, a divorce in Millbrae when she was seven, the wives she has moved since, that her mother hadn't had a paycheck since she was born, and why she walks every house last. On the list she reads line seven, *Comfortable being looked after*, as those wives. |
+| 29 | Jo | (drafted) Her loan was paid off by wire, $521,000 on August 10, and $4,483.45 will come back to her; the bank cannot send it back. From Janice: he asked her to send it, she told him to ask Jo first, he sent it himself at 3:12, and she gave notice at 3:30; he always gives a present before the end, and the end of what is his to tell. The list on Janice's desk, all twelve lines: line eleven is the question he asked her on the ridge, and line twelve has Dawn's check, *5/4. Joanna.*, three days before the bar. Janice's cabinets go into his office on the 28th, every card out and back in with him in the room (Silveira's estimate). He wanted her to have her party in August. The reader, not Cal, learns her first house, a divorce in Millbrae when she was seven, the wives she has moved since, that her mother hadn't had a paycheck since she was born, and why she walks every house last. On the list she reads line seven, Comfortable being looked after, as those wives. |
 | 29 | Cal | (drafted) She knew he read her statement upside down, at her table in July and at her counter the Sunday after Carmel. "You didn't ask me. You knew what I'd say." When he says "It was a gift. You do not ask.", she says he said that about Mrs. Bautista, who thinks her husband sent her to Alaska. "My name was on that loan." Then she stopped talking, and did not answer "May I walk you to your truck?" |
 | 29 | Janice | (drafted) From Jo: he did not ask her. Jo has walked the office and will move the cabinets on the 28th. |
-| 30 | Cal | What his mother said in the voicemail, and that nothing in the plan comes after the month-four gift: none of the eleven reached month five. |
-| 31 | Jo | (planned) From Stephanie, at her yard: the eleven, and that Abby liked two of them and neither said goodbye. Her lawyer's prenup: what Jo would give up, Abby's trust kept whole and nothing for Owen. Jo agrees with every page, fills in her own side and signs nothing. She will not promise to let it end. |
+| 30 | Cal | (drafted) What his mother said in the voicemail: call when you have a minute, "You, Calvin. Not Janice." The summary left that out. Nothing in the plan comes after the month-four gift; none of the eleven reached month five. From Abby: "You did it to Grandma too." The envelopes were his mother paying him back. Jo leaves the door green as he said in June, makes his lunch and speaks only to Vili; she has not answered in three days. He deletes the apology video and queues nothing. |
+| 31 | Jo | (drafted) From Stephanie, at her yard: the eleven (Napa around month two, a large gift around month four, then a thank-you note his office answers; they had careers and money of their own), and that Abby liked two of them and neither said goodbye. That Abby wore her tape measure all through the party. From Dawn: she talked to Cal on Saturday night, and will not say what he said. From her father: that the 2019 silence "was too long." Her lawyer's prenup: what Jo would give up, Abby's trust kept whole and nothing for Owen. Jo agrees with every page, fills in her own side and signs nothing. She will not promise to let it end. |
 | 32 | Cal | (planned) From Abby, who brings him the envelope: Jo would not promise her mother to let it end. She agreed with every page of the prenup and signed none. Her side is filled in, in her printing, with "and what I owe on it," which he does not understand until 34. |
-| 32 | Cal | Why Dawn sent Jo: she was the one his daughter would call if something happened to him. |
-| 33 | Jo | Everything left: she was filed as relationship twelve, he approved a plan unread, the car and Napa were that plan, and it stopped at the month-four gift because none of the eleven lasted longer; he let each of the eleven go quiet. Remy had three gifts ready for that slot and he did not open them; he picked the payoff himself, for the day off, the ridge and the party, and he knows he did not ask. He has asked Remy for nothing about her since. |
-| 34 | Jo | What line twelve meant, the nine days and the report card on the kitchen table that ended each of them, which is where his numbers come from. The lunch checks, 2012 to 2022, which nobody knew, and that he does not know whether his mother knew. |
+| 34 | Jo | What line twelve meant, "Says what she wants": when his mother stopped speaking, sometimes for nine days, he never knew what she wanted, and the report card on the kitchen table was his guess, the one that ended each of them; that is where his numbers come from. The lunch checks, 2012 to 2022, which nobody knew, and that he does not know whether his mother knew. |
 | 34 | Cal | From Jo, the first thing at "Tell me": "You picked it yourself. It wasn't the money." She knows it from his letter. |
 | 34 | Cal | The Millbrae divorce at seven, the son who carried his own boxes to his father's trunk, and the wives she has moved since. The winter she was eight: her mother with no paycheck, her father in the chair until spring, the casserole dishes, the names on the masking tape on their bottoms and her list of them, which she has never told anyone. |
 | 34 | Cal | His mother kept an upright piano in the garage he told Jo was empty. She bought it in September 2012 on payments, for Abby, and paid it off herself; he paid off her house that October and never knew. |

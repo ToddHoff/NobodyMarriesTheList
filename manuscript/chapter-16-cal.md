@@ -10,7 +10,7 @@ I had planned the day myself. On Friday night I wrote it on one of my own cards,
 
 I read the word new. I did not test it.
 
-On the night of May 16 it had asked me whether to start the usual plan for her. I said yes and did not open it. Whatever it had scheduled that night was six weeks old by Friday. None of it was new. I could have worked that out with the card in my hand. I did not ask it what was coming. I wanted the day to be the card and nothing else.
+On the night of May 16 it had asked me whether to start the usual plan for her. I said yes and did not open it. Whatever it had scheduled that night was six weeks old by Friday. None of it was new. I wanted the day to be the card and nothing else.
 
 At my mother's house that morning Jo had said very little to me that was not green, blue or a direction. At eleven, when I left, she said, “One-thirty. My house.” Her crew would not be done until one. I did not ask how she would make it. I drove home to Woodside and changed out of shirt number nine into number ten, which put the rotation a day ahead. I had washed my car myself on Friday night, which I had not done since the company was nine people. The fender was still the way she had left it.
 
@@ -146,7 +146,7 @@ She took 85 to 17. Past Los Gatos the road climbs into the hills. The reservoir 
 
 “That is the coxswain.”
 
-“Is that what he is.” She watched the water go by. “Everybody pulls when he says. Same as stairs. Somebody calls it, or you drop the dresser.”
+“Is that what he is.” She watched the water go by. “Everybody pulls when he says. Same as stairs. The low man calls it.”
 
 On Thursday Vili had called the dresser on the Delgados' landing. I lifted when he said and not before. The corner went past the wall with about a pencil's width to spare. Jo was at the bottom of the stairs. My hands did not close all the way until Friday afternoon. I kept looking at them.
 
@@ -234,7 +234,7 @@ She already had two twenties on the counter, flat, under two fingers.
 
 I could have pressed it. It would have taken less time than her twenties.
 
-I have paid for everything since I was twenty-four. I paid off my mother's house. I paid for Abby's school and for eleven weekends in Napa. My hand knew where the button was without my looking.
+My hand knew where the button was without my looking.
 
 I turned the phone over and put it face down on the counter beside her money. My watch tapped. I did not look at it.
 
@@ -244,7 +244,7 @@ She looked at me for a second. Then she slid the twenties across. When the boy a
 
 She picked up the bag with the sandwiches in it. I held the door.
 
-My ears were hot all the way back across the road. The boy at the register had watched a woman pay for my lunch and had thought nothing of it. In May I would have pressed the button before her twenties were on the counter. I would have called it manners.
+My ears were hot all the way back across the road. The boy at the register had watched a woman pay for my lunch and had thought nothing of it. In May I would have pressed the button before her twenties were on the counter.
 
 She did not turn back toward 17. She drove past the store and turned off Summit Road. Half a mile on she took a narrower road that climbed through the trees.
 
@@ -288,9 +288,9 @@ The man behind the bar owned the place. He did not know who I was. He poured the
 
 “Mount Eden cuttings,” he said. “I put them in in 1981. Straight in the ground, no rootstock.”
 
-He had bought the ridge in 1979. It had been an orchard, eighteen acres that nobody had worked in years. Since then he had had floods, landslides, the Lexington fire in 1985 and the earthquake in 1989. The earthquake had started six miles south of us and knocked his winery down. He built it again. He farmed organic, with nothing synthetic on the vines. He got fewer grapes that way.
+He had bought the ridge in 1979. The earthquake in 1989 had started six miles south of us and knocked his winery down. He built it again.
 
-“You get less,” he said. “What you get tastes like something.”
+“Half the grapes the neighbors get,” he said. “I don't spray.”
 
 It was getting warmer on the ridge. He was putting in more Bordeaux grapes because of it. He held his reds five or six years before he sold them.
 
@@ -408,10 +408,6 @@ I could have said Remy. She knew a machine had written the list in nine seconds 
 
 “I send things,” I said. “I like it when they are used.”
 
-“And when they're not?”
-
-“Then I send something better.”
-
 She did not say anything. I watched her think of the three boxes on my mother's hearth. She had read the labels on the first Saturday. She had left them on the hearth with no tape on them every Saturday since.
 
 “Why?” she said.
@@ -420,7 +416,7 @@ She did not say anything. I watched her think of the three boxes on my mother's 
 
 “Then it stays on.”
 
-Six lines were struck on the back of that card. The last two had come off when I could tell her where they came from. Five came out of my mother's dresser drawer. Six came from 2013. Standing at that fence, I could not see where seven came from. She would not take it off on a guess.
+Six lines were struck on the back of that card. Standing at that fence, I could not see where seven came from. She would not take it off on a guess.
 
 I put the card back in my pocket. The sun was behind the hills. A man by the gate was calling a dog that did not want to go home.
 

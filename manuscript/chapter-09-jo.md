@@ -2,7 +2,7 @@
 
 **Jo**
 
-At twenty past nine that night there was a taco truck in the parking lot with its window up and every light on, and it had come for one customer.
+When we came out after the twelfth course there was a taco truck in the parking lot with its window up and every light on, and it had come for one customer.
 
 He had asked me first. At the ninth course he'd had his phone in his hand, and he asked. I told him he had picked the place, so he owed me something to eat. I had been up since four-thirty. I had moved a dentist's office and eaten twelve courses that came to about a cup. I said all right.
 
@@ -144,7 +144,7 @@ He picked it up and bit into it.
 
 “And?”
 
-“You were right both times. I have stopped arguing with the data.”
+“You were right both times.”
 
 I ate the other two. They were hot and they dripped, and I leaned out over my knees to keep them off the dress. He had his elbows on his knees, and he watched me eat them.
 
@@ -164,7 +164,7 @@ He saw it too. He looked at my sandals and then at the curb, and I watched him a
 
 “Sixty-eight. That curb's five and a half. They've paved this lot twice, and you lose some curb every time.”
 
-He looked at the curb again, and then he took my number. A month ago he didn't take numbers on faith.
+He looked at the curb again, and then he took my number.
 
 “That is five foot eight,” he said.
 
@@ -238,7 +238,7 @@ On Saturday morning I'd be in his mother's house at seven with a clipboard, sayi
 
 I had gone to that dinner to find the piano. I went back through the night for it, one room at a time.
 
-There was a dinner with no bill on it, and I had hated that. There were two lines he couldn't pay, because the ones he has left aren't funny, and he had told me so when he could have made two up. There was a card he had left in his car. There was a taco truck, and he had asked me before he sent for it. He had paid for it without reading what it was, and I had laughed.
+There was a taco truck, and he had asked me before he sent for it. He'd paid for it without reading what it was, and I had laughed.
 
 I went through it twice. There wasn't a piano in it.
 
@@ -248,7 +248,7 @@ The reservoir went by on my left, flat and black. By my exit I had quit looking,
 
 Her car was in my driveway.
 
-She was at my kitchen table with the payroll in front of her and my coffee maker on. It was a quarter to eleven. She had moved my mortgage statement off the table to make room, and put it on the counter where it lives.
+She was at my kitchen table with the payroll in front of her and my coffee maker on. It was an hour past my bedtime. She had moved my mortgage statement off the table to make room, and put it on the counter where it lives.
 
 “You didn't text,” Denise said. “I had Vili's number up. I had my thumb on it.”
 
@@ -310,7 +310,11 @@ I signed the next check.
 
 It was.
 
-“Joanna Marie,” she said. “A man who remembers what you told him is the one good sign there is. I don't care what he's worth.”
+“Joanna Marie,” she said. “An HOUR later he was still on the chair?”
+
+“An hour.”
+
+“Rob doesn't know what I do on Tuesdays.”
 
 “He remembers everything. He writes it to me.”
 

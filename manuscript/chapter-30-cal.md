@@ -65,7 +65,7 @@ Then she got down off the stool and took the tin. She went through the cards wit
 
 “The card does not say potato chips.”
 
-“She didn't write down the potato chips.” She put the cards back in the tin in their order. “She didn't write down anything she already knew.”
+“She didn't write down the potato chips.” She put the cards back in the tin in their order.
 
 She sat back down and ate the last of the corner piece.
 
@@ -85,7 +85,7 @@ Abby put her fork down.
 
 “What did you give her?”
 
-She did not ask what I had done. She asked what I had given. She has watched eleven of these. She was four the first time. She knew where in the plan a woman stops answering. She knew what comes right before it.
+She has watched eleven of these.
 
 “I paid off her house,” I said.
 
@@ -341,8 +341,6 @@ On the slab in my mother's hall I had called her stubborn. I had looked at a hun
 
 I read the front of November again. It did not say savings. It said my name.
 
-She had not been saving it. She had been paying it back. On the first of every month for thirteen years she counted out her payment and wrote my name on it, so that the house would still be hers. She had not let me give her the house. She had not let me give her anything. Thirty-four boxes, with the tape on.
-
 I did not know why. My mother had made that payment every month I could remember. Most people would have been glad to stop. I went through the reasons I would have given a board. Pride. A habit she could not break. Neither of them lasted thirteen years and a hundred and fifty-six envelopes. A habit does not write your son's name on the front. I did not have a reading for it. I had the shoebox in my lap.
 
 Line seven was *Comfortable being looked after.*
@@ -375,7 +373,7 @@ learned from relationship 12:
 9. Close to her family
 10. Divorced
 11. Works Saturdays
-12. Goes quiet
+12. Does not say what she wants
 Save?
 ```
 
@@ -446,7 +444,7 @@ I watched all fifty-two seconds. Then I watched the first five again.
 
 I have never said that sentence to anyone without the next thing after it, the thing I would do about it. I had said it to boards and to a reporter, and each time the fix came in the same breath. Remy had said it in my voice with nothing after it. It had made it sound easy.
 
-It had said *I know that now.* I had known it then. Janice had stood in my door that Friday morning and told me to ask her first. At 2:51 that afternoon I had typed *May I* to her and deleted it, because I knew what she would say. I sent the wire knowing. The video was an apology from a man who had not known. He was easier to forgive. He was not the one who had done it.
+It had said *I know that now.* I had known it then. Janice had stood in my door that Friday morning and told me to ask her first. At 2:51 that afternoon I had typed *May I* to her and deleted it, because I knew what she would say. I sent the wire knowing.
 
 Stephanie had the house. She had sat in it till ten. If I sent this, Jo would have my face in her kitchen, saying what she needed to hear. I would be in Woodside. It was the counselor's room with my chair in it.
 
@@ -492,11 +490,11 @@ When I was finished she was quiet for long enough that I said her name.
 
 “You do not have to tell me it was wrong,” I said. “Last night my daughter told me I did it to my mother too.”
 
-“I wasn't going to tell you anything.” She drank. “When I was practicing, the morning of a divorce hearing, the clerks' office smelled like a florist. Husbands sent flowers to the courthouse for the wives they were divorcing. To the courtroom, Cal, with the case number on the card. Roses, mostly. Some of them sent a bracelet with the roses. The clerks put them on the counter by the window, and by noon you couldn't see over them.”
+“I wasn't going to tell you anything.” She drank. “I had a husband send roses to the courtroom once. The morning of the hearing. Case number on the card.”
 
-“Did the wives take them?”
+“Did she take them?”
 
-“Not one, in fifteen years. The clerks took them home. A clerk named Imelda had roses in her kitchen every Monday for ten years.” She set the cup down. “And not one of those men came and sat on the bench in the hall outside, where his wife would have had to walk past him. They sent the flowers because the flowers could go where they couldn't.”
+“The clerk took them home. Imelda.” She set the cup down. “He sat in his car across the street the whole hearing. I could see him from the window.”
 
 I looked at the door across the hall from me. It stood against my wall with its pads folded at the foot of it and the robe hanging on the back. Jo had sent it here without a word to me.
 
@@ -518,11 +516,11 @@ Dawn said nothing for a while. I heard her breathe out through her nose.
 
 “I want to know what to do.”
 
-“What did you do when the other seven went quiet?”
+“What did you do when the other seven wrote to thank you?”
 
 She meant hers. I gave her all eleven.
 
-“Nothing. With every one of them, I did nothing.”
+“I approved the replies. With every one of them, I did nothing else.”
 
 “And?”
 
@@ -532,13 +530,21 @@ She meant hers. I gave her all eleven.
 
 I took my time with it. She waited. She did divorces for fifteen years. She lets a witness take as long as he needs.
 
-With the eleven I had done nothing because there was nothing I wanted. A woman stopped writing, and I approved the next thing on my calendar. Since Wednesday I had opened Jo's thread twenty-six times. A week ago Friday I had typed *May I* to her and deleted it. Tonight I had sent nothing.
+With the eleven I had done nothing because there was nothing I wanted. A woman wrote to thank me, I approved the reply, and I approved the next thing on my calendar. Since Wednesday I had opened Jo's thread twenty-six times. A week ago Friday I had typed *May I* to her and deleted it. Tonight I had sent nothing.
 
 “No,” I said. “It is not the same.”
 
 “Why not?”
 
-“With the eleven I did not want anything. Now I want her to answer. I am not sending anything, because anything I sent she would have to answer.”
+“With the eleven I did not want anything.”
+
+“And now?”
+
+“I want her to answer.”
+
+“Then why haven't you sent her anything?”
+
+“She would have to answer it.”
 
 Dawn did not say anything to that. I heard the cup go down.
 
@@ -560,7 +566,7 @@ She let it sit. So did I.
 
 I put my head back against the wall.
 
-“In May I asked you her name,” Dawn said. “You told me what the students called her. I let you.”
+“In May you told me what the students called her,” Dawn said.
 
 “I know.”
 
@@ -590,7 +596,7 @@ Twice while I talked I heard her drink. Once I heard her put the cup down and no
 
 “Eleven.”
 
-“Forty-seven seconds of your mother,” Dawn said, “in eleven words.”
+“Eleven,” Dawn said.
 
 I heard her shift the phone.
 
@@ -664,7 +670,13 @@ Ten months later I had sent five hundred and twenty-one thousand dollars to a wo
 
 I sat on the floor of my hall with my dog. I did not get up. I did not know how long. I did not look.
 
-I played it again. Forty-seven seconds. *Okay,* she said, at the end, to her kitchen.
+I played it again. Forty-seven seconds. Then I played it again.
+
+By the fourth time I knew where the cord hit the wall. By the sixth I could hear the car on Remington coming before she said *Okay*. On the ninth I heard something I had missed every time before it. Before *Calvin* she took a breath in, the way a person does before she knocks on a door.
+
+I played it until I lost the count. Remy would have the number. I did not ask.
+
+Pancake put his head in my lap. Each time she said *Calvin* and waited for me to answer. Each time the space she left was the same length. Nothing I had would fit in it.
 
 At 12:38 in the morning the screen lit in my hand.
 

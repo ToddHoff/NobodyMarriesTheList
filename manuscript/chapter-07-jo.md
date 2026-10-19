@@ -26,7 +26,7 @@ I changed lanes, and there was no reason to.
 
 “How is that a problem?”
 
-“He's on time. He does what he says he'll do. He owed me half a sandwich, and he stood in a line in San Jose for it. He told me he wouldn't ask me to dinner again, and on Tuesday I stood in my own yard and handed him the opening, and he didn't take it.”
+“He stood in a line in San Jose for a sandwich, Vili.”
 
 “Yeah, lock him up.”
 
@@ -48,7 +48,15 @@ I had two guesses at his piano. I was a story he'd tell at his next dinner, abou
 
 I could have asked him whether the four-wheel dolly was on the truck, and that would have ended it. But he has been on my trucks for nine years, and he loaded in the rain through the worst of it. I owed him an answer.
 
-“He'd go quiet on a Tuesday,” I said. “He didn't leave. He came home, he ate dinner, he passed the salt. He just didn't talk to me. Then Sunday he'd start up again like nothing had happened, and I never knew what I'd done.”
+“He'd go quiet on a Tuesday,” I said.
+
+“And go where?”
+
+“Nowhere. He came home. He ate dinner. He passed the salt.”
+
+“Till when?”
+
+“Sunday. Then he'd ask if I wanted the paper.”
 
 “He never said?”
 
@@ -76,7 +84,7 @@ I didn't remember saying it. It sounded like me.
 
 “So what was he quiet about?”
 
-“I never asked him for anything.” It came out before I had looked at it. “Eleven years. I don't think I asked that man for one thing.”
+“I never asked him for anything.” It came out before I had looked at it. “Eleven years.”
 
 Vili waited for more. There wasn't any. I had surprised myself, and I shut up.
 
@@ -88,7 +96,7 @@ The big hangar at Moffett was coming up on the left, the one they built for an a
 
 “I didn't ask.”
 
-“You know how a load sounds when it's wrong. Something's sliding back there, you hear it on every turn, and you've got one eye on the mirror the whole way.”
+“You know how a load sounds when it's wrong.”
 
 “I know how a load sounds.”
 
@@ -96,7 +104,7 @@ The big hangar at Moffett was coming up on the left, the one they built for an a
 
 “Quiet.”
 
-“Quiet,” he said. “You drove eleven years with something loose in the back. Now you've got one that's strapped, and you keep pulling over to check it, because quiet sounds wrong to you.”
+“Eleven years you drove with something loose in the back,” he said. “Now you've got one strapped, and you keep pulling over to check it.”
 
 I didn't say anything. The 85 split came up and I took it.
 
@@ -114,7 +122,7 @@ The trouble was that I had done it. Six years ago on 280, in the rain, I pulled 
 
 ***
 
-Cal Brennan was at the curb at 6:58 that morning with three paper bags.
+Cal Brennan was at the curb before seven that morning with three paper bags.
 
 The boots had a week on them. The gray shirt was one of the other thirty-nine. He was standing under the trees on West Remington Drive with three lunches, looking down the street for my truck, and my stomach went over the hill again before I had the brake set.
 
@@ -142,7 +150,7 @@ He went still. “I did not ask.”
 
 “I know you didn't. You're not going to. So I'm telling you. One dinner. I pick the night and you pick the place, and it costs you two lines off the list.”
 
-It came out like a quote for a job. That was the only way I was going to get it out.
+It came out like a quote for a job.
 
 “Why is it two?”
 
@@ -234,7 +242,7 @@ He bent over it from the waist.
 
 “You are shorter than I am.”
 
-“I'm also the one who has done it. Low man calls the lift. That's my father's rule, and on my trucks it's the law. Whoever's under the weight says when.”
+“I'm also the one who has done it. Low man calls the lift. That's my father's rule, and on my trucks it's the law.”
 
 “We lift on three,” he said. “And you say three.”
 
@@ -274,7 +282,7 @@ He got his breath. “It is line four. Athletic. Works out most days.”
 
 “I've never been in a gym.”
 
-“I know. I have been in one four mornings a week for ten years, and you just brought the heavy end of that up a ramp.”
+“I know. I go four mornings a week. I am breathing harder than you are.”
 
 He had the card out of his pocket before I asked for it. I took the pencil down and wrote *ATHLETIC. WORKS OUT MOST DAYS.* under the other three, and drew the line.
 

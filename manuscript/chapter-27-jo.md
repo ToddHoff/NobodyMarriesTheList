@@ -2,7 +2,7 @@
 
 **Jo**
 
-At ten past four on Friday afternoon my father backed the sixteen-footer to the dock in one pass. Then he sat in the cab with the engine off.
+On Friday afternoon my father backed the sixteen-footer to the dock in one pass. Then he sat in the cab with the engine off.
 
 I was on the dock with the clipboard. The four o'clock wind was coming over the hill off the ocean, hard enough to lift the corners of the pads on the stack, and I had my boot on them.
 
@@ -102,7 +102,7 @@ He answered before I'd put the phone down.
 
 ***
 
-On Saturday morning Cal was at his gate at 5:55 with the dog on the leash, a canvas bag at his feet and a fleece over his arm. He had his sleeves pushed up, and he looked like he'd been up since four. My stomach went over the hill. I sat in the cab with the engine running and let it.
+On Saturday morning Cal was at his gate when he said he'd be, with the dog on the leash, a canvas bag at his feet and a fleece over his arm. He had his sleeves pushed up, and he looked like he'd been up since four. My stomach went over the hill. I sat in the cab with the engine running and let it.
 
 He lifted Pancake into my back seat with both arms under him and set him down on my seat covers. Then he got in next to me and put the bag between his feet.
 
@@ -122,7 +122,7 @@ He sat with his fleece on the seat between us and looked at the fog. Every time 
 
 I wanted to say it back. On the rock his heart had been going like he'd carried a dresser up three flights. I wanted it said with his heart going normal. At my hood I got that. I kissed him instead.
 
-On Wednesday night I'd asked him for something, the first thing I'd asked anybody for since I asked Kevin to sign. Saying it back would be asking for all of him. Then Denise would call him about the white truck sitting in my yard with its hood up. He'd ask me nice. I'd say yes. There'd be a new one in its place by Monday with my father's name already on both doors.
+On Wednesday night I'd asked him for something, the first thing I'd asked anybody for since I asked Kevin to sign. If I said it back, Denise would call him next about the white truck sitting in my yard with its hood up. He'd ask me nice. I'd say yes. There'd be a new one in its place by Monday with my father's name already on both doors.
 
 I drove. Past Pescadero and Davenport, and through Santa Cruz before it was awake, and past the strawberry crews already bent over in the fields outside Watsonville at eight in the morning. The fog came and went on the road. Twice Cal reached back without looking and put his hand on the dog's head.
 
@@ -192,19 +192,31 @@ I watched the dog's ribs go up and down under my hand.
 
 “Yes.”
 
-“He was right,” I said. “Eleven years, one thing. When he went quiet, I painted the hall. I painted it twice in one year.”
+“He was right,” I said. “When he went quiet, I painted the hall. Twice in one year.”
 
 I'd told Vili the rest of it once, in May, in the cab. I'd never told anybody about the hall. Cal let it sit there.
 
-I didn't tell him when it started. The first time Kevin went quiet, Owen was five weeks old. I'd leaned on Kevin all that winter, with the baby on one arm and the phone on the other. On a Tuesday in March he stopped talking. I never leaned on him again.
+I didn't tell him when it started. The first time Kevin went quiet, Owen was five weeks old. That winter he called me from every store he walked into. Did we need anything. I had the baby on one arm and the phone on the other, and I always had it handled. On a Tuesday in March he stopped talking. I've been looking for what I did ever since.
 
 He took the card out of his shirt pocket. The corners had gone soft.
 
-“Line ten was mine,” he said. “*Never married.* Remy put it there because I was divorced at twenty-seven. I agreed with it in about a minute. I did not want a woman who had been married. She would know how a marriage ends. She would have known how mine did.”
+“Line ten was mine,” he said. “*Never married.* Remy put it there because I was divorced at twenty-seven. I agreed with it in about a minute.”
+
+“Why?”
+
+“A woman who had been married would ask me how mine ended.”
 
 “How did yours?”
 
-“Stephanie told me in our kitchen on a Sunday night that she was lonely. I said I would fix it. On Monday I had Janice find the best counselor in Palo Alto and book us every Thursday at six. I went to two. Stephanie kept going without me. In March she filed.”
+“Stephanie said she was lonely. I said I would fix it.”
+
+“Did you?”
+
+“I had Janice book a counselor. Thursdays at six.”
+
+“Did you go?”
+
+“Twice. Stephanie kept going without me. In March she filed.”
 
 He said it to the water. His ears were red.
 
@@ -342,7 +354,7 @@ The last picture anybody took of us had cost me forty-eight sixty and a Saturday
 
 The man put his phone away. When I sat back down, Cal took his hand off his knee and put it flat on my back, between my shoulders, and left it there. My shoulders came down an inch.
 
-We got a table on the edge at a quarter past two. I'd had coffee at five and nothing since, and we'd walked the beach and the point. Cal had been looking at the burgers at the next table since we sat down. I read the menu from the right-hand side.
+We didn't get a table on the edge till after two. I'd had coffee at five and nothing since, and we'd walked the beach and the point. Cal had been looking at the burgers at the next table since we sat down. I read the menu from the right-hand side.
 
 On Thursday I'd bought him a burger with Wagyu in it. That was before Hillsborough.
 
@@ -414,7 +426,7 @@ There was a menu for the dog. Cal read it to him. “Chicken and rice, twelve do
 
 “Chicken,” I said. “On my card.”
 
-At six that evening the boy in the vest knocked with two shopping bags from a store in Carmel and a bag of the old-dog kind of dog food. Inside the shopping bags were a shirt, a pair of pants, socks, a sweater and a toothbrush, each one folded in tissue with a sticker holding it shut. Somebody had driven fifty minutes down 1 with a toothbrush. Cal set the dog food by the bowl for the morning. I went down to the truck and got my shirt out from behind the seat.
+That evening the boy in the vest knocked with two shopping bags from a store in Carmel and a bag of the old-dog kind of dog food. Inside the shopping bags were a shirt, a pair of pants, socks, a sweater and a toothbrush, each one folded in tissue with a sticker holding it shut. Somebody had driven fifty minutes down 1 with a toothbrush. Cal set the dog food by the bowl for the morning. I went down to the truck and got my shirt out from behind the seat.
 
 We ate our dinner on the terrace with the dog under the table. Dinner came with the room. I'd said yes to the room.
 
@@ -438,15 +450,13 @@ The fire burned its forty minutes. I looked at it once, over his shoulder, with 
 
 In the dark I put my mouth on his neck, where the sun had been at lunch. Then I put my hand flat on his chest, where I'd put it on the rock. His heart was going normal, which is what I'd told him to wait for. I could have said it then. I had it in my mouth.
 
-If I said it back, I'd be leaning on him with my whole weight.
-
 I shut my mouth against his shoulder and kept my hand where it was until he was asleep.
 
 ***
 
 In the morning the menu on the desk had no prices on it. Breakfast came with the room. I didn't know which side to read it from.
 
-It came on a cart at eight, and the waiter set it out on our deck with the coffee in a pot and the orange juice with pulp on the side of the glass. We ate it in the hotel's robes. They were as thick as a moving pad. Below the deck the fog was still down in the canyons, white and flat, with the ridges standing up out of it in the sun. Past the last ridge the ocean had started to come out blue. Something in the oaks under us sang the same three notes over and over. Pancake had eaten out of the new bag at seven, and he lay on my bare feet.
+It came on a cart, and the waiter set it out on our deck with the coffee in a pot and the orange juice with pulp on the side of the glass. We ate it in the hotel's robes. They were as thick as a moving pad. Below the deck the fog was still down in the canyons, white and flat, with the ridges standing up out of it in the sun. Past the last ridge the ocean had started to come out blue. Something in the oaks under us sang the same three notes over and over. Pancake had eaten out of the new bag at seven, and he lay on my bare feet.
 
 I had eggs and bacon, and the lox on a bagel because it was there, and a warm roll out of a basket under a napkin. Cal had the same as me. Under the table he gave the dog one piece of his bacon and looked up to see if I'd seen.
 
@@ -456,9 +466,9 @@ Twice he looked at me over his cup like he had something to say. Both times he d
 
 When we were done I started stacking our plates. Cal put his hand over mine. I left them.
 
-We left at eleven and came home up 1, the way we came. He fell asleep past Moss Landing with his head against the window. I'd never seen him sleep sitting up. I drove with the radio off. At San Gregorio I didn't turn up 84 for Woodside. I stayed on 1 and took him home with me for coffee. In my kitchen I took the sea glass out of my jeans pocket and set it on the sill over the sink. The sun came through it blue onto the faucet.
+We left when the fog lifted and came home up 1, the way we came. He fell asleep past Moss Landing with his head against the window. I'd never seen him sleep sitting up. I drove with the radio off. At San Gregorio I didn't turn up 84 for Woodside. I stayed on 1 and took him home with me for coffee. In my kitchen I took the sea glass out of my jeans pocket and set it on the sill over the sink. The sun came through it blue onto the faucet.
 
-At half past two Cal was at my counter in the shirt from Carmel, with the fold lines still in it, and a mug of my coffee, standing where there's no room. Owen was due back at four.
+By the middle of the afternoon Cal was at my counter in the shirt from Carmel, with the fold lines still in it, and a mug of my coffee, standing where there's no room. Owen was due back at four.
 
 My mortgage statement was on the counter by the coffee maker, where it lives till the next one comes. On Friday night, after the yard, I'd sat right there and written *skip Aug* in pen under the NOV 2036 I'd circled twice, for the check I'd mail in August. Skipping August moved the last payment to December 2036. I'd done the four months for the transmission in my head too, and stopped at February 2037, and gone to bed.
 

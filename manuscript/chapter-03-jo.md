@@ -2,7 +2,7 @@
 
 **Jo**
 
-At 5:35 the next morning Vili was at the dispatch window, signing out furniture pads, four dozen to a truck. He swung the screen around on its arm so I could see.
+First thing the next morning Vili was at the dispatch window, signing out furniture pads, four dozen to a truck. He swung the screen around on its arm so I could see.
 
 ```
 REMY STARTER · SILVEIRA MOVING
@@ -20,9 +20,9 @@ Accepted: open slot.
 
 I hadn't booked it.
 
-I had gotten home at 11:40 the night before. I didn't text him that I was in, because I didn't have his number. I texted Denise one word, HOME, and she sent back a row of question marks that I left alone.
+I had gotten home late the night before. I didn't text him that I was in, because I didn't have his number. I texted Denise one word, HOME, and she sent back a row of question marks that I left alone.
 
-At 11:52 I was lying in the dark, not sleeping. I was thinking about a hand on the top of my head and telling myself I was thinking about Pacifica.
+When he booked it, I was lying in the dark, not sleeping. I was thinking about a hand on the top of my head and telling myself I was thinking about Pacifica.
 
 “Take Pacifica,” I told Vili. “You're lead. If the daughter wants the piano moved, she signs a change order first. It's not on the job.”
 
@@ -38,7 +38,7 @@ He went. Six guys, two trucks, and the white one making its noise all the way up
 
 The fog was sitting on the hill behind the yard. On a clear morning you can read SOUTH SAN FRANCISCO THE INDUSTRIAL CITY up there in white letters sixty feet tall. That morning I could read INDUSTRIAL and had to take the rest on faith.
 
-A florist's van came through the gate at ten to six.
+A florist's van came through the gate while the trucks were still warming up.
 
 In my business flowers mean a widow is saying thank you, and they come at two in the afternoon. These came before the sun did. Whoever ordered them knew what time movers start.
 
@@ -52,7 +52,7 @@ Somebody had thought that through. I felt it under my ribs, warm, and I told it 
 
 I put them in a coffee can.
 
-Dawn Pruitt called at six. She knows what time I'm up. She has watched me carry her mother's dresser.
+Dawn Pruitt called before the first truck was out. She knows what time I'm up. She has watched me carry her mother's dresser.
 
 “Joanna. How was it?”
 
@@ -80,7 +80,7 @@ I heard her pour. Dawn only drinks coffee hot, so she pours half a cup at a time
 
 “Then what is it?”
 
-“It's what he would do to my life. I have eleven people, three trucks and a nine-year-old. He has a car that waits at the curb. Where does that go, Dawn? I don't have a slot for it.”
+“He's got a car that waits at the curb, Dawn. I've got three trucks and a nine-year-old.”
 
 “I didn't ask you to marry him. I asked if you'd have dinner.”
 
@@ -108,7 +108,7 @@ I hadn't told her I liked him. In three hours across from a man with a list I wa
 
 I stood in my yard with a can of sweet peas and four hours of sleep and told myself that was the end of it.
 
-My sister came through the gate at ten past six with two coffees and saw the can.
+My sister came through the gate with two coffees and saw the can.
 
 “Who died?”
 
@@ -158,7 +158,7 @@ He had on the gray shirt. It could have been the same one or one of its brothers
 
 I have met a great many people at the curb of a dead parent's house. Most of them are looking at the house. He was looking at the street.
 
-In daylight he was worse. I had said no to Dawn at six o'clock, and nobody had told my pulse.
+In daylight he was worse. I had said no to Dawn an hour before, and nobody had told my pulse.
 
 “Your machine called my machine at midnight,” I said.
 
@@ -180,7 +180,7 @@ I waited for the rest. The rest is the part where a man explains to me what I me
 
 “That's all?” I said.
 
-“You said no. I will not ask you again.” He looked back at the car. “This was booked before you answered her, and you told me the house was a job. If you would rather I took it to another company, say so and I will go. I asked the driver to wait until you had decided.”
+“You said no. I will not ask you again.” He looked back at the car. “If you would rather I took the house to another company, say so. The driver will wait.”
 
 The car was at the curb behind him with its engine running. I could have had my morning back with one word.
 
@@ -198,7 +198,7 @@ I had wanted him to argue. I found that out on his mother's wet lawn at seven in
 
 He was already half turned toward it.
 
-He'd have gone. He'd get in the back of that car and be on 280 before I had the clipboard back in the cab. The house would go to whoever answered the phone next. I'd have exactly what I told Dawn I wanted at six o'clock. I stood there and didn't want to watch him get in that car. That's no reason to keep a job. I went looking for a better one before I opened my mouth.
+He'd have gone. He'd get in the back of that car and be on 280 before I had the clipboard back in the cab. The house would go to whoever answered the phone next. I'd have exactly what I told Dawn I wanted that morning. I stood there and didn't want to watch him get in that car. That's no reason to keep a job. I went looking for a better one before I opened my mouth.
 
 “The house still needs clearing,” I said. “That hasn't changed since last night. Tell him he can shut the engine off.”
 
@@ -290,7 +290,7 @@ He took the green roll out of my hand and turned it over. I think he was looking
 
 He'd gotten to that question on a truck ramp, before he'd set foot inside. Most people get to it in the kitchen, somewhere around the drawer of bread ties.
 
-“Sometimes it is. Then you'll have stood in every room and said so. That's not the same as never going in.”
+“Sometimes it is. Then it all goes on the truck, and you watch it go.”
 
 He handed the roll back. Our fingers didn't touch, and I noticed that they hadn't.
 
@@ -308,7 +308,7 @@ We went back down the ramp. I made him go first, so that if he fell he would fal
 
 “I want it empty before my daughter leaves for college. That is the middle of September.”
 
-I did the weeks in my head. From a Friday in May to the middle of September is about eighteen. Last night his eyes had filled over that girl. He'd blamed the horseradish. Now she was the deadline on a work order. I didn't know yet which of the two was him.
+I did the weeks in my head. From a Friday in May to the middle of September is about eighteen. Last night his eyes had filled over that girl. He'd blamed the horseradish. Now she was the deadline on a work order.
 
 “All right. There's a fast way and a slow way.” I held up one finger. “Fast, I send three guys and a truck. They walk in on a Monday with boxes, and by Wednesday night there's nothing in that house but carpet. You never set foot in it. I mail you a bill and a set of keys.”
 
@@ -322,7 +322,7 @@ He nodded. It was nothing to him, and he had the sense not to say so.
 
 “Why will you not do it?”
 
-“Because whoever owns the thing is in the room when it gets decided, and there's nobody left who owns that house but you.”
+“Because it's your mother's house, and you're who's left.”
 
 “Then what is the slow way?”
 
@@ -342,7 +342,7 @@ He nodded. It was nothing to him, and he had the sense not to say so.
 
 “It is for the same house.”
 
-“For the same house. The fast way, you never find out what was in it.”
+“For the same house.”
 
 He didn't answer that. He looked at the house then, for the first time since I had pulled up.
 

@@ -66,7 +66,7 @@ She looked at me for a while. Then she went back to the page.
 
 Section five was where I had copied her people onto my side. *Jo Silveira will see to it that her employees, agents and family members do the same. Calvin Brennan will see to it that his employees, agents and family members do the same.* The pencil stopped on *family members* and stayed there.
 
-“I can't sign for my father,” she said. “He says what he wants after Mass. Owen tells everybody you're his friend. I'm not taking that off him.” She drew one line through *family members* in her sentence. It was straight. “And nobody's ever signed for Denise.”
+“I can't sign for my father,” she said. “He talks after Mass.” She drew one line through *family members* in her sentence. It was straight. “Or Owen. Or Denise.”
 
 “I cannot sign for Abby,” I said. “She tells people what she thinks of me.”
 
@@ -258,7 +258,7 @@ At 8:19 I tried the plain word. It held.
 
 She turned her head and looked at me. I counted to twenty-six before she moved.
 
-I counted because I did not know what else to do with the time. At four I thought she would laugh. At eleven I started to build what I would say on the walk down if she said nothing. I stopped. Every version I built was a way of taking it back. I did not want it back. She looked at my face the whole time. I let her.
+I counted because I did not know what else to do with the time. At four I thought she would laugh. At eleven I started to build what I would say on the walk down if she said nothing. I stopped. She looked at my face the whole time. I let her.
 
 Then she put her hand flat on my chest, on my shirt, over the pocket with the card and her shoe money in it. My heart was going hard under her hand. She could feel it.
 
@@ -292,7 +292,7 @@ She drove us down Skyline in the dark with her high beams on and both hands on t
 
 In between I went back over everything she had said to me since May, looking for a second condition. I read a contract that way, for the clause that will cost me. On the rock she had given me one condition. I had met it at her hood. I could not find another. Her hands stayed at ten and two. I could see them in the light off the dash. I could not see her face.
 
-I know how to sit beside someone who is not talking. I keep still and I do not ask. I kept still from Saratoga Gap to 84. I had a question ready the whole way. I did not ask it, because I did not know what I would do with the answer.
+I kept still from Saratoga Gap to 84. I had a question ready the whole way. I did not ask it, because I did not know what I would do with the answer.
 
 On 84, coming down into Woodside, my phone found a signal and shook in my pocket. It kept shaking. There were two hundred and four messages and four missed calls from Janice. The last message was about the meeting I had moved from 4:00 and not explained.
 
@@ -304,7 +304,7 @@ She had not said it back. I wanted to know what came next. The only record I had
 
 It took two seconds.
 
-*Each of the eleven ended within fourteen days of a large gift. Average gift value: $31,400. In each, messages declined to none. No final conversation is on record. Twelve items remain in the plan for relationship 12. Review?*
+*Each of the eleven ended within fourteen days of a large gift. Average gift value: $31,400. In each, her last message was a thank-you for the gift. No final conversation is on record. Twelve items remain in the plan for relationship 12. Review?*
 
 I had approved all eleven of those gifts. I could not have named one of them.
 

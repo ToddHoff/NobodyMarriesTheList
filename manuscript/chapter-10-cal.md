@@ -141,7 +141,7 @@ Twice I started a sentence. Each time I heard it against one of Janice's and sto
 
 She laughed. I felt it in my chest, where I had felt it at dinner.
 
-The one who writes was Janice. I had known it since Friday night. I gave Jo the count instead, because the count was also true. I let her laugh be the end of the question.
+The one who writes was Janice. I had known it since Friday night.
 
 There was a sugar bowl on the table. It has been on that table since before I could see over it.
 
@@ -221,7 +221,7 @@ I opened my lunch. It was a sandwich with the crusts cut off, an apple in eight 
 
 “I do not know. It is on the counter in the morning.”
 
-“I said bring a lunch. I didn't say have one brought.” She bit into hers. “Next Saturday you make it. Two slices of bread, Cal. I'm not asking for a carrot that looks like a different carrot.”
+“I said bring a lunch.” She bit into hers. “Next Saturday you make it. Two slices of bread, Cal. I'm not asking for a carrot that looks like a different carrot.”
 
 I did not know where the bread was kept in my own kitchen. I would look on Friday night.
 
@@ -263,7 +263,7 @@ She put the sandwich down and held out her hand. I gave her the card. She took t
 
 “What did you do?”
 
-“I moved her to another school. After that I did not see anyone who liked to be looked at.”
+“I moved her to another school. Then I wrote line six.”
 
 I had not told that to anyone who was not paid to hear it. I told it to her on a bench in my mother's atrium with her knee against mine, and it took less time than I had always assumed it would.
 
@@ -312,8 +312,6 @@ She turned the clipboard around. Under the found sheet there was a form, and it 
 “I was not going to.”
 
 “I worked that out around ten.”
-
-At 7:04 I had been standing in the driveway, wondering which of my three sentences she was writing down. She had been writing this. At ten, while she was counting my words, she had been waiting for one of them to be about the car.
 
 I can have a fender replaced without anyone signing anything. That had been offered to me at 7:00. She was holding out a pen, and it was the first one I had ever seen her with. Her fingers were on the clipboard next to mine, and they had pencil on them.
 

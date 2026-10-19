@@ -2,7 +2,7 @@
 
 **Jo**
 
-On Tuesday afternoon at four I walked an empty house in Redwood City by myself. I made it about a minute at a time without thinking about Cal Brennan.
+On Tuesday afternoon I walked an empty house in Redwood City by myself. I made it about a minute at a time without thinking about Cal Brennan.
 
 I do the last walk-through alone. The crew had taken the second truck back to the yard. The owners were in Sacramento with everything they owned. I open every door in a house before I give back the keys. Every closet, every cupboard, the oven, the dryer, the space under the stairs. Last year I found a wedding ring in a dryer in Millbrae. The woman cried on the phone for ten minutes.
 
@@ -14,11 +14,11 @@ An empty house is loud. You can hear the refrigerator from two rooms away. You c
 
 I did the garage last. Everybody forgets the garage. There was a coffee can of screws on the shelf over the water heater. I wrote it on the sheet, *Can, screws, garage, shelf,* and put it on the passenger seat to drive to Sacramento with Thursday's load. Nobody wants a can of screws. You still don't throw it out. It isn't yours.
 
-My bag was on the passenger seat too. I'd packed it at five that morning: a T-shirt to sleep in, a clean shirt for Wednesday, my toothbrush. I had taken the toothbrush out twice and put it back twice.
+My bag was on the passenger seat too. I'd packed it that morning before work: a T-shirt to sleep in, a clean shirt for Wednesday, my toothbrush. I had taken the toothbrush out twice and put it back twice.
 
 The first time I took it out, I wasn't going. Jobs run long. I'd text him from the cab that Redwood City ran long. He'd write back *Yes*. Then I heard myself. When I asked Kevin what was wrong, he'd tell me what time he'd be home. I put the toothbrush back.
 
-The second time, I was forty-four years old and arguing with a toothbrush in my own bathroom at five in the morning. I put it back and zipped the bag.
+The second time, I was forty-four years old and arguing with a toothbrush in my own bathroom in the dark. I put it back and zipped the bag.
 
 *Guest room,* I'd written him on Sunday.
 
@@ -108,7 +108,7 @@ In June he'd told me Janice liked me and nobody paid her to. This was the first 
 
 She picked up her purse and said good night to all three of us. On her way out she stopped at the thermostat in the hall and moved it up a degree, to sixty-eight.
 
-Rita went home at six-thirty. She took the halibut.
+Rita went home next. She took the halibut.
 
 He made the sandwiches himself. He got the bread out of a drawer and the butter out of the refrigerator. He buttered both pieces out to the edge with the knife flat, every corner. I watched him do it from a stool on the other side of the island. I'd told him that in June, over a sandwich that had gone to soup by eleven. He's done it every Saturday since.
 
@@ -150,7 +150,7 @@ That was the form on his refrigerator, then. I'd been a foot from it and hadn't 
 
 I sat there with that and the dog's head on my knee until the oaks went black. My face burned the whole time. It was dark enough that he couldn't see it.
 
-At ten he walked me to the guest room. He'd shown it to me when I came in, so I'd know where my bag was going. He hadn't touched the bag.
+Then he walked me to the guest room. He'd shown it to me when I came in, so I'd know where my bag was going. He hadn't touched the bag.
 
 At the door he stopped.
 
@@ -170,13 +170,13 @@ I went in anyway. I shut the door on him in his own house and lay down on a bed 
 
 His house was quieter than the empty one in Redwood City. I couldn't hear a refrigerator. I could hear one owl in the oaks.
 
-I'd told myself the guest room was about my ground. Lying there, I knew the rest of it. A car had come to my curb in June that said *the usual.* I wasn't going to be the usual in this house.
+I'd told myself the guest room was about my ground. A car had come to my curb in June that said *the usual.* I wasn't going to be the usual in this house.
 
 I didn't sleep. Owen was at his father's till Sunday. My crew wasn't till seven. Nobody was going to need a thing from me before morning. I lay there and made the case for his door.
 
 ***
 
-At 2:10 in the morning I was in his hall in my T-shirt with my hand up to knock on his door.
+In the middle of the night I was in his hall in my T-shirt with my hand up to knock on his door.
 
 There was light under it. I could hear the dog's tags on the floor. I could hear a page turn. He was awake too, reading something, a door away from me.
 
@@ -188,11 +188,11 @@ Knocking is asking. I stood there with my hand up and couldn't do it.
 
 If Denise had told me she did that, I'd have laughed at her for a week. I put my hand down. I went back to the guest room and got under all seven pillows. I called myself every name I call Vili when he backs into a pole.
 
-At five I heard the gravel. He was walking the dog.
+Toward morning I heard the gravel. He was walking the dog.
 
 I listened to the two of them go down the drive. I was still listening when they came back.
 
-When I came into the kitchen at 5:30 his hair was wet from the shower and curling at his collar. I had to look somewhere else. He had a frying pan out on the stove with the price sticker still on the bottom. There was a carton of eggs on the island. His phone was propped against it with a recipe on the screen. It was a recipe for scrambled eggs.
+When I came into the kitchen before it was light, his hair was wet from the shower and curling at his collar. I had to look somewhere else. He had a frying pan out on the stove with the price sticker still on the bottom. There was a carton of eggs on the island. His phone was propped against it with a recipe on the screen. It was a recipe for scrambled eggs.
 
 Somebody had bought that pan for this morning. He had the board at eight. He was looking up how to scramble an egg.
 
@@ -256,15 +256,17 @@ I had an answer for that. *I've got it.* It's true. Nobody argues with it. He'd 
 
 I didn't look at him. I couldn't have said it to his face.
 
-“Kevin's folks gave us the down payment on our house,” I said. “In 2012. They never asked for it back. They just never let us forget it.”
+“Kevin's folks gave us the down payment on our house,” I said. “In 2012.”
 
 He turned off his water.
 
-“Every Sunday for eleven years his mother said grace,” I said, “and then she said something about the house. How nice it was we had the room. How glad they were they could help.” I set the pan in the rack. “When we split up I refinanced to buy Kevin out. I paid his folks back with interest. Nobody asked me to.”
+“Every Sunday his mother said grace,” I said, “and then she said how nice it was we had the room.” I set the pan in the rack. “When we split up I paid them back.”
+
+“Did they ask you to?”
+
+“With interest.”
 
 I hadn't told anybody that last part but Denise.
-
-I'd just told a man who could pay off my house before lunch what it cost me the last time somebody helped with one. In May he'd sent a widow on a cruise without asking her. He'd learned to ask since.
 
 “Promise me something,” I said.
 

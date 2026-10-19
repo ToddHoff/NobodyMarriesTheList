@@ -8,13 +8,11 @@ On Sunday night Cal Brennan asked if he could work a load, and I put him on my p
 
 That was the whole message. There was no semicolon in it and nothing about anybody's mother. Janice would have given me a reason. He hadn't.
 
-He'd written once before, on the Wednesday night after the fight, at 10:02. *I still owe linguica.* I read it in my kitchen in my socks, and I knew who wrote it by the last word, because Janice would have looked it up. He could have had his phone write me anything. He sent four words. One was spelled wrong.
+He'd written once before, on the Wednesday night after the fight. *I still owe linguica.* I read it in my kitchen in my socks, and I knew who wrote it by the last word, because Janice would have looked it up. He sent four words. One was spelled wrong.
 
 I didn't answer it for three days, because I didn't trust what I'd say. On Saturday night I fixed his spelling and sent that. It was the most I could manage.
 
-That Saturday I'd kept four feet off him all morning at his mother's house. Then I lifted a drawer liner and found her school form. He didn't call anybody about it. He gave me line five and asked me whether I'd wanted to finish Skyline. Nobody had asked me that since I was twenty. I'd told him so, which I hadn't meant to do.
-
-That night I had the phone in my hand from nine o'clock on. I sent it at 9:14, because for a month that was when my phone went off.
+That Saturday I'd kept four feet off him all morning at his mother's house.
 
 I read Sunday's at my kitchen counter with a dish towel over my shoulder. Owen was in the bath, telling his phone about a dog he'd seen. I read it twice, and then I went through it the way I go through a contract, looking for the piano. A man who could buy my company before lunch wanted to carry boxes for it. There had to be something in that he wasn't saying.
 
@@ -46,7 +44,7 @@ After Denise took the couch, I sat up at the counter with the Delgados' estimate
 
 ***
 
-He was in my yard at 5:12 the next morning. I'd planned to beat him there.
+He was in my yard before me the next morning. I'd planned to beat him there.
 
 He was standing beside his car under the light over the dock, in the gray shirt, with a pair of work gloves in one hand. They still had the cardboard on them.
 
@@ -68,13 +66,13 @@ He took his own shirt off right there in my yard.
 
 I'm not going to pretend I looked at the truck. He's built like a man who works out four mornings a week, which he does, and the light over the dock was not kind to anybody but him. There was gray in the hair on his chest. There was a number on the label of the shirt in his hand, in black marker. He'd done it himself. It's forty shirts and a marker.
 
-My stomach went over the hill at 5:20 in the morning, in my own yard, with my crew pulling in behind me.
+My stomach went over the hill before the sun was up, in my own yard, with my crew pulling in behind me.
 
 He put on my shirt. It said my name across his back.
 
 It's my father's name. He had it painted on the first truck in 1987. I've put it on the back of every man I ever hired. I quit seeing it a long time ago. On Cal it went from one shoulder blade to the other. I wanted to put my hand flat on it, between his shoulders, and leave it there. I picked his forms up off the hood instead.
 
-Vili pulled in at 5:25 and looked at Cal in that shirt for a long time.
+Vili pulled in next and looked at Cal in that shirt for a long time.
 
 “So he's helping,” Vili said. “Or he's a client.”
 
@@ -128,7 +126,7 @@ The last time I'd kissed him, I had a fistful of his shirt in his mother's hall 
 
 He looked straight out the windshield. “I would like him to know.”
 
-He wanted me to take it home to Owen for him. I'd had a month of that man's words carried to me by somebody else.
+He wanted me to take it home to Owen for him.
 
 “Then you tell him,” I said. “He'll have more questions.”
 
@@ -138,7 +136,7 @@ We padded the banister first. Mrs. Delgado watched us do it from the kitchen doo
 
 The book room was at the top of the stairs. Books go in small boxes, because a big box of books will put a man on the floor. Cal carried them down on his shoulder, one at a time, and he could see his feet.
 
-He went too fast. Men who lift in a gym all go too fast at first, because nothing in a gym has corners or a turn at the landing. At half past six he came out of the book room with a box on each shoulder.
+He went too fast. Men who lift in a gym all go too fast at first, because nothing in a gym has corners or a turn at the landing. By the second hour he came out of the book room with a box on each shoulder.
 
 “One,” Vili said from the landing.
 
@@ -150,9 +148,9 @@ Vili looked at me. “Seven what?”
 
 “Get the dolly.”
 
-I'd counted his first one at the bar the night we met, over my twenty. The sixth was in my yard in May, the day I told him next time, ask. That was five weeks ago. I hadn't heard one since. He'd said this one to Vili with a box on each shoulder, like a man who didn't know he'd said anything. The number was out of my mouth before I'd looked at it.
+He'd said this one to Vili with a box on each shoulder, like a man who didn't know he'd said anything. The number was out of my mouth before I'd looked at it.
 
-At a quarter to eight the Delgados' son came out of the kitchen with a coffee and stopped at the bottom of the stairs. He was about thirty-five. He'd come to help his parents move, and he was mostly standing in doorways. He watched Cal come down with a box on his shoulder, and then he got his phone out.
+When the book room was half empty, the Delgados' son came out of the kitchen with a coffee and stopped at the bottom of the stairs. He was about thirty-five. He'd come to help his parents move, and he was mostly standing in doorways. He watched Cal come down with a box on his shoulder, and then he got his phone out.
 
 “No pictures of my crew,” I said.
 
@@ -172,13 +170,13 @@ He went back in for the next box. The son stood on the lawn a while, and then he
 
 I heard all of it from the back of the truck. On every job there's a son who wants something off my crew that isn't on the estimate. My guys look at me before they tell him no. Cal hadn't even looked up at the truck. My face went hot, standing in my own truck with a pad over my arm. I called the next box to the wrong tier and had to move it myself.
 
-At eight-thirty Vili put him on the high end of a dresser. On stairs the low man takes the weight, so the low man calls the lift. Vili called it. Cal lifted when he was told and not before. At the turn on the landing he said “Wait,” and they waited, and then they brought it around with about a pencil's width between the corner and the wall. I was at the bottom of the stairs holding my breath. I don't do that.
+Then Vili put him on the high end of a dresser. On stairs the low man takes the weight, so the low man calls the lift. Vili called it. Cal lifted when he was told and not before. At the turn on the landing he said “Wait,” and they waited, and then they brought it around with about a pencil's width between the corner and the wall. I was at the bottom of the stairs holding my breath. I don't do that.
 
-His watch tapped on every landing. I could hear it from the truck. At nine he took it off, put it in his pocket and kept going. After that I watched his neck instead.
+His watch tapped on every landing. I could hear it from the truck. After a few trips he took it off, put it in his pocket and kept going. After that I watched his neck instead.
 
 His neck was wet at the hairline and red where my collar rubbed it. When he bent for a box, the shirt went tight across his shoulders. I lost count of the boxes twice and had to go by the tiers.
 
-At ten I went up to check the book room while he was coming down. The landing on those stairs is about three feet square. I should have waited at the bottom. I went up. We turned sideways to get past each other, him with a box on his shoulder, and my face was an inch from his collarbone. He smelled like cardboard and his own soap. His breathing was loud. Mine wasn't any better.
+Later I went up to check the book room while he was coming down. The landing on those stairs is about three feet square. I should have waited at the bottom. I went up. We turned sideways to get past each other, him with a box on his shoulder, and my face was an inch from his collarbone. He smelled like cardboard and his own soap. His breathing was loud. Mine wasn't any better.
 
 I went on up and stood in an empty room full of book dust until my face cooled off.
 
@@ -186,13 +184,13 @@ The Delgados had kept books in that room a long time. You could read it in the c
 
 I did what I do in every empty room. I opened the closet and ran my hand along the top shelf to the back, where people put the thing they mean to come back for. I got down on my knees and looked along the baseboard for anything that had rolled. There was nothing but dust in the light from the window.
 
-I stayed on my knees a minute and listened to him on the stairs. He was going down slower than he had at six and coming back up slower than that. My face still hadn't cooled off. I told myself it was the heat. All the heat in that house had come up the stairs by ten. I waited until I heard him on the bottom step before I went down.
+I stayed on my knees a minute and listened to him on the stairs. He was going down slower than he had first thing and coming back up slower than that. My face still hadn't cooled off. I told myself it was the heat. All the heat in that house had come up the stairs by then. I waited until I heard him on the bottom step before I went down.
 
-By ten-thirty my shirt was dark down Cal's back, under my name. He'd stopped talking at all except to say “Yes” to Vili. He took the stairs slower, and he'd learned to stop on the landing and turn his whole body instead of his shoulders. Nobody had told him that. He'd watched Vili do it twice.
+My shirt was dark down Cal's back, under my name. He'd stopped talking at all except to say “Yes” to Vili. He took the stairs slower, and he'd learned to stop on the landing and turn his whole body instead of his shoulders. Nobody had told him that. He'd watched Vili do it twice.
 
 I worked the truck. I load my own trucks. I stood in the back with the clipboard and the pads and called out where each piece went, and every time he came up the ramp with a box I told him the tier and he put it there. He never asked me twice.
 
-He set the last box from the book room on the ramp at five to eleven, and he didn't pick up the next one.
+He set the last box from the book room on the ramp just before lunch, and he didn't pick up the next one.
 
 He was looking at his hands. They wouldn't close all the way. I've seen it on every new man I've ever hired, usually by the third hour. He'd lasted five hours.
 
@@ -212,7 +210,7 @@ He'd made his own lunch. I checked the bread before I could stop myself. Both pi
 
 Manny offered him a pickle out of a jar, and he took it and said thank you. Then Manny asked him if it was true he had a robot that answered his phone. He said yes, and that it was not answering it today. Vili ate and watched me. I didn't look at Vili.
 
-Vili had seen me check the bread. He'd been sent to the big truck at 5:30 so this man could ride with me. There isn't much Vili has to see twice. I looked across the street and ate my sandwich.
+Vili had seen me check the bread. He'd been sent to the big truck that morning so this man could ride with me. There isn't much Vili has to see twice. I looked across the street and ate my sandwich.
 
 I was halfway through my sandwich when Cal put his down and stood up.
 
@@ -230,15 +228,15 @@ In Los Gatos I'd had to tell him he was presenting. He'd argued with me about it
 
 Cal started again. This time it was his own voice, which isn't any good at this.
 
-“I did not want to ask you at my mother's house,” he said. “There I am the client. Here I am the new man. I am not very good at it.”
+“I would like to take you somewhere on Saturday,” he said. “After one o'clock.”
 
-“Ask me what?”
+“Where?”
 
-“I would like to take you somewhere on Saturday, after one o'clock. I have not booked anything. I have not told Remy or Janice. I do not know yet where we are going.” He looked at Vili, and at Manny, and at the Delgados' son, who had come out onto the porch. Then he looked at me. “That is all of it.”
+“I do not know yet. I have not booked anything. I have not told Remy. Or Janice.” He looked at Vili, and at Manny, and at the Delgados' son, who had come out onto the porch. Then he looked at me. “That is all of it.”
 
 His hands were shaking at his sides. It could have been the boxes.
 
-I went through it for the piano anyway. I'd been at it since Sunday night at my counter. This had even less in it than his text. He hadn't booked a place. He hadn't told Janice, so nobody was going to send flowers at six in the morning. He'd stood up on a curb in Millbrae in my shirt, asked me in front of my crew and stopped.
+I went through it for the piano anyway. I'd been at it since Sunday night at my counter. This had even less in it than his text.
 
 Then I counted Saturday. We'd be done at his mother's house by one. There was nothing after that. My heart was going. I had half a sandwich in my lap that I'd forgotten I was holding.
 

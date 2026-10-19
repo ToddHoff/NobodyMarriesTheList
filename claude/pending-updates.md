@@ -1,5 +1,7 @@
 # Nobody Marries the List: Pending Updates
 
+**October 18, 11:20 PM: everything below has been applied.** The plan and character sheet files were rebuilt from the docs, which carry every item. Kept as a record.
+
 Last updated: Saturday, October 17, 2026, 1:02 PM PDT. Not yet applied: everything below still has to go into the book plan (file and doc), the character sheet and claude/handoff.md. The chapter files and the manuscript doc already have the text. The October 16 record that used to be in this file was applied that evening (see the handoff, "The held docs brought up to date").
 
 ## October 17, 11:28 AM: "Don't start chapter 30, but finish all the things waiting"
@@ -47,3 +49,27 @@ Drafted, reviewed cold by a separate agent (all six first drafts needed fixes: u
 - For the plan file: add the note that follows the 30 entry in the plan doc ("Dawn as a full character ...") and the decision-record entry for Todd's 12:35, 12:38, 12:42 and 12:51 PM messages; Dawn's cast entry gains eight years, seven of the eleven, the end-of-file calls, the calls in 4, 20, 30 and (planned) 31.
 - For the character sheet file: Dawn's "How she sounds" first bullet becomes the doc's (two registers; she may tell Cal true things; eight years; seven of the eleven; end-of-file calls; calls in 4, 20, 30 and 31). Header 1:00 PM.
 - Second ch 30 critique (1:02 PM): for the plan file and character sheet file, note that Cal renames X to Stephanie in his phone in 30 (Stephanie's row says he calls her X; add "until ch 30").
+
+
+## October 17, 2:40 PM: chapter 31
+- Plan entry 31: mark Drafted; note it ends Monday night on the ringer (not on Ventana) and that Jo calls Dawn (not the reverse); add the HOUSE account (to Nov 2036), the green tape for Abby, Frank's hand up, "He'll let you go now." Ch 32: Abby can bring the tape with the envelope.
+- Character sheet who-knows row 31: Jo learns the Napa pattern from Stephanie and that Dawn spoke to Cal Saturday (not what he said); Dawn learns Jo will not sign and "It's not over"; Frank owns 2019.
+
+## October 17, 2:35 PM: chapter 31 ending (Todd: "Yes")
+- Ch 31 now ends with Cal's call at 2:04 AM: "It is Pancake... I did not know who else to call." / "Where are you." This keeps the story rule (they share the page in 35 of 36 chapters; only 33 apart). Ch 32 must open on the same call from Cal's side and settle who stays with Owen (Denise has a key). Dawn's legal answer in 31 is cut to one line.
+
+## October 17, 3:26 PM: why the eleven left (Todd: "It really doesn't make sense" that rich-man relationships end quietly)
+- Ch 31, Stephanie now answers it: after the gift, nothing; he doesn't call or fight, he's on to the next thing on his calendar; the eleven had their own money ("Careers. Houses they paid for themselves. That's who the matchmaker finds him. Nobody stays for a present... Not one that's the last thing he gives you.").
+- Held for ch 32, Dawn to Cal: "I sent you eleven women who didn't need a thing from you. Then you sent them things."
+- Plan and character sheet: the eleven had their own careers and money (Dawn screens for it; line 11).
+
+
+## October 18, 11:00 PM: Dawn's engine
+- Filed in the character sheet doc ("Dawn's engine", after her Lines). The character sheet FILE still needs it, plus "Calvin" to "Cal" in her line. Ch 31: Dawn's "She's been right about him for fourteen years" is now "She's a good mother, Joanna. That's all that is."
+
+## October 18, 11:15 PM: line twelve and how the eleven ended (Todd: "make a pass and adjust everything to match. No narration!")
+- Line twelve is now "Says what she wants" (was "Doesn't go quiet"). Ch 29 list; Jo's reaction in 29: "On the log at Carmel he'd asked me what I wanted, and I'd shut my mouth on it." Ch 30 Remy's revised list: "12. Does not say what she wants."
+- The eleven ended politely: each wrote a thank-you for the gift, his office answered, that was the last of her. Ch 26 Remy: "In each, her last message was a thank-you for the gift." Ch 30 Dawn: "What did you do when the other seven wrote to thank you?" / "I approved the replies..." / "A woman wrote to thank me, I approved the reply, and I approved the next thing on my calendar." Ch 31 Stephanie: "Then she writes him a thank-you..."; Jo: "Every answer I'd had for him since the pads started with thank you. I hadn't sent one."; "He'll let you go now... He always does."
+- Ch 31 quiet fixes: "when he got like this"; "Dawn didn't say anything for a second."; "Did she ask you to let it end?"; "Has he stopped calling you?"
+- Going quiet stays the family's (Kevin, Owen, Frank, Darlene, Jo); the eleven are not part of it.
+- Plan doc and character sheet doc updated. The plan FILE and character sheet FILE still need this, with everything else in this list. Ch 34 and 35 must pay line twelve off as "Says what she wants."

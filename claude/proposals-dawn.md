@@ -27,3 +27,18 @@ The thirteenth line; walking her to her truck; the anonymous cruise; the ten-mil
 
 ## For Todd to decide
 The October 4 rule says nobody diagnoses Cal, and it names Dawn. Proposed reading: Dawn may say what is allowed and ask him to tell her things. She never explains him to himself.
+
+## Dawn's character entry: engine, voice, lines (proposed October 18, 10:58 PM; awaiting Todd)
+Todd, 10:56 PM: "make sure we have a character sheet for dawn, a voice, and a belief." Built from what she has done on the page (4, 13, 20, 23, 30, 31) and the plan for 32.
+
+- Core belief: "If I wait until I have it in order, it comes out right." She learned it in court, where it is true. In her marriage it was false: she had it in order in March, and he moved out in February (31).
+- How it paid off: fifteen years of family law; a matchmaking record no couple has broken; she reads files before the call and has the closing notes pulled before anyone asks (20).
+- Coping rule: she runs other people's in order and keeps her own off the table. She asks; she does not answer.
+- Counter-belief: Denise, "If you say it out loud, it can't hurt anybody." And Jo's "It's not over," said before she had it in order.
+- On an ordinary day: half a cup at a time, only hot; the first thing a woman says, written down before she has thought; a call to the women at the end of every file, because everybody calls the man; nothing repeated from one client to another ("He won't hear that from me").
+- Decision logic: when her own want comes up, she turns it into a question for someone else. She asked Denise whether Frank is seeing anyone (23) instead of asking Frank; she sent Jo against the list instead of telling Cal why (32).
+- Pressure: people who ask her back. Cal at midnight, "Why are you awake?" (30); Danny, "What do you do?" (32); Cal, "Which one were you?" (32). Each time she gives one true thing and stops.
+- Want / underneath: keep her record / for someone to ask what she wants (nobody has in ten years).
+- Voice, two registers: (1) with a client's list, cross-examination: short questions, one at a time, his own word handed back with a period on it, "Tell me." (2) With someone hurting, plain and warm: her own life put on the table in one concrete story (her mother's garage, Imelda's roses, the dishwasher year), permission instead of a verdict ("Not yet is two words"). Never a therapist's word, never the moral, never what one of them said to her about the other. Calls Jo "Joanna," Cal "Cal." Hangs up without a goodbye. From the matchmaker's clips: situations and registers only, never her lines.
+- Lines to tune by: "Tell me." "She means she never met him. She met the packages." "When it's over, everybody calls the man." "Is this the same nothing?" "I had it in order in March. He'd moved out in February." "She's a good mother, Joanna. That's all that is." "Has he gone quiet on you?"
+- Open for Todd: Frank (23, Denise's report) or Danny (32, the series seed), or leave both open. The character sheet's Dawn line "Every one of the eleven did the work, Calvin." should be "Cal" (only Janice says Calvin).

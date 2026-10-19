@@ -144,9 +144,9 @@ She did not laugh. She took it as an estimate to be worked out.
 
 She looked at me for a while. She did not have an answer ready, and she did not hurry one.
 
-“That's not the same question for you as it is for me,” she said. “You know that?”
+“Ten million's my house and a fourth truck,” she said. “For you it's what, a Tuesday?”
 
-“I do now.”
+“It is less than a Tuesday.”
 
 I had not run that number from my side of the table. Ten million dollars is less than a tenth of one percent of what I have. I had asked her to spend money I would not notice was gone. Then I had told her I would do nothing. When I said it, I had thought it was a good answer.
 
@@ -164,7 +164,7 @@ She let me get to the end.
 
 “I am answering your question.”
 
-“Your voice dropped. Your shoulders came down. You did it for the woman at the bar, the one with the father on dialysis. I've seen the billboard, Cal. I drive under it. I didn't come to dinner with it.”
+“Your voice dropped. Your shoulders came down. Same as for the lady at the bar.”
 
 “It happens to be what I am good at.”
 
@@ -206,7 +206,7 @@ The ninth course was a carrot that had been made to look like a different carrot
 
 I had my phone out before I knew I had reached for it. I can have a kitchen sent almost anywhere. She looked at the phone.
 
-“I'm not complaining,” she said. “I'm telling you where I am.”
+“I'm not complaining,” she said. “I'm just hungry.”
 
 On a bench in my mother's atrium she had told me to put it away. I did not put it away. I held it where she could see it.
 

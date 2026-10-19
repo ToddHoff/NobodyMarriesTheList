@@ -6,7 +6,7 @@ I have turned my phone face down on a table once in my life, and I can give you 
 
 I cannot give you the reason. I have looked for it.
 
-The forty-five minutes is not rudeness. It is a test condition. Same bar, same table, same order, same length, so that the only thing that changes is the person. By minute forty I know. At forty-five Remy sends the car and a nine o'clock that does not exist, and nobody's feelings are hurt, because nobody is told.
+The forty-five minutes is not rudeness. It is a test condition. Same bar, same table, same order, same length. By minute forty I know. At forty-five Remy sends the car and a nine o'clock that does not exist, and nobody's feelings are hurt, because nobody is told.
 
 Remy wrote the list too. A woman at the bar that night had called it she. About half of our users do, and the other half say he. I built it, and I call it it.
 
@@ -64,7 +64,7 @@ Then she told me. A two-bedroom in Daly City, forty-one years in it, going down 
 
 “So which one is the client?”
 
-“Both of them. That's the job.” She picked up a shrimp tail and put it down again. “Whoever owns the thing is in the room when it gets decided. It's in my contract. I don't move a chair for somebody who isn't there.”
+“Both of them.” She picked up a shrimp tail and put it down again. “Whoever owns the thing is in the room when it gets decided. It's in my contract.”
 
 “And what happened to the chair?”
 
@@ -126,7 +126,7 @@ I waited for the rest of it. I had heard the rest at minute thirty-one.
 
 “Then you would have asked the same thing.”
 
-“No.” She said it flat. “He was there first. You don't ask a man to get rid of an eleven-year-old dog. You go stand where the dog isn't.”
+“No.” She said it flat. “He was there first. You go stand where the dog isn't.”
 
 The woman at minute thirty-one had told me she loved dogs. She had two. She wanted mine gone because he is old and he sheds.
 
@@ -160,7 +160,11 @@ She did not say anything kind. I was grateful. People say kind things to me and 
 
 “There is a dish.”
 
-“Every family has one. Nobody fights over the silver, because the silver stayed in a drawer. They fight over the casserole dish, because the dish came to every Thanksgiving.”
+“Every family has one.”
+
+“Why the dish and not the silver?”
+
+“Silver stays in a drawer. The dish came to every Thanksgiving.”
 
 “There is nobody to fight. There is only me.”
 
@@ -170,7 +174,7 @@ I went through who I could send. My assistant would have a firm by nine the next
 
 I looked at the card. I squared it to the edge of the table. She watched me do it.
 
-“That house needs clearing,” she said. “Seven months is about when a roof starts having its own ideas. Call my office.”
+“That house needs clearing,” she said. “Seven months empty, something's leaking and nobody's there to see it. Call my office.”
 
 “Is that an invitation?”
 

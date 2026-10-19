@@ -78,7 +78,7 @@ She said it the way I'd say every kitchen has a junk drawer. At my level I sign 
 
 “The men who sent the most flowers. How did they do in a divorce?”
 
-“They came in with a spreadsheet,” Dawn said. “Every weekend away, every bracelet, the night he drove four hours in the rain. Dates and prices.”
+“I had one bring a binder,” Dawn said. “Every bracelet. The night he drove four hours in the rain. Dates and prices.”
 
 “For what?”
 
@@ -202,7 +202,7 @@ He was four feet away. I knew that without measuring.
 
 “I can still see your FEET,” Denise said, from the yard.
 
-“You asked me how I was going to fix it,” Cal said. “I do not have a how. I came to tell you that here. I did not want to say it on Saturday in front of two men you pay.”
+“You asked me how I was going to fix it,” Cal said. “I do not have a how.”
 
 I had come ready for the fix. I had a version for a check and a version for an apology somebody else wrote and a version where he sent Janice. I had none for this.
 
@@ -240,13 +240,17 @@ If he'd said it was his, I would have written it down. I wanted him to. I'd have
 
 I called out all thirty-two. He knew every one without looking at the screen, and he didn't claim one of hers. Not even the dog. I wrote 23 on the sheet and 9 under it, and I pressed hard enough that the numbers came through on the next two pages.
 
-“I had a lovely month with Janice,” I said. “She hoped my boots were off. She told me my father should have a cushion, and I went out and bought one.”
+“Janice hoped my boots were off,” I said. “Janice told me to get my father a cushion. I bought it.”
 
 “She likes you,” Cal said. “Nobody paid her to.”
 
 That was true. It was the worst thing he could have said. I had stood in that office an hour before and watched her nod at me. I liked her too.
 
-“You pay her for the rest,” I said. “Flowers at six in the morning. A taco truck. On every job there's a piano. It's not on the estimate, and nobody mentions it until my guys are standing in front of it. Where's yours?”
+“You pay her for the rest,” I said. “Flowers at six in the morning. A taco truck.”
+
+“I asked first.”
+
+“Every house has a piano nobody put on the estimate. Where's yours?”
 
 “There is no piano.”
 
@@ -254,7 +258,7 @@ That was true. It was the worst thing he could have said. I had stood in that of
 
 He didn't answer that. He didn't argue it.
 
-I was scared, and he could see it. I had spent a month being glad at nine o'clock at night, and now I was adding it up. The flowers. The taco truck. The words somebody got paid to find. What he thought it all came to, and where the piano was.
+I was scared, and he could see it.
 
 “What else was you?” I said. “Not her, and not your robot. You.”
 
@@ -286,7 +290,7 @@ I did not step back. Neither did he. My heart was going, and I was not going to 
 
 “Remy wrote it,” he said. “In April I asked it to read fourteen years of my history and describe the woman I would choose. It took nine seconds. I read the twelve lines, and I agreed with them.”
 
-“You asked your app who to love.”
+“You asked your phone who to marry.”
 
 “Yes.”
 
@@ -296,7 +300,7 @@ I did not step back. Neither did he. My heart was going, and I was not going to 
 
 I had stood on a curb in a dress for that line. I had made him get the number right.
 
-Nine seconds. I can build a box in less. Dawn told me before the first night that I wasn't on that list. That was why I went. I figured a woman who isn't on the list can drink her beer and go home. Since then I'd struck five lines in pencil, one at a time, like pieces checked off an inventory. Seven were still on it.
+Nine seconds. I can build a box in less. Dawn told me before the first night that I wasn't on that list. That was why I went. I figured a woman who isn't on the list can drink her beer and go home.
 
 I hung the clipboard back on its hook with the sheet on it, facing out, where I would see it every time I pulled that door.
 

@@ -20,7 +20,7 @@ Dawn had called on a Tuesday while I was signing a permission slip.
 
 I was also twenty minutes late.
 
-That was a recliner's fault. A widow in Daly City had kept one hand on a La-Z-Boy until ten past seven that night, and then the hotel valet looked at my truck and said a hundred and ten dollars. Oversized vehicle. I told him I'd be forty-five minutes. He said a hundred and ten. I put it in a yellow zone on Minna Street, where the curb said loading until six, and changed my shirt in the cab.
+That was a recliner's fault. A widow in Daly City had kept one hand on a La-Z-Boy until I was already late, and then the hotel valet looked at my truck and said a hundred and ten dollars. Oversized vehicle. I told him I'd be forty-five minutes. He said a hundred and ten. I put it in a yellow zone on Minna Street, where the curb said loading until six, and changed my shirt in the cab.
 
 I keep a clean one behind the seat in a dry-cleaning bag. People will let you into their dead mother's house in a clean shirt. The boots I could do nothing about.
 
@@ -188,7 +188,11 @@ The last line on the card said not to mention the list. I drew a line through DO
 
 “That is a reason not to come.”
 
-“It's the only reason I'm here. I don't date. I have eleven people on payroll, a nine-year-old, and a truck that's started making a noise on hills.” I drank some of my fourteen dollars. “But a man who has already ruled me out, I can have a beer with. There's nothing to win.”
+“It's the only reason I'm here. I don't date.”
+
+“May I ask why?”
+
+“Eleven people on payroll. A nine-year-old. A truck that's started making a noise on hills.” I drank some of my fourteen dollars. “A man who's already crossed me off, I can have a beer with.”
 
 He took his time with that.
 
@@ -276,7 +280,7 @@ He looked at the line for a while. Then he laid the card down with that side up 
 
 He looked at the shrimp. “Somebody decided I did. I have never had one.”
 
-I'd had two lumpia standing up in a driveway at one o'clock and nothing since. I took a shrimp. The sauce was mostly horseradish. It went up the back of my nose and cleared out eleven hours of cardboard dust.
+I'd had two lumpia standing up in a driveway at lunch and nothing since. I took a shrimp. The sauce was mostly horseradish. It went up the back of my nose and cleared out eleven hours of cardboard dust.
 
 “Is it good?” he said.
 
@@ -330,7 +334,7 @@ I had been angry at forty-eight feet of this man since the day that billboard we
 
 That was four.
 
-At 8:44 the bartender set a leather folder at his elbow. Nobody had asked for it. This table ended at 8:45, and the man had worked enough of them to know.
+A minute before his car, the bartender set a leather folder at his elbow. Nobody had asked for it. This table ended at 8:45, and the man had worked enough of them to know.
 
 Then the phone lit up beside the card.
 
@@ -380,4 +384,4 @@ I texted Denise under the table. *Call off Vili.*
 
 The bartender took the folder away with him.
 
-The next time I looked at my watch it was a quarter to ten, and nobody had brought the folder back.
+The next time I looked at my watch his car had been waiting an hour, and nobody had brought the folder back.

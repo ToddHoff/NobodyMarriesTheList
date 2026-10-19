@@ -24,7 +24,7 @@ I knew too. On May 23, in my grandmother's hutch, she had fanned a stack of pack
 
 I did not want to see them.
 
-I knew what they would be a count of. It was the times in eleven years that my office had remembered my mother for me.
+I knew what they would be a count of.
 
 ***
 
@@ -224,8 +224,6 @@ Jo looked at me for a long time. Then she looked down at the clipboard and wrote
 
 She knew what the envelopes were. I could see it in her face. She had known since I opened November, and maybe since she saw the years on the boxes. She did not tell me. I had watched her decide not to tell me something before, in June, with the recipe tin in both hands. It looked the same.
 
-Jo paid back her ex-husband's parents with interest nobody had asked for. She told me that at my sink in July. I had filed that under stubborn too.
-
 I signed the found sheet under her line. It was called, seen and signed for. It went green.
 
 ***
@@ -246,6 +244,6 @@ It had been posted at 9:20 to a page that puts up pictures of people like me. It
 
 *Brennan's mover.*
 
-I looked at Jo. Her eyes were on the two words. Her mouth had gone flat. Her father's name was on both doors of the truck in the driveway. The caption had only mine.
+I looked at Jo. Her eyes were on the two words. Her mouth had gone flat. Her father's name was on both doors of the truck in the driveway.
 
 She took the phone back out of my hand and put it face down on the slab between us.

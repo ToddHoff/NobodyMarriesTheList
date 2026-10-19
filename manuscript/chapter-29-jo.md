@@ -2,9 +2,9 @@
 
 **Jo**
 
-At twenty to five on Wednesday morning I stood in my driveway in my socks with a cup of coffee, looking northeast, because my son told me to.
+On Wednesday morning, in the dark, I stood in my driveway in my socks with a cup of coffee, looking northeast, because my son told me to.
 
-He'd texted me from his father's at 9:40 the night before.
+He'd texted me from his father's the night before, after he was supposed to be asleep.
 
 *Perseids tomorrow morning. No moon. Look northeast when you get up. Don't look at your phone for 20 minutes so your eyes get used to the dark.*
 
@@ -96,8 +96,6 @@ The first night, over his shrimp, I'd told him whoever owns the thing is in the 
 
 On the lanai in July I'd known I could never pay him back for a house like that. Now I owed him five hundred and twenty-one thousand dollars.
 
-From now on, every time I came in my own front door, I'd be walking into something he'd given me.
-
 The bank's phones open at eight in the morning back east. That's five here. I called at a minute past and listened to the same twenty seconds of music for eight minutes.
 
 A woman named Rochelle took my date of birth and the last four of my Social.
@@ -146,15 +144,15 @@ I wrote VOID across the check in capitals and put it in the back of the checkboo
 
 On the fifteenth of July, at a sink as big as a bathtub in a kitchen where he didn't know where his own dish soap was, I'd made him promise. *You don't pay for anything of mine without asking me first. Not a sandwich. Nothing.* He dried his hands on his shirt and said it back to me word for word. *I will not pay for anything of yours without asking you first.*
 
-It was the only promise I ever asked him for. He'd said yes before he knew what it was.
+It was the only promise I ever asked him for.
 
-He keeps what he says to me. He'd kept every Saturday he promised me on his mother's lawn in May.
+He'd kept every Saturday he promised me on his mother's lawn in May.
 
 I picked the phone back up and opened his thread.
 
 The last thing in it was his, from Thursday night at 10:02. *Your father and I folded forty-eight pads.*
 
-I'd read it at a quarter to five on Friday morning, at this counter, in the dark. On Thursday I'd watched the two of them out the office window with their backs to the wind, my father calling the folds. When Cal looked up and saw me watching, I'd turned away from the glass. I'd had six days to answer it. Every answer I had started with thank you.
+I'd read it before the trucks went out on Friday morning, at this counter, in the dark. On Thursday I'd watched the two of them out the office window with their backs to the wind, my father calling the folds. When Cal looked up and saw me watching, I'd turned away from the glass. I'd had six days to answer it.
 
 I didn't type anything now either. I wasn't going to say this on a phone.
 
@@ -162,7 +160,7 @@ I put my boots on. It was still dark. The sea glass on the sill over the sink wa
 
 ***
 
-At ten past six Denise was on the office steps in her earrings with two coffees. The low stuff had come in off the ocean while I drove. The sky I'd stood under at twenty to five was gone, flat and gray down to the top of the hill.
+When I pulled into the yard Denise was on the office steps in her earrings with two coffees. The low stuff had come in off the ocean while I drove. The sky I'd stood under in my driveway was gone, flat and gray down to the top of the hill.
 
 She held mine out and looked at my face. Denise can't keep hers still when she's reading mine.
 
@@ -190,7 +188,7 @@ Janice Louie's office is on his floor. I'd meant to drive to Woodside tonight an
 
 “Four o'clock,” I said, and went to see whether the four-wheel dolly was on the truck.
 
-At 7:02, at the light at the bottom of the hill in Westlake, my phone lit up on the seat.
+At the light at the bottom of the hill in Westlake, my phone lit up on the seat.
 
 *Only one? Where were you looking*
 
@@ -212,7 +210,7 @@ I put Vili and Manny on the bedrooms and did the hall myself.
 
 A hall closet in a house like that is fifty years deep. Coats in dry-cleaner plastic from cleaners that closed before Owen was born. Christmas lights wound on squares of cardboard, every string tagged in a man's square printing, GOOD or BAD. Two pairs of galoshes, one inside the other. Behind the coats on a hook, a gray cardigan with half a roll of mints in the pocket. You check every pocket. After the freezer, the coats are where the money is. I found two dollars and a ticket stub from Candlestick. I called them down the hall to Sharon. She said green without looking up.
 
-The whole time I was in that closet, I was at my counter at ten to five, looking at a green bar.
+The whole time I was in that closet, I was at my counter in the dark, looking at a green bar.
 
 The pictures came last. There were eleven of them up the hall wall, every one dead level. I took them down one at a time, called each one, and wrapped it.
 
@@ -240,7 +238,7 @@ Sharon looked at me.
 
 I wrote it on the sheet. I wrapped it myself, face in.
 
-At half past twelve my father brought the sixteen-footer back from the donation dock and backed it into the driveway in one pass. He got down sideways, both hands on the door, his good leg first. He stood a second with his hand on the mirror before he let go.
+When the crew broke for lunch my father brought the sixteen-footer back from the donation dock and backed it into the driveway in one pass. He got down sideways, both hands on the door, his good leg first. He stood a second with his hand on the mirror before he let go.
 
 I stood at the top of the garage stairs with a lamp in each hand and did the number. On the first of September I wasn't sending the bank three thousand nine hundred ninety-one dollars and eighty-one cents. I wasn't sending it on the first of any month, ever again. That was enough to hire a driver for the sixteen-footer until the white truck was fixed, with some left over. My father could be out of that cab by Friday.
 
@@ -254,11 +252,11 @@ I carried the lamps down the stairs and out to the ramp myself. My father took t
 
 “One.”
 
-At ten past three Vili had the last of the blue on the truck, and Sharon had her green in four boxes by the front door with the picture on top. I walked the house, every room, garage last. In the front room I stood in the brighter square on the carpet where her father's couch had been, and listened. All I could hear was Rochelle telling me congratulations. I gave Sharon back her keys at the curb.
+By the middle of the afternoon Vili had the last of the blue on the truck, and Sharon had her green in four boxes by the front door with the picture on top. I walked the house, every room, garage last. In the front room I stood in the brighter square on the carpet where her father's couch had been, and listened. All I could hear was Rochelle telling me congratulations. I gave Sharon back her keys at the curb.
 
 ***
 
-At five to four that afternoon I parked on level two of his garage, nose out, where I'd parked twice before. I took the clipboard and my tape and got on his elevator with pad fuzz all down the front of my shirt.
+I parked on level two of his garage with five minutes to spare, nose out, where I'd parked twice before. I took the clipboard and my tape and got on his elevator with pad fuzz all down the front of my shirt.
 
 His floor is sixty desks with nothing between them, and I had to walk the length of it. Every head came up. I knew most of them had seen the picture from Abby's party. Somebody by the stairs turned her phone over on her desk when I went by.
 
@@ -304,7 +302,7 @@ I wrote *14 cab, full, unload/reload* on the sheet.
 
 “He didn't.”
 
-“No.” She folded her hands. “He sent it himself at twelve minutes past three. I gave him my notice at half past.”
+“No.” She folded her hands. “Twelve minutes past three. I gave him my notice at half past.”
 
 In June she'd had till December in this office. She'd given up the rest of the year in it on Friday afternoon, over my house.
 
@@ -344,7 +342,7 @@ There was a sheet of paper on the desk, face up, on top of a stack she'd squared
 9.  Good family
 10. Never married
 11. Doesn't need to work. Free to travel
-12. Doesn't go quiet
+12. Says what she wants
 
 Generated by Remy. Approved by C. Brennan.
 ```
@@ -357,11 +355,11 @@ I didn't pick it up. I'd read line one before I knew what I was reading, and aft
 
 Seven. *Comfortable being looked after.* In April I'd made up a bed in a one-bedroom by the freeway in Redwood City.
 
-Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked me if I really needed to work this much. I'd said yes. On Friday at twelve past three he'd fixed it so I didn't.
+Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked me if I really needed to work this much. I'd said yes. On Friday afternoon he'd fixed it so I didn't.
 
 *I said I would fix it.* He'd said that to the water at Carmel, about his wife, with his ears red.
 
-Twelve. In the margin beside it somebody had made a check in ink and written a date and one word. *5/4. Joanna.*
+Twelve. On the log at Carmel he'd asked me what I wanted, and I'd shut my mouth on it. In the margin beside it somebody had made a check in ink and written a date and one word. *5/4. Joanna.*
 
 Nobody but Dawn Pruitt calls me plain Joanna. She's known me since I carried her mother's dresser. May fourth was three days before she sent me to that bar. He'd never told me that one either.
 
@@ -387,9 +385,11 @@ Fourteen cabinets at fifteen inches is seventeen and a half. I wrote it down. Be
 
 I wrote *wall 19'* under the cabinets. I didn't turn around yet.
 
-“You read my statement upside down,” I said. “At my table in July. At my counter, the Sunday after Carmel.”
+“You read my statement upside down,” I said.
 
 “Yes.”
+
+“Twice.”
 
 “You promised me at your sink.”
 
@@ -409,7 +409,7 @@ He took his time.
 
 “She thinks her husband sent her to Alaska.”
 
-In June, Dawn had told me to watch what a man does with a no. Last Thursday on my dock he'd had two of mine, one about a truck and one about a transmission. I'd watched what he did with them. He'd folded forty-eight pads with my father. The next afternoon he'd sent five hundred and twenty-one thousand dollars to my bank.
+In June, Dawn had told me to watch what a man does with a no. Last Thursday he'd folded forty-eight pads with my father. The next afternoon he'd sent five hundred and twenty-one thousand dollars to my bank.
 
 “I wanted you to have your party in August,” he said.
 
@@ -419,7 +419,7 @@ He'd moved it to August and paid for it. He thought the party was about the bank
 
 “My name was on that loan,” I said.
 
-I had more. I'd had it since ten to five that morning, in order, the way I'd lay out a job for Vili. Under all of it was the thing I hadn't said on the rock. If I said one more word to him, I didn't know which one would come out. If it was that one, I'd be putting my whole weight on a man whose own assistant had just told me he always gives a present before the end.
+I had more. I'd had it since before it was light, in order, the way I'd lay out a job for Vili. Under all of it was the thing I hadn't said on the rock. If I said one more word to him, I didn't know which one would come out. If it was that one, I'd be putting my whole weight on a man whose own assistant had just told me he always gives a present before the end.
 
 I shut my mouth.
 

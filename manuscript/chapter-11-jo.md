@@ -142,7 +142,7 @@ I'd have bet the truck he would present to my son. Owen would have loved it. My 
 
 “My mom used to swear at your billboard.”
 
-“She told me on the first night. She said it was easier when I was forty-eight feet wide.”
+“She said it was easier when I was forty-eight feet wide.”
 
 I'd said that five weeks ago, over a plate of shrimp. I'd been sure it went right by him. He had it word for word. Owen looked up at me to see whether it was true. I let him look and went up the walk.
 
@@ -342,11 +342,11 @@ That left the two of us in the hall where he had held up his grandmother's hutch
 
 “That's my rule.”
 
-“It is a good rule. I would like to offer him the leash. It would be in the back yard, with me on the other side of the dog. I have not said so to him. I am asking you first.”
+“May he hold the leash? In the back yard. I will be on the other end. I am asking you first.”
 
 He'd had an hour alone with a boy who knows his keynote to the second, and a dog thirty feet off, and he had walked down a hall to ask me.
 
-I'd lain awake over what he would give my son, so I could pay for it ahead of time. He hadn't offered Owen a thing. In May, in my yard, I told him next time, ask. I meant a widow's cruise. He had been doing it ever since.
+I'd lain awake over what he would give my son, so I could pay for it ahead of time. He hadn't offered Owen a thing.
 
 “The back yard,” I said. “You stay on the leash with him.”
 
@@ -388,6 +388,6 @@ My hand was still on the man's shirt, and his heart was going under it.
 
 Vili had asked me nearly the same thing from that spot three weeks ago. Helping, or a client. I hadn't had an answer for him.
 
-Owen was going to get one. He'd heard me say client in the truck. He had just watched me kiss one. He had eleven questions in him and a rule against every one of them. I can't ask that man for anything. I billed him for a dinner sooner than ask him to one.
+Owen was going to get one. He'd heard me say client in the truck. He had just watched me kiss one. He had eleven questions in him and a rule against every one of them.
 
 “Friend,” I said. “Go ahead and ask him.”

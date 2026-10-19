@@ -184,7 +184,7 @@ Jo pointed the pencil at the cabinets.
 
 “His.”
 
-“Then he's in the room when they get packed,” Jo said. “That's how I work. Whoever owns the thing decides.”
+“Then he's in the room when they get packed,” Jo said.
 
 “He has never opened one of those drawers.”
 
@@ -216,7 +216,7 @@ Jo laughed. I felt it under my sternum, where I had felt it at dinner. She turne
 
 “What is the other one?”
 
-“Does Remy write your texts.” She shook her head. “I told him no. I told him nobody's robot wrote that the dog leans on the people he intends to keep.”
+“Does Remy write your texts.” She shook her head. “I told him no. I told him no robot knows that about a dog.”
 
 “Remy does not write them,” I said.
 
@@ -278,11 +278,7 @@ Jo looked at me.
 
 She kept looking at me. I could see her do the subtraction. By the fifth of June the messages had been going for three weeks.
 
-The dinner in Los Gatos was on the third. She had quoted me the line about the footsteps as we stood up to go, and asked when I noticed it. I had answered, “I noticed it recently.” I had just given her the date I read it.
-
 “That is on me,” I said. “I will fix it.”
-
-It is what I say. I had said it in her yard about the cruise, too.
 
 “How?” she said.
 
