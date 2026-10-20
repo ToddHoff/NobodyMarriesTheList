@@ -430,7 +430,7 @@ Between them I sat with it.
 
 In July her last payment had been November 2036, when she would be fifty-five. On Sunday I had found *skip Aug* under it, which moved it to December. A transmission was four months of her nineteen hundreds. Hillsborough had taken another two and a half. On Sunday on a deck over the canyons she had started to stack our plates, and I had put my hand over hers. Her father was driving her loads on his knees so that she would not have to ask anyone for a driver.
 
-In June, in my mother's back yard, Owen asked me nine questions. Question six was whether I take days off. He told me his mother had not had one since he was born. He told me she would take one when the house was paid. In Hawaii she took three. I was there for all of them.
+In June, in my mother's back yard, Owen asked me nine questions. Question six was whether I take days off. He told me his mother had not had one since he was born. He told me she would take one when the house was paid. He told me that in November she had fallen asleep on her kitchen floor with the sponge in her hand. He had put the blanket on her and gone to bed. In Hawaii she took three. I was there for all of them.
 
 On Wednesday Owen told me she would go up Sweeney Ridge when the house was paid. She went up it anyway, for one evening, because he told her I wanted to see it. One evening was what Owen could get her. I could get her the rest of them.
 

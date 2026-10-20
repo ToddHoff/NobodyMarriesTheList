@@ -36,6 +36,36 @@ When Pancake had done his two laps he went to the glass and leaned on it, where 
 
 Owen looked at the dog, and then at his mother.
 
+“Question six,” he said. “Do you take days off?”
+
+“I do not take many.”
+
+“My mom hasn't had one since I was born.” He did not look at his phone for that one. “She's taking one when the house is paid. She has a spreadsheet. I'm not allowed on it.”
+
+He walked Pancake to the fence and back. I waited. He had not finished.
+
+“In November she fell asleep on the kitchen floor,” he said.
+
+“What time was it?”
+
+“Nine-forty. I got up for water.” He had the leash in both hands. “She had her boots on and her work jacket. She had the sponge. She does the counter last.”
+
+“What did you do?”
+
+“I put the blanket on her. The one from the couch. Then I went to bed.”
+
+“You did not wake her.”
+
+“She was tired.” He said it as a thing he had checked more than once. “She does that.”
+
+“And in the morning?”
+
+“My lunch was in the fridge with my name on it. I asked her if she was okay.” He looked at the glass. “She said she had it.”
+
+I could have had a person in that kitchen by Monday for the counter and the lunches. I could have had a car at her curb and the house on Maui stocked for a week. I had most of it arranged in my head before he finished the sentence. I said none of it. On a job her son asks a client for nothing. He had not asked. He had told me what time it was.
+
+Owen looked at the dog again.
+
 “He's still second in my app,” he said. “I'm thinking about it.”
 
 I tell my board the same thing when I have already decided and want one more quarter of numbers before I say so. I did not argue for my dog.
@@ -50,7 +80,7 @@ I gave her the sandwich, the butter and the nine questions. I gave her Owen's ha
 
 “Yes.”
 
-It was not. I had left out the bathroom door with my daughter's name on it twelve times. I had left out that Jo took hold of my shirt in the hall and told me to bend down. I did not want either of them in a message at 9:14.
+It was not. I had left out the bathroom door with my daughter's name on it twelve times. I had left out that Jo took hold of my shirt in the hall and told me to bend down. I had left out question six. I did not want any of them in a message at 9:14.
 
 Her message went to Jo at 9:14. I read it before I approved it. It was about butter, and it was good.
 
