@@ -12,8 +12,6 @@ He'd written to me himself once since the fight, on the Wednesday night. *I stil
 
 I didn't answer it for three days, because I didn't trust what I'd say. On Saturday night I fixed his spelling and sent that. It was the most I could manage.
 
-That Saturday I'd kept four feet off him all morning at his mother's house.
-
 I read Sunday's at my kitchen counter with a dish towel over my shoulder. Owen was in the bath, telling his phone about a dog he'd seen. I read it twice, and then I went through it the way I go through a contract, looking for the piano. A man who could buy my company before lunch wanted to carry boxes for it. There had to be something in that he wasn't saying.
 
 I couldn't find it. That didn't mean it wasn't there.
@@ -88,7 +86,7 @@ Vili looked at me over the hood of the big truck. He whistled two notes, and got
 
 I had two reasons ready if he asked. Manny sleeps better against a door. Vili backs the big truck better than anybody I've got. Both were true.
 
-Vili didn't ask. In May he sat in the middle of my bench and asked me about Kevin, while Manny slept. I answered him, because I owed him that much.
+Vili didn't ask.
 
 Manny was asleep by the airport. He always is.
 
@@ -125,8 +123,6 @@ The last time I'd kissed him, I had a fistful of his shirt in his mother's hall 
 “I saw the label.”
 
 He looked straight out the windshield. “I would like him to know.”
-
-He wanted me to take it home to Owen for him.
 
 “Then you tell him,” I said. “He'll have more questions.”
 
@@ -210,7 +206,7 @@ He'd made his own lunch. I checked the bread before I could stop myself. Both pi
 
 Manny offered him a pickle out of a jar, and he took it and said thank you. Then Manny asked him if it was true he had a robot that answered his phone. He said yes, and that it was not answering it today. Vili ate and watched me. I didn't look at Vili.
 
-Vili had seen me check the bread. He'd been sent to the big truck that morning so this man could ride with me. There isn't much Vili has to see twice. I looked across the street and ate my sandwich.
+Vili had seen me check the bread. There isn't much Vili has to see twice. I looked across the street and ate my sandwich.
 
 I was halfway through my sandwich when Cal put his down and stood up.
 
@@ -224,7 +220,7 @@ His shoulders came down, and his voice dropped and went smooth. I'd heard that v
 
 Manny stopped chewing.
 
-In Los Gatos I'd had to tell him he was presenting. He'd argued with me about it for two sentences. I sat on the curb with my sandwich and waited to see what was under that voice.
+I sat on the curb with my sandwich and waited to see what was under that voice.
 
 Cal started again. This time it was his own voice, which isn't any good at this.
 

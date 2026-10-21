@@ -46,7 +46,7 @@ My watch tapped my wrist. *Heart rate 104. No workout detected.*
 
 I put my hand in my lap.
 
-I did not want her to read it. At 8:31 she had corrected my card in pencil. She had been right about every line she touched. I did not know what she would do with my pulse.
+At 8:31 she had corrected my card in pencil. She had been right about every line she touched. I did not know what she would do with my pulse.
 
 “Tell me about the widow,” I said.
 
@@ -54,7 +54,7 @@ I did not want her to read it. At 8:31 she had corrected my card in pencil. She 
 
 “You were late because of a widow and a recliner.”
 
-She looked at me for a second before she answered. I do not think she had expected me to remember.
+She looked at me for a second before she answered.
 
 Then she told me. A two-bedroom in Daly City, forty-one years in it, going down to 640 square feet near a daughter in Elk Grove. The recliner was 38 inches wide and needed two feet behind it. It would fit if the widow gave up her dresser. The daughter wanted the chair gone.
 
@@ -90,7 +90,7 @@ She had not skipped it. It had never loaded.
 
 My watch tapped me again. I took it off and put it in my pocket.
 
-I did not want it reporting on me while she talked. It had done it twice. I could guess the number without it.
+It had done it twice. I could guess the number without it.
 
 “Does that happen often?” I said. “I mean the money.”
 
@@ -129,8 +129,6 @@ I waited for the rest of it. I had heard the rest at minute thirty-one.
 “No.” She said it flat. “He was there first. You go stand where the dog isn't.”
 
 The woman at minute thirty-one had told me she loved dogs. She had two. She wanted mine gone because he is old and he sheds.
-
-This one was afraid of them, and she had just given him the house.
 
 I had nothing in fourteen years to file that under.
 
@@ -296,7 +294,7 @@ I wanted to put my hand back where it had been. I put it in my pocket instead, o
 
 “Because you're a man I'd never met.” She said it without heat. “She didn't need the picture. She drives under it.”
 
-Her sister had known my name and the place since before Jo walked in. It was a sound procedure. I had come with a car at minute forty-five and a call that would get me out. I had not thought of myself as the risk at that table.
+It was a sound procedure. I had come with a car at minute forty-five and a call that would get me out. I had not thought of myself as the risk at that table.
 
 “Will you text?”
 
@@ -312,7 +310,7 @@ She put out her hand. The cut on her thumb had a strip of green tape over it now
 
 She had not used my name all night. She left first. I stood in an alley behind a museum and watched a truck with her father's name on it go around the corner.
 
-I did not go to the car. It had been out front since 8:45. Getting into it would end the evening. I stood in the alley instead. I do not know for how long. I did not look.
+I did not go to the car. It had been out front since 8:45. I stood in the alley instead. I do not know for how long. I did not look.
 
 ***
 

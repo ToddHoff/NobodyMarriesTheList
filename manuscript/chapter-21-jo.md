@@ -36,7 +36,7 @@ On Saturday I found nine more slivers of glass in the grout of his mother's hall
 
 I hadn't looked at him since the milk.
 
-He'd heard me tell my sister that nobody had ever sat down next to Owen. Me included. I'd never said that out loud before. I said it on a bench with my mouth full. The man it was about heard it from behind a screen, with his dog on his feet. He'd heard me say I wasn't going to marry a house, too. Denise hadn't sounded one bit surprised when she asked him how long he'd been standing there. I was going to kill my sister.
+He'd heard me tell my sister that nobody had ever sat down next to Owen. Me included. I'd never said that out loud before. He'd heard me say I wasn't going to marry a house, too. Denise hadn't sounded one bit surprised when she asked him how long he'd been standing there. I was going to kill my sister.
 
 From the floor I'd heard Abby at the bathroom door. *Who's Owen.* Then, *You were here for his*, and Cal saying yes. I put my head down and went after the glass.
 
@@ -48,7 +48,7 @@ He looked at the thermostat. Then he looked at me.
 
 He'd asked.
 
-At his sink in Woodside I'd made him promise not to pay for anything of mine without asking me first. Not a sandwich. He'd asked me on Sunday about a volcano. Now he was asking about air. Until him I don't think anybody in my life had asked me before they spent money on me. Kevin's parents didn't. They put a check on our table one Sunday and talked about it every Sunday after for eleven years.
+He'd asked me on Sunday about a volcano. Now he was asking about air. Until him I don't think anybody in my life had asked me before they spent money on me.
 
 I know what seventy-two by three o'clock looks like. I've seen it at estate sales in Atherton. Spot coolers on dollies, hoses run out the sliders, a man in a company shirt walking around with a meter. It roars like a truck idling in the next room. By three you'd have to shout to tell a man green or blue.
 
@@ -58,7 +58,7 @@ I wanted it so much my scalp itched. Sweat was running into my eyes. I'd put my 
 
 “No,” I said.
 
-He waited. He's good at that. Most people start talking.
+He waited. Most people start talking.
 
 “Your mother lived in it hot,” I said. “Every summer since 1960. We can do two more Saturdays.”
 
@@ -198,7 +198,7 @@ We ate on the bench in the atrium with the cooler between us. He took the second
 
 He let that go. He's polite.
 
-After that we worked. I told him how many boxes and what size, and he built them on the hall floor and taped every bottom in an H without my saying so. In May he'd cut his thumb on that tape gun. I packed his closet. He brought me boxes before I ran out and set each one down where I'd reach for it. Nobody had to call anything. We didn't talk much.
+After that we worked. I told him how many boxes and what size, and he built them on the hall floor and taped every bottom in an H without my saying so. I packed his closet. He brought me boxes before I ran out and set each one down where I'd reach for it. Nobody had to call anything. We didn't talk much.
 
 By suppertime my back was gone from the floor and the hall and three days of making up. I sat down on the edge of his bed to write the count on my clipboard. Forty-one boxes, his room and the hall. I'd lie back for a minute. It had been made long enough. I'd unmake it a little.
 
@@ -244,7 +244,7 @@ I didn't get up.
 
 He didn't ask what I meant.
 
-He'd heard me say something about him to my sister that I hadn't said to him. I was owed one of his. I hadn't asked on the plane. I didn't want to hear it with Owen asleep on his arm. I'd found the piano on that lanai. I'd been afraid ever since that eight was a second one. If he wanted a baby, that was the end of it. I'm forty-four. I'm done having kids. You can't strike that one with a pencil.
+He'd heard me say something about him to my sister that I hadn't said to him. I was owed one of his. I'd found the piano on that lanai. I'd been afraid ever since that eight was a second one. If he wanted a baby, that was the end of it. I'm forty-four. I'm done having kids. You can't strike that one with a pencil.
 
 “On the plane you did not ask me whose line eight was,” he said.
 
@@ -318,7 +318,7 @@ It was a twin bed. There was no way to be in it except on top of each other. It 
 
 He took my boots off. He got down off the bed to do it, on his knees on his mother's floor, and he worked the laces loose one eyelet at a time. I let him. Nobody's taken my boots off for me since I was small enough to be carried in from a car. He set them side by side under the desk with the laces tucked in, the way I keep them.
 
-He didn't present. He didn't say anything at all for a long time. Last Saturday I'd had to tell him he was presenting. His watch was face down on the desk.
+He didn't say anything at all for a long time. His watch was face down on the desk.
 
 So I didn't run it either. I'd run it last time, all of it. I'd liked that fine. This time I let him take as long as he took. It was a long time. His hands were careful, and then they weren't. My shirt went somewhere. His went on the floor with the card in the pocket. The air through the slider was cool on my skin where his mouth had just been. Every time I noticed it, he put his mouth back. He got my jeans off. When he was inside me he went still and looked at me for a long time. I was the one who couldn't wait.
 

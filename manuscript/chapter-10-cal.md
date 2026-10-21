@@ -6,8 +6,6 @@ Nineteen messages had gone to Jo Silveira in my name, and on Friday night I read
 
 On Wednesday, at 9:14 in the evening, Jo had quoted one to me across a table, and I had told her I noticed it recently. It was the one lie I had told her, and I had until seven on Saturday to make it true.
 
-I told her that because she was pleased with me, for a sentence I had not written. I wanted one more minute of that.
-
 *Please tell Denise I have never been announced from a window before, and that I didn't mind it.*
 
 That one went on May 19, the Tuesday I took a sandwich to her yard. I learned the sister's name from it.
@@ -193,7 +191,7 @@ She tore the tape with her teeth and pressed it down on the lid with her thumb.
 
 She set it on the table beside the sugar bowl and went out to the truck.
 
-She had broken her own rule in front of me, and she was not going to tell me why. I did not ask. On the first Saturday she had seen me stop at the kitchen floor, and she had not asked me.
+I did not ask. On the first Saturday she had seen me stop at the kitchen floor, and she had not asked me.
 
 I opened it while she was gone. The cards were in my mother's hand, in blue ballpoint. In the top corner of each one she had written how many it served. On the older cards the number was 2. It had a line through it, and a 1 beside it.
 

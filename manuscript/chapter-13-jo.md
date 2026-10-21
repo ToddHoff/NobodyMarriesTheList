@@ -8,7 +8,7 @@ I have sent men home for sitting in a truck on my time.
 
 I got off his elevator, walked to my truck and shut the door. I waited to cry. I didn't. My face stayed hot.
 
-Upstairs I had stood at the edge of his floor and watched him stop a thing that was going out to forty million phones on Thursday. He did it in one sentence, at the volume I use to tell Vili which truck. It was about the boxes he'd sent his mother. I was the only one on that floor who had read the label on the last one. It was still on her hearth with no tape on it.
+Upstairs I had stood at the edge of his floor and watched him stop a thing that was going out to forty million phones on Thursday. He did it in one sentence, at the volume I use to tell Vili which truck. It was about the boxes he'd sent his mother. The last one was still on her hearth with no tape on it.
 
 I'd stood there with my clipboard and been proud of him, like he was one of my crew. Then I asked him Owen's other question like it was nothing. I had already told my son the answer.
 
@@ -62,7 +62,7 @@ The phone rang in my hand. It was Dawn Pruitt.
 
 “At 10:41, from his car. He says you know who writes his messages.”
 
-10:41 was about when I was looking at the bottom of my dash.
+That was about when I was looking at the bottom of my dash.
 
 “Did you know?” I said.
 
@@ -174,8 +174,6 @@ On the first night, the card he squared to the edge of the table said to ask abo
 
 He stood up when he saw me. He always does. He had his cuffs turned back and pad lint all down the front of the gray shirt, and there was a crease in his forehead I hadn't seen before. My stomach went over the hill anyway.
 
-I had things to say to that man. My stomach didn't care.
-
 “I said Saturday,” I said.
 
 “You did,” Cal said.
@@ -256,7 +254,7 @@ That was true. It was the worst thing he could have said. I had stood in that of
 
 “There's always a piano.”
 
-He didn't answer that. He didn't argue it.
+He didn't answer that.
 
 I was scared, and he could see it.
 
@@ -276,7 +274,7 @@ That was all. I had them down in the order he said them, and there were seven.
 
 “Yes. It is all of it.”
 
-Seven. I have written longer found sheets for one coat. I read down the sheet while he stood there. The flowers weren't on it, or the cushion. He hadn't put down the taco truck, only that he asked me first. Nothing on it had cost him more than a sandwich. The last line was my son's name. Owen would be home on Sunday. He'd want to know what the answer was. I wanted his signature under all seven.
+Seven. I have written longer found sheets for one coat. I read down the sheet while he stood there. Nothing on it had cost him more than a sandwich. The last line was my son's name. Owen would be home on Sunday. He'd want to know what the answer was. I wanted his signature under all seven.
 
 I turned the clipboard around and held out the pencil.
 

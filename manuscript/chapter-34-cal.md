@@ -282,7 +282,7 @@ She did not wait for hers.
 
 “I love you,” Jo said.
 
-On the rock I had counted to twenty-six before she moved. I did not count. I had said it twice in July, and she had told me to get in the truck. On 280 that morning I had decided it was not coming.
+On the rock I had counted to twenty-six before she moved. I did not count. On 280 that morning I had decided it was not coming.
 
 I opened my mouth.
 
@@ -466,7 +466,7 @@ A plane went over, and the glass in the sliders hummed with it and stopped. Her 
 
 After a while her hand found mine on the carpet between us.
 
-I wanted to say it back. My heart was going. On the rock she had told me to say it when my heart was not going like that, so I waited.
+I wanted to say it back. My heart was going, so I waited.
 
 It was after four when she sat up.
 
@@ -609,8 +609,6 @@ At 5:52 that evening I locked the front door of my mother's house with my key. T
 I had the yellow phone under my arm and the piano books in my other hand. Jo had her clipboard. She had written something on it in the front room before we left and had not shown me.
 
 On the walk she stopped.
-
-On August 12, from Janice's door, I had asked her whether I could walk her to her truck. She had not answered. She had gone out to the elevator by herself.
 
 “Walk me to my truck,” Jo said.
 

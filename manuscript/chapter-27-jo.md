@@ -82,7 +82,7 @@ Denise wrote it down. “Vili says THANK you, by the way. He's got his Saturday.
 
 I went and sat in my own truck.
 
-On Thursday Cal had said he loved me on a rock with his heart going. Then he'd said it again across my hood with his heart going normal, because I'd asked him to. I'd kissed him with my headlamp on. I hadn't said it back.
+On Thursday Cal had said he loved me, twice. I hadn't said it back.
 
 Now I had a Saturday I hadn't asked for.
 
@@ -324,7 +324,7 @@ At Bixby Creek the road crosses the canyon on one gray arch, from one side to th
 
 I walked out to the edge. The arch went across in one piece, so thin from the side it didn't look like it could hold up the road. Under it the creek came out of the canyon and crossed a little gray beach into the ocean, and the water there was the color of a swimming pool, going white on the sand. South of the bridge the coast went on, one headland behind another, each one bluer than the one in front of it, until the last one was the same color as the sky.
 
-Nobody takes 1 on a job. Every load I'd ever run south on 101, this was over the hill on my right the whole time.
+Every load I'd ever run south on 101, this was over the hill on my right the whole time.
 
 Cal was on my left. I hadn't seen him get there.
 
@@ -472,7 +472,7 @@ By the middle of the afternoon Cal was at my counter in the shirt from Carmel, w
 
 My mortgage statement was on the counter by the coffee maker, where it lives till the next one comes. On Friday night, after the yard, I'd sat right there and written *skip Aug* in pen under the NOV 2036 I'd circled twice, for the check I'd mail in August. Skipping August moved the last payment to December 2036. I'd done the four months for the transmission in my head too, and stopped at February 2037, and gone to bed.
 
-He read it upside down. I watched him find it. In July he'd done my month in his head before I could show him the spreadsheet.
+He read it upside down. I watched him find it.
 
 He looked up at me. He didn't ask. He put both hands around the mug.
 

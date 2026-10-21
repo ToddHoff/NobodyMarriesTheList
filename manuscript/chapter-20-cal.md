@@ -10,7 +10,7 @@ Pancake was waiting at the door. Rita had walked him for three days. He took me 
 
 I had slept four hours and fifty minutes. Nothing had to tell me. On Monday night on Maui I slept six hours with the doors open to the water. On Wednesday I was up at four, because my body was still in Woodside with the dog. This morning, back in Woodside with the dog, my body wanted the water.
 
-Today, on Maui, Gil would carry last week's food out to his truck for the pantry and fill the refrigerator again. For six years I had paid for that without knowing what it looked like. Now I knew which drawer the sweet bread went in.
+Today, on Maui, Gil would carry last week's food out to his truck for the pantry and fill the refrigerator again. I knew which drawer the sweet bread went in.
 
 At 6:10 I opened my laptop at the kitchen counter for the first time since Monday. There were 1,904 unread messages. Janice had been through all of them on Tuesday and left eleven for me, flagged, in the order she wanted them answered. I read the eleven twice before I answered any of them. None of them needed me. Janice flags what needs me. That week nothing had. She had flagged eleven anyway, so that I would have something to do with my hands on Thursday morning. I answered them in her order. It took fifty-one minutes. Twenty-nine hours before, I had been sitting on the ground at four thousand feet.
 
@@ -80,9 +80,9 @@ Vili went to the back and pulled the door up. He looked at the house, and at me 
 
 “He's not paying for my Saturday.”
 
-He went for the runners. He was not angry. On Monday he had run both her trucks in Burlingame while she was over the ocean. He wanted her to know it had cost him something. She knew. On the first piece out she gave him the light end. In eight Saturdays I had never seen Vili on the light end.
+He went for the runners. On Monday he had run both her trucks in Burlingame while she was over the ocean. On the first piece out she gave him the light end. In eight Saturdays I had never seen Vili on the light end.
 
-I could have paid for his Saturday. I had the number before he reached the runners: a day at time and a half, and something on top for Burlingame. In May I would have had Janice send it before lunch with a note in my name. I kept it to myself. He had given up his Saturday for her, not for me.
+I could have paid for his Saturday. I had the number before he reached the runners: a day at time and a half, and something on top for Burlingame. I kept it to myself. He had given up his Saturday for her, not for me.
 
 Jo looked at the water.
 
@@ -176,7 +176,7 @@ It was the third time I had heard that sentence in a week. Her sister had said t
 
 “It's not a blimp. It's got a frame inside.” I heard Jo's ice. “I rode it.”
 
-It was my sentence. I said it in her kitchen on Sunday, when she called it a blimp. Now she was correcting her sister with it.
+It was my sentence. I said it in her kitchen on Sunday, when she called it a blimp.
 
 “And?”
 
@@ -214,7 +214,7 @@ I put my sandwich down. My watch tapped against my wrist. I turned it face in wi
 
 I had shipped an airship across an ocean. I had made a promise to a governor. I had been sure the airship was the thing.
 
-I had sat down at the rim because I could not think of anything to buy. In June I had asked whether there was anyone to call about a volcano. There was not. So when Owen went quiet I sat, because I had nothing else. For three days I had thought of it as the part of the trip I had failed to arrange.
+I had sat down at the rim because I could not think of anything to buy. In June I had asked whether there was anyone to call about a volcano. There was not. For three days I had thought of it as the part of the trip I had failed to arrange.
 
 I wanted to go out through the screen and sit down on the bench between them. I wanted to tell her I had not known what else to do. I stayed where I was, with Pancake on my feet. If I went out there she would stop talking. I wanted to hear the rest of it more than I wanted to be seen.
 
@@ -478,7 +478,7 @@ Pancake came down the hall at the sound, the way he comes to anything that falls
 
 He stayed.
 
-She keeps a truck door between herself and every dog she meets. On our first night she told me she would want my dog on the other side of a railing from her. A week ago I found the scar on the back of her calf. She got down on her knees on the floor eighteen inches from my dog, with her back half to him so that she could see the grout. She tore off a length of green tape and wrapped it around her fingers sticky side out, and she went over the floor with it, square by square, lifting the slivers out of the grout so he would not cut a foot. When the tape was full she folded it on itself and tore another. She did not look up at me.
+A week ago I found the scar on the back of her calf. She got down on her knees on the floor eighteen inches from my dog, with her back half to him so that she could see the grout. She tore off a length of green tape and wrapped it around her fingers sticky side out, and she went over the floor with it, square by square, lifting the slivers out of the grout so he would not cut a foot. When the tape was full she folded it on itself and tore another. She did not look up at me.
 
 I did not say anything. If I had, she would have had to answer me.
 

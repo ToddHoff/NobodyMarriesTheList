@@ -148,7 +148,7 @@ She looked at me for a while. She did not have an answer ready, and she did not 
 
 “It is less than a Tuesday.”
 
-I had not run that number from my side of the table. Ten million dollars is less than a tenth of one percent of what I have. I had asked her to spend money I would not notice was gone. Then I had told her I would do nothing. When I said it, I had thought it was a good answer.
+I had not run that number from my side of the table. Ten million dollars is less than a tenth of one percent of what I have. When I told her I would do nothing, I had thought it was a good answer.
 
 “Your robot,” she said, at the sixth course. “I know what it does. It answers my phone. What's it for?”
 
@@ -228,7 +228,7 @@ She looked at the phone, and then at me.
 
 “All right,” she said. “Tell your robot.”
 
-It was the first time I had asked her before I sent for something. On the nineteenth of May, at the fender of her white truck, she had told me next time, ask. My hands were not quite steady on the phone.
+It was the first time I had asked her before I sent for something. My hands were not quite steady on the phone.
 
 I typed one line under the edge of the table, and it took eleven seconds. I asked for food that did not need a fork. Before that night I had seen her eat three times, at a bar, on a bench and on a loading dock. Each time she had used her hands. Remy came back with an amount to confirm, and I confirmed it. I did not read what the amount was for.
 

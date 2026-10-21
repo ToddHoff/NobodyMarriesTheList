@@ -192,7 +192,7 @@ I left my father the sheet. I went forward along the side deck and sat down next
 
 I put my shoulder against his arm. He was shivering under the wet jacket. After a while he quit.
 
-At the rim he'd sat down next to my son for an hour and a half. I'd told my sister nobody ever had. Me included. I've had the sheets on this boat since I was twelve. I'd left them with a man with bad knees, on my mother's birthday, to sit down next to Cal. I kept waiting to feel like I was stealing the time. I sat there from Alcatraz to the Bay Bridge.
+I've had the sheets on this boat since I was twelve. I'd left them with a man with bad knees, on my mother's birthday, to sit down next to Cal. I kept waiting to feel like I was stealing the time. I sat there from Alcatraz to the Bay Bridge.
 
 My father didn't call me back.
 
@@ -476,7 +476,7 @@ Cal came around and stood next to me in my father's driveway.
 
 He stood there with his hands in his pockets.
 
-Kevin wasn't wrong. The water heater went one morning while he was at school. I had a plumber in by three. Kevin came home to a hot shower and never heard about it. I used to tell it at my father's table for a laugh, with Kevin sitting right there.
+Kevin wasn't wrong. When the water heater went, Kevin came home to a hot shower and never heard about it. I used to tell it at my father's table for a laugh, with Kevin sitting right there.
 
 Now I had a dead truck in my yard. The man standing in my father's driveway didn't know it. I could have told him then. White truck, second gear, 92, Belmont. I didn't.
 

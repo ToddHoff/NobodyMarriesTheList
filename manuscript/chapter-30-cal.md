@@ -2,7 +2,7 @@
 
 **Cal**
 
-Abby's car came up my drive at 4:58 on Friday afternoon, two minutes before she had said. I had the oven on at 350 and my mother's tin open on the counter. My first meat loaf from her tin had come out raw in the middle, because the card did not say to heat the oven first.
+Abby's car came up my drive at 4:58 on Friday afternoon, two minutes before she had said. I had the oven on at 350 and my mother's tin open on the counter.
 
 She came in through the front hall with one bag on her shoulder and stopped at the table by the door.
 
@@ -77,7 +77,7 @@ She looked up from her plate.
 
 “That's not what I asked.”
 
-I had answered the question I could answer. She had heard me do it. She has been hearing me do it since she was old enough to ask me anything.
+She has been hearing me do that since she was old enough to ask me anything.
 
 “She has not spoken to me since Wednesday,” I said. “At 4:25 in the afternoon.”
 
@@ -105,7 +105,7 @@ I did not have an answer for her.
 
 From the outside it was the same. In October 2012 I paid off my mother's house from the back of a car, between two meetings. Janice sent the wire. My mother had not asked me to. Jo had not asked me to. Both times I knew the balance to the cent. Neither woman knew I was looking.
 
-I thought it was not the same. In 2012 I wanted my mother to stop making a payment, and I did it from the back of a car, between two meetings. With Jo I had thought about nothing else for a week. In June Owen told me his mother had not taken a day off since he was born, and that she would take one when the house was paid. By her own plan that was November 2036. Owen would be nineteen and gone. I had not been there for one line on my daughter's side of that door. I did not want Jo to have her days off after her son had left the house. I wanted her to have them while he was nine. Remy had three options ready. I did not open them. For my mother I had approved a standing order in 2014 and never read what it sent her.
+I thought it was not the same. In 2012 I wanted my mother to stop making a payment. With Jo I had thought about nothing else for a week. In June Owen told me his mother had not taken a day off since he was born, and that she would take one when the house was paid. By her own plan that was November 2036. Owen would be nineteen and gone. I had not been there for one line on my daughter's side of that door. I did not want Jo to have her days off after her son had left the house. I wanted her to have them while he was nine. Remy had three options ready. I did not open them. For my mother I had approved a standing order in 2014 and never read what it sent her.
 
 I looked for a way to say that to Abby. Every way I found came out as *this time I meant it.* That is what a man says about the twelfth one. Abby had sat at the end of the table for the other eleven.
 
@@ -199,7 +199,7 @@ I watched her. I have sat across a table from a great many people who did not wa
 
 Jo did not look at me once. Twice she started to. The first time was over a hatbox, at 7:52. She turned her head toward me with a breath already in and her mouth open on the first word. Then she turned it the rest of the way, to Vili, and said “Vili.” The second time was at 8:30, in the hall, with nobody between us. She stopped with the breath in. Then she let it out through her nose and went back into the bedroom.
 
-On Skyline in the dark, after the rock, she had taken a breath like that four times between my gate and Saratoga Gap. Nothing had come after any of them.
+On Skyline in the dark, after the rock, she had taken a breath like that four times before Saratoga Gap. Nothing had come after any of them.
 
 She did not trust her next word. I have seen founders at the end of a down round look like that, with the term sheet in front of them. Every one of them was afraid of what came out of his own mouth.
 
@@ -225,13 +225,13 @@ He came down the hall with a hammer and a flat screwdriver. He looked at the hin
 
 He set the screwdriver under the head of the bottom pin and tapped it up. It did not move. He tapped harder. The paint cracked around the knuckle in a ring, and the pin came up an inch and he pulled it with his fingers. He did the middle one. Jo put her shoulder to the door on the handle side and held it. Vili did the top one last, with her holding the weight. Her forearm went hard from the wrist to the elbow. I watched it the whole time Vili worked the top pin. I wanted to put my hand on it.
 
-The morning she found the lines behind the robe, she had asked me green or blue for this door. I told her it was a door. She told me doors come off. I said green. This was the ninth Saturday of ten.
+In June I had put green on this door. This was the ninth Saturday of ten.
 
 They walked the door out of its frame and stood it against the hall wall. My mother's robe swung on the hook on the back of it. Above everybody's head was the strip of green tape I had torn in June.
 
 Jo put her hand in the robe's left pocket and took out the tissue. She put it back. She put her hand in the right pocket and took out the pen, my mother's blue ballpoint. She looked at it. She put it back in the pocket.
 
-She goes through every pocket. She told Owen so in June. She did not take the robe off the hook. She left it on the door with the pen in it.
+She left the robe on the door with the pen in it.
 
 She and Vili wrapped the door in two pads, with the robe under them, and taped the pads at the top and the bottom and twice in the middle. She took the low end. The hall is thirty-six inches wide. I put my back flat against the wall so they could get the door past me, and Jo went by close enough that I could smell the tape and her sunscreen. In June she had kissed me at that door, with her son thirty feet away. She did not look at me going past. They walked it out to the truck and up the ramp, and Manny strapped it to the wall in the green section, standing up.
 
@@ -251,7 +251,7 @@ She had not said anything. She was sitting on the tailgate eating hers, looking 
 
 I opened it. It was turkey, on the bread she buys, buttered to the edge on both slices. The tomato was in the middle where it could not get to the bread.
 
-She had made it last night at her counter. She had made four. She had not made three.
+She had made it last night at her counter.
 
 I ate it on the bench in the atrium. I ate the whole sandwich. It was the best thing I had eaten since Wednesday.
 
@@ -345,7 +345,7 @@ I did not know why. My mother had made that payment every month I could remember
 
 Line seven was *Comfortable being looked after.*
 
-In June, at the dog park fence in Los Gatos, Jo had asked me who wanted that one. I told her I send things and I like it when they are used. She asked me what about when they are not. I did not answer her. I had read the line a hundred times since. I read it again. Thirty-four boxes, and a hundred and fifty-six envelopes. In April I had asked a machine for a woman who would use what I sent. A woman who uses what I send does not need me to come. I could send it from the back of a car between two meetings. I could choose it, and know to the day when it would arrive. Nothing I sent could ask me anything back. The eleven had used it. My mother had put it in a closet with the tape on. Jo had walked to the elevator.
+In June, at the dog park fence in Los Gatos, Jo had asked me who wanted that one. I told her I send things and I like it when they are used. She asked me why. I told her I did not know. I had read the line a hundred times since. I read it again. Thirty-four boxes, and a hundred and fifty-six envelopes. In April I had asked a machine for a woman who would use what I sent. A woman who uses what I send does not need me to come. I could send it from the back of a car between two meetings. I could choose it, and know to the day when it would arrive. Nothing I sent could ask me anything back. The eleven had used it. My mother had put it in a closet with the tape on. Jo had walked to the elevator.
 
 On Wednesday morning Jo would have called her bank and asked them to send it back. I knew that the way I knew her loan number. They would have told her they could not. Somewhere a check for about forty-five hundred dollars was coming to her in the mail, in her name. I did not know what she would do with it. I did not think she would cash it.
 
@@ -530,7 +530,7 @@ She meant hers. I gave her all eleven.
 
 I took my time with it. She waited. She did divorces for fifteen years. She lets a witness take as long as he needs.
 
-With the eleven I had done nothing because there was nothing I wanted. A woman wrote to thank me, I approved the reply, and I approved the next thing on my calendar. Since Wednesday I had opened Jo's thread twenty-six times. A week ago Friday I had typed *May I* to her and deleted it. Tonight I had sent nothing.
+Since Wednesday I had opened Jo's thread twenty-six times. A week ago Friday I had typed *May I* to her and deleted it. Tonight I had sent nothing.
 
 “No,” I said. “It is not the same.”
 
@@ -665,8 +665,6 @@ Remy had not been wrong. Every word in the summary was hers. She had asked me to
 I thought of the shoebox on my desk. *Calvin, house.* She had not been paying off a house. She had been waiting for me to come and ask her why. Every first of the month for thirteen years she had written my name on the front of it, in case I did.
 
 I had a minute on the ninth. She died on the eighth.
-
-Ten months later I had sent five hundred and twenty-one thousand dollars to a woman who had asked me one thing, at my own sink, with my hands wet.
 
 I sat on the floor of my hall with my dog. I did not get up. I did not know how long. I did not look.
 

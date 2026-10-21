@@ -2,7 +2,7 @@
 
 **Jo**
 
-Kevin texted at nine on Friday night, and at six on Saturday my son was in the white truck with me, on his way to a client's house.
+Kevin texted on Friday night, and the next morning my son was in the white truck with me, on his way to a client's house.
 
 *Graduation's tomorrow. I'm on the field at 6:30 and done around 2. He can sit in the bleachers or stay with you. Whatever works for you.*
 
@@ -22,7 +22,7 @@ Vili took the sixteen-footer and Manny. I followed them down 101.
 
 “He does. Say the rules.”
 
-I have never opened it. It comes every August, and I file it. I know when Owen's school starts and when it lets out, so the rest of Kevin's year is Kevin's. This year the rest of it had a graduation in it. He had sent it like always. I'd had since August to find out. I found out at nine o'clock last night.
+I have never opened it. It comes every August, and I file it. I know when Owen's school starts and when it lets out, so the rest of Kevin's year is Kevin's. This year the rest of it had a graduation in it. He had sent it like always. I'd had since August to find out. I found out last night.
 
 “I stay where you can see me. Everything in the house is somebody's, so I touch what you hand me.” He turned nine in February, and he recites like his father. “And I don't ask the client for anything.”
 
@@ -72,7 +72,7 @@ I had. On Monday I drove under forty-eight feet of that man and checked my hair 
 
 ***
 
-Cal Brennan was at the curb at 6:57 on Saturday morning with three paper bags.
+Cal Brennan was at the curb three minutes early on Saturday morning, with three paper bags.
 
 His car was across the street, with the fender the way I had left it. Vili took the driveway in one pass, and he looked at me in his mirror while he did it.
 
@@ -102,7 +102,7 @@ I opened it. I check his boxes, and I checked this. He had used about a yard of 
 
 “My father told me. I was seven.”
 
-He was watching the foil in my hands and waiting to hear how he had done. He had stood in a kitchen at 5:40 in the morning and made a sandwich because I told him to. My stomach went over the hill, at a curb, with my son ten feet away.
+He was watching the foil in my hands and waiting to hear how he had done. My stomach went over the hill, at a curb, with my son ten feet away.
 
 “It's square,” I said, and gave it back.
 
@@ -344,8 +344,6 @@ That left the two of us in the hall where he had held up his grandmother's hutch
 
 “May he hold the leash? In the back yard. I will be on the other end. I am asking you first.”
 
-He'd had an hour alone with a boy who knows his keynote to the second, and a dog thirty feet off, and he had walked down a hall to ask me.
-
 I'd lain awake over what he would give my son, so I could pay for it ahead of time. He hadn't offered Owen a thing.
 
 “The back yard,” I said. “You stay on the leash with him.”
@@ -388,6 +386,6 @@ My hand was still on the man's shirt, and his heart was going under it.
 
 Vili had asked me nearly the same thing from that spot three weeks ago. Helping, or a client. I hadn't had an answer for him.
 
-Owen was going to get one. He'd heard me say client in the truck. He had just watched me kiss one. He had eleven questions in him and a rule against every one of them.
+Owen was going to get one. He had eleven questions in him and a rule against every one of them.
 
 “Friend,” I said. “Go ahead and ask him.”

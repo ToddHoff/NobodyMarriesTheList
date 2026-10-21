@@ -4,8 +4,6 @@
 
 When we came out after the twelfth course there was a taco truck in the parking lot with its window up and every light on, and it had come for one customer.
 
-He had asked me first. At the ninth course he'd had his phone in his hand, and he asked. I told him he had picked the place, so he owed me something to eat. I had been up since four-thirty. I had moved a dentist's office and eaten twelve courses that came to about a cup. I said all right.
-
 I had not said tacos. Neither had he.
 
 It said TACOS ARREOLA down the side. The driver had backed it in across four spaces at the far end of the lot, which is how I would have done it, and he had a generator going. People were coming out of the club in good jackets and walking the long way around it.
@@ -42,7 +40,7 @@ The man in it had an apron on and a towel over his shoulder. He looked at the dr
 
 I bill a truck and a driver by the hour. I knew about what two hours of that man's night had cost, and I knew I was not going to see the number.
 
-Two hours of a truck and a cook, and whatever a man charges to come out at the last minute. I had it to within forty dollars. That was no use to me. I wanted it on paper, in my hand, where I could pay it.
+I had it to within forty dollars. That was no use to me. I wanted it on paper, in my hand, where I could pay it.
 
 I took a twenty out of my purse and put it on the counter under the window.
 
@@ -60,7 +58,7 @@ Cal was back before he had turned it.
 
 “There are nine of them,” he said. “They finish at ten.”
 
-He had counted them. In twenty years I've had about five clients walk out to my truck to tell my guys something themselves. At dinner he had typed one line under the table and got a taco truck. He could have typed one more.
+In twenty years I've had about five clients walk out to my truck to tell my guys something themselves. At dinner he had typed one line under the table and got a taco truck. He could have typed one more.
 
 We stood at the window while he cooked. It was the first heat I had been near all night that smelled like food.
 

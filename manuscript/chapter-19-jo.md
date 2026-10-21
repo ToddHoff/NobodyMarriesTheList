@@ -6,9 +6,9 @@ On Sunday morning, in my crew shirt and my reading glasses and not much else, I 
 
 He'd been at my kitchen table about a minute. He'd squared my chipped mug to the edge of it.
 
-I'd hooked the chair out for him with my bare foot. He'd been standing at the end of my table with that mug, looking for somewhere to be. I'd moved him around my kitchen by the hips the night before. He still hadn't found it.
+He'd been standing at the end of my table with that mug, looking for somewhere to be. I'd moved him around my kitchen by the hips the night before. He still hadn't found it.
 
-I'd left him asleep in my bed. I stood in the door a while wanting to wake him up. I folded his shirt on the chair by my boots instead, in thirds and then in half like a pad. Now he had it on again, in the chair beside me. I was thinking about his hand on the back of my leg last night, on the scar. I'd said Pacifica before he could ask. He'd kept his hand there anyway.
+I'd left him asleep in my bed. I stood in the door a while wanting to wake him up. I was thinking about his hand on the back of my leg last night, on the scar.
 
 “Owen loves volcanoes,” he said.
 
@@ -32,7 +32,7 @@ I took my glasses off.
 
 “I have not said anything to Owen,” he said. “I wanted to ask you first.”
 
-On Wednesday at his sink I'd made him promise not to pay for anything of mine without asking. Here he was at my table, asking. I hadn't figured on volcanoes.
+I hadn't figured on volcanoes.
 
 “Ask me what,” I said.
 
@@ -340,7 +340,7 @@ Cal sat back on his heels and looked at what was left.
 
 “No,” Owen said. “It makes a new one every time. That's the rule.”
 
-“It makes a new one every time,” Cal said. He says things back to you word for word.
+“It makes a new one every time,” Cal said.
 
 I went and stood in the water up to my knees for a while and looked at the little island instead of him. My stomach had gone over the hill again.
 
@@ -408,7 +408,7 @@ Gil came in and watched me wrap them.
 
 We flew to the Big Island before sunup, forty minutes over water into the sunrise. Behind us the top of Haleakalā stood up out of the clouds, pink. Ahead of us the Big Island ran up from the water like a loading ramp, two mountains so wide and so slow I couldn't tell where they started, with their tops above the clouds and the first sun lying across them. The airship was waiting in a field outside Hilo, tied by its nose to a mast on the front of a truck. It was white. I paced it off without meaning to. Nine of my big trucks nose to tail, with some left over.
 
-In 2009 I watched one of these go over 101 every week from my cab. Five hundred dollars an hour. I'd looked it up so many times Denise asked if I was saving for it. I didn't say anything now. I stood there with a grocery bag of sandwiches until Owen pulled on my sleeve.
+In 2009 I watched one of these go over 101 every week from my cab. I'd looked it up so many times Denise asked if I was saving for it. I didn't say anything now. I stood there with a grocery bag of sandwiches until Owen pulled on my sleeve.
 
 “That's her,” he said.
 
@@ -566,11 +566,11 @@ He goes quiet when he's told no. Kevin could go quiet from a Tuesday to a Sunday
 
 I had the words ready. *Next time, bud.* They never work. I've said them a hundred times.
 
-I waited for Cal to make a call. I'd have bet the truck he could get somebody on the phone about a volcano. He'd gotten a governor. He didn't take his phone out. He sat down on the cold ground next to my son, in his good pants. He didn't touch him. He didn't ask Owen what was wrong. He didn't tell him it would go tomorrow. He sat there.
+I waited for Cal to make a call. I'd have bet the truck he could get somebody on the phone about a volcano. He'd gotten a governor. He didn't take his phone out. He sat down on the cold ground next to my son, in his good pants. He sat there.
 
 I looked at my watch eleven times. He didn't look at his once. He'd worn it face in since Saturday.
 
-I'd turned it around on him myself, Saturday night in my bed, so neither of us could read it. I'd figured he'd turn it back the minute he got to his car. He hadn't.
+I'd figured he'd turn it back the minute he got to his car. He hadn't.
 
 The sun went down behind the big mountain to the west. The cliffs went pink and then gray. Down the rim, people were coming out from the parking lot in jackets, a few at a time, and lining up along the rope. Half a moon was already up over the crater, very white. The red in the north vent got brighter as the sky got darker, and the steam over it lit up orange from underneath.
 
@@ -622,7 +622,7 @@ I had my hand flat on my own chest. I didn't know when I'd put it there.
 
 Cal hadn't made a call. He'd sat on the ground in the cold.
 
-I looked at him. He wasn't counting anything. He didn't ask how high. Cal wants the number on everything. His face was orange and it was wet. It was cold enough up there that it could have been the wind. I didn't ask.
+I looked at him. He wasn't counting anything. His face was orange and it was wet. It was cold enough up there that it could have been the wind. I didn't ask.
 
 Owen sat back down on the ground next to Cal. I sat down on his other side, on the cold ground. I reached around behind him and put my hand flat on Cal's back. I left it there.
 
@@ -700,7 +700,7 @@ I'm forty-four. I've got one. I'm done. He knew that.
 
 I didn't ask him who wanted that one. Not on an airplane.
 
-I knew how that card worked by now. Line five was his mother. Line six was a woman who sold the story of his custody hearing, with Abby's school in it. Every line he'd explained to me had somebody under it. If I asked about eight, he'd tell me. I'd have to hear it with my son asleep on his arm.
+I knew how that card worked by now. Every line he'd explained to me had somebody under it. If I asked about eight, he'd tell me. I'd have to hear it with my son asleep on his arm.
 
 On the lanai I'd found the piano I'd been looking for since May. It was money, like I'd figured. I hadn't thought to look on the card for a second one.
 

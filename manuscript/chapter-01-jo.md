@@ -108,7 +108,7 @@ DON'T: say "noted." Look at your watch.
 8:45 car.
 ```
 
-I write a card like that for every house I walk. Stairs, elevator, piano, who signs the check. I had never been on one. Somebody had looked up the year my father started and put it under my name, so this man would know what to ask me. When I walked in, he'd been reading about me.
+I write a card like that for every house I walk. Stairs, elevator, piano, who signs the check. I had never been on one. Somebody had looked up the year my father started and put it under my name. When I walked in, he'd been reading about me.
 
 “You looked at your watch,” I said.
 
@@ -176,7 +176,7 @@ He had stopped looking at the card. People get a look when I tell them what I do
 
 My beer came. The six dollars came with it, and I left them where they were.
 
-He had asked about my father because a card told him to. I'd told him more than I tell clients who ask on their own. While I drank, I looked at his hands on the table, because my father would have. They were clean to the wrist. I'd have bet they had never been under the heavy end of anything. I had my answer. I kept looking at them anyway.
+I'd told him more than I tell clients who ask on their own. While I drank, I looked at his hands on the table, because my father would have. They were clean to the wrist. I'd have bet they had never been under the heavy end of anything. I had my answer. I kept looking at them anyway.
 
 The last line on the card said not to mention the list. I drew a line through DON'T.
 
@@ -202,7 +202,7 @@ He took his time with that.
 
 “You drove in from Daly City to buy your own beer. You want something.”
 
-He didn't ask it rudely. He asked like a man who wants to know what a couch weighs before he picks up his end.
+He asked like a man who wants to know what a couch weighs before he picks up his end.
 
 “One line,” I said. “Off the list. I've got ten minutes left, and I'd like to know one thing I'm not.”
 
@@ -244,7 +244,7 @@ That was the second reason, and it went in the wrong column.
 
 We sat down. My face was warm, and I blamed the walk from Minna Street. His ears had gone red again, and he had nothing to blame.
 
-I'd changed my shirt in the cab thinking this would be the easiest beer I'd had all year. A man who had already ruled me out, with a car coming for him at a quarter to nine. It said so on his card. Now his hand had been on my head for as long as it takes to read a tape. I could still feel where it had been. I told myself a quarter to nine was good news.
+I'd changed my shirt in the cab thinking this would be the easiest beer I'd had all year. Now his hand had been on my head for as long as it takes to read a tape. I could still feel where it had been. I told myself a quarter to nine was good news.
 
 I picked up his card and turned it over. On the back I wrote *5'8″ or taller* in carpenter's pencil. Then I drew a line through it.
 
@@ -334,7 +334,7 @@ I had been angry at forty-eight feet of this man since the day that billboard we
 
 That was four.
 
-A minute before his car, the bartender set a leather folder at his elbow. Nobody had asked for it. This table ended at 8:45, and the man had worked enough of them to know.
+A minute before his car, the bartender set a leather folder at his elbow. Nobody had asked for it.
 
 Then the phone lit up beside the card.
 

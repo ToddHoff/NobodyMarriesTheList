@@ -12,11 +12,11 @@ The last thing in it was what I had sent on Friday night. *Understood. We will b
 
 It was clear and cool. The moon was over the oaks to the south, most of it, bright enough to put the post's shadow on the gravel. The air smelled of dry grass and the bay trees. Two deer stood in the field across the road and watched us.
 
-On the rock she had told me to say it again when my pulse was normal. At her hood my pulse had been normal for half a mile. I said it again, and she kissed me. Then she drove me down Skyline in the dark with both hands on the wheel. Four times before Saratoga Gap she took a breath through her mouth. Nothing came after any of them. On Saturday she drove me to Carmel and talked about the fog the whole way. At Ventana she put her hand on mine on the terrace in front of everybody. I turned mine over and waited. She passed me the bread. On Sunday morning on the deck I had it ready twice, over my coffee. Both times I drank the coffee.
+On the rock she had told me to say it again when my pulse was normal. At her hood my pulse had been normal for half a mile. I said it again, and she kissed me. At Ventana she put her hand on mine on the terrace in front of everybody. I turned mine over and waited. She passed me the bread. On Sunday morning on the deck I had it ready twice, over my coffee. Both times I drank the coffee.
 
 She had told me when to say it. I had said it when she told me to. What came after that, she had not said. I had nothing to work from.
 
-On Sunday at her counter I had read *skip Aug* in her handwriting under her NOV 2036. In July she had turned that statement around so I could read it right side up. On Sunday she turned it face down. Nineteen hundred dollars was not going on her house in August. She had not said why. I had stood in her kitchen with both hands around a mug.
+On Sunday at her counter I had read *skip Aug* in her handwriting under her NOV 2036. In July she had turned that statement around so I could read it right side up. On Sunday she turned it face down. Nineteen hundred dollars was not going on her house in August. She had not said why.
 
 At 5:38 I carried Pancake up the last three steps. He cannot do those anymore. He put his chin on my shoulder while I did it, the way he does in the car.
 
@@ -116,7 +116,7 @@ She stood by her door and looked at a row of spaces along the buildings.
 
 “I parked here for two years,” she said. “Class at eight, the yard by one. Never went up.”
 
-In June she had told me she did two years here, business, and then the trucks needed somebody. She was looking at one space in particular. I let her look.
+She was looking at one space in particular. I let her look.
 
 Owen came around the truck with his backpack on both shoulders and shook my hand, one pump, looking at me. Then he looked into my car.
 
@@ -126,7 +126,7 @@ Owen came around the truck with his backpack on both shoulders and shook my hand
 
 Owen looked at me for some time. Then he unzipped his backpack and took out a mixing bowl. He looked at it. He put it back and zipped the pack and put it on again.
 
-It was the bowl from the back of Jo's truck at Carmel. She had poured my dog water in it on the asphalt. Owen had carried it from his mother's kitchen so that my dog could drink out of it on top of a ridge.
+It was the bowl from the back of Jo's truck at Carmel.
 
 I could have had Pancake on top of the ridge by eight. There is a paved road up from Sneath Lane, closed to cars. Somebody has the key to the gate. It would have taken two calls. I kept my phone in my pocket and walked beside him.
 
@@ -458,7 +458,7 @@ She had picked the twenty-eighth. Every dial in her office sits on an even numbe
 
 “One,” she said. “You'll want someone in by the twenty-fourth. Two. I'll leave the calendar in order through December.”
 
-She had been going to stay until December. In June she had hired a mover to give her a number on fourteen file cabinets six months before they needed moving, so that she could get a look at the mover. I had watched her give Jo the nod she has given two lawyers and a caterer. She was staying to hand me to someone. She had seen this morning that she was not going to get to.
+She had been going to stay until December. I had watched her give Jo the nod she has given two lawyers and a caterer. She was staying to hand me to someone. She had seen this morning that she was not going to get to.
 
 She had worked for me since the company was nine people. In seventeen years I have been handed a great many resignations and had a sentence ready for each of them, about the work and the next thing. I looked for one now. I looked at her sevens.
 

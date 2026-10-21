@@ -20,7 +20,7 @@ On Saturday she had worked around that door all morning. She packed the frames o
 
 She knew what was in it.
 
-I knew too. On May 23, in my grandmother's hutch, she had fanned a stack of packing slips cut down to two lines each. *Happy Birthday, Mom. Love, Cal.* She had counted thirty-four for the found sheet. I had counted them with her. Each slip had come out of the window on a box. There had been no boxes in the hutch. I had walked past that closet door on six Saturdays since and had not asked her where the boxes were.
+I knew too. I had walked past that closet door on six Saturdays since the hutch and had not asked her where the boxes were.
 
 I did not want to see them.
 
@@ -30,7 +30,7 @@ I knew what they would be a count of.
 
 I parked on West Remington Drive at 6:31 on Tuesday evening. Jo had said seven. I did not sit in the car.
 
-In May I could not get past the kitchen floor in this house. I let myself in with my key, turned on my mother's oven and put the meat loaf in it to warm. The kitchen was nearly empty. The table was still there, and the coffee maker, because Jo says everybody needs the coffee maker till the end. The house had held the heat of the afternoon. The hall said seventy-nine. Pancake went to the slab and lay down on it with his legs out behind him.
+I let myself in with my key, turned on my mother's oven and put the meat loaf in it to warm. The kitchen was nearly empty. The table was still there, and the coffee maker, because Jo says everybody needs the coffee maker till the end. The house had held the heat of the afternoon. The hall said seventy-nine. Pancake went to the slab and lay down on it with his legs out behind him.
 
 I stood in the hall and looked at the closet door. I could have opened it at 6:40, before she came. I wanted her in the hall when I did.
 
@@ -42,7 +42,7 @@ There was dust on her from the knees down and in the creases of her shirt. She h
 
 Her company has three trucks. The white one takes a three-bedroom in one load. She had done a three-bedroom in Belmont in the small one, twice. Two loads is two round trips. She would have started before six.
 
-On Monday night at her father's table she had gone out to the yard to take a call and come back and said “Work,” and I had said all right. Then at Kevin's car he had told her that in eleven years she had asked him for one thing. On 280 afterward I counted the things Jo had told me to do since May 7. I was at thirty-eight by the Woodside exit. Every one had been an order.
+At Kevin's car he had told her that in eleven years she had asked him for one thing. On 280 afterward I counted the things Jo had told me to do since May 7. I was at thirty-eight by the Woodside exit. Every one had been an order.
 
 She had told me work. I did not ask about the truck.
 
@@ -170,9 +170,9 @@ There was a heated throw, and a picture frame that showed photographs on a scree
 
 Seven of the receipts had the same item number.
 
-I sat on the slab with the seventh wrap in my lap. I own forty of the same gray shirt. I tried thirty-one before I found it. Then I bought forty and numbered them. I had not known what my office was sending my mother. I had approved the standing order once, in 2014. It had run without a failure since.
+I sat on the slab with the seventh wrap in my lap. I own forty of the same gray shirt. I had not known what my office was sending my mother. I had approved the standing order once, in 2014. It had run without a failure since.
 
-My mother had carried every one of these in from the porch herself. She would not let the driver. She had read each slip and cut the message out and kept the messages in order in a drawer. She had stacked the boxes in order in a closet. She had never opened one.
+My mother had carried every one of these in from the porch herself. She would not let the driver. She had never opened one.
 
 I did not need to look up where I had been on those days. Most of them I had spent on a plane.
 
@@ -214,7 +214,7 @@ Jo had not written anything down yet. She was looking at the row of shoeboxes on
 
 I put the twenties back in November and closed the flap. My hands were not steady, so I squared the envelope to the edge of the shoebox until they were.
 
-I had paid off the house so that my mother would not have to make the payment. She had made it anyway, on the first of every month for thirteen years, into a shoebox with my name on it. Ninety-five thousand dollars had sat in cash on a closet shelf the whole time and earned nothing. Janice could have had it in an account by noon on any one of those days. My mother had Janice's number. Every month she had counted out thirty twenties, a ten and two ones, and written my name on the front.
+I had paid off the house so that my mother would not have to make the payment. She had made it anyway, on the first of every month for thirteen years, into a shoebox with my name on it. Ninety-five thousand dollars had sat in cash on a closet shelf the whole time and earned nothing. Janice could have had it in an account by noon on any one of those days. My mother had Janice's number.
 
 I knew how many envelopes there were, and what was in each one, and the month she had put it by. I did not know what she had meant by any of it.
 

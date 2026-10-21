@@ -62,8 +62,6 @@ I didn't say any of that. It was his.
 
 “I will not touch anything of yours without asking you first.”
 
-He'd said that once already, in July, at his own sink, about money. On Saturday he'd asked me about air.
-
 His hand came across the slab and found mine without looking. His fingers were cold. I held on to them.
 
 The picture was still up, with the two words under it. His hand stayed tight on mine.
@@ -102,7 +100,7 @@ Some of them read like people I could have moved. I couldn't tell which.
 
 I looked at the street. There was nobody on it, no van, no camera. Denise had already looked twice.
 
-The white truck was up against the back fence where the tow had left it Monday, hood up. I'd called the shop at seven on Tuesday. Seventy-six hundred dollars and three weeks for the part. That's four months of what I pay extra on the house. Denise would have the invoice by Friday. What it did to my house was mine.
+The white truck was up against the back fence where the tow had left it Monday, hood up. I'd called the shop at seven on Tuesday. Seventy-six hundred dollars and three weeks for the part. Denise would have the invoice by Friday. What it did to my house was mine.
 
 The keys to the sixteen-footer weren't on the board. My father was in the cab of it with the window down and the tide book on the dash, reading the tides like he was going sailing instead of to Burlingame with Manny.
 
@@ -158,7 +156,7 @@ That afternoon the phone buzzed different. Kevin.
 
 I read it twice.
 
-I sat down on the dead man's fold-out couch with the phone in both hands. A mom at his day camp had asked my son about me at pickup. I didn't know her name. There was no page for her where I could sign mine. Owen had told her the truth and then told her about lava.
+I sat down on the dead man's fold-out couch with the phone in both hands. I didn't know her name. There was no page for her where I could sign mine. Owen had told her the truth and then told her about lava.
 
 *Let him have his phone,* I wrote. *Thanks, Kev.*
 
@@ -256,7 +254,7 @@ Cal sat down at my table and looked at the laptop. Then he pushed it square to t
 
 He used the arrows.
 
-The dog went under the table and lay down on my feet. He was warm all the way through my socks. In May I'd wanted that dog on the other side of a railing from me. I left my feet where they were.
+The dog went under the table and lay down on my feet. He was warm all the way through my socks. I left my feet where they were.
 
 He read on the laptop. I answered on my phone. He'd read one, say “No,” and go to the next, and I'd paste my sentence under it and sign it. Every so often he'd stop and read one twice.
 
@@ -282,7 +280,7 @@ It was an old review with a new line on top. *Rowena B., Elk Grove. Edited.* Und
 
 *Saw the picture. Silveira Moving is still the only company I would let in my moms house. Good for you Jo.*
 
-The widow with the recliner, the night I was late to meet him. He'd told me about those eleven sentences in May, at the fender of the white truck, the day I found out he'd sent her mother to Alaska and told him next time, ask.
+The widow with the recliner, the night I was late to meet him. Those eleven sentences were how he'd found her mother to send her to Alaska.
 
 I read it twice. *Silveira Moving,* she'd written. My father's name. She'd spelled it right.
 

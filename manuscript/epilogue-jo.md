@@ -135,7 +135,7 @@ I read ASK again.
 
 "Then ask," I said.
 
-He put his hands flat on the table on either side of the card, where he puts them when he wants them to stay put. He said it in the voice he uses in my kitchen.
+He put his hands flat on the table on either side of the card. He said it in the voice he uses in my kitchen.
 
 "Will you marry me?"
 

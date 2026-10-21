@@ -18,7 +18,7 @@ He read them off his phone.
 
 “That's right,” Owen said.
 
-He had known the answer before he asked. He was checking whether I did. I have run interviews that way since the company had four people.
+He was checking whether I did. I have run interviews that way since the company had four people.
 
 Pancake walked him twice around the yard. Owen held the leash in both hands, as I had shown him, and kept his back to the glass, where his mother was.
 
@@ -162,7 +162,7 @@ She had read the label on that box in my mother's front room. She was the only p
 
 My ears went hot. I put my hands in my pockets, which I do not do.
 
-Investors have told me I am good in a room since I was twenty-four. Every one of them wanted something from me when they said it. Jo had come to give Janice an estimate. She had just watched me hold a feature two days before it shipped.
+Investors have told me I am good in a room since I was twenty-four. Every one of them wanted something from me when they said it. Jo had come to give Janice an estimate.
 
 She looked down the floor and took in the desks and the stairs.
 

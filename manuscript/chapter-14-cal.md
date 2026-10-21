@@ -40,7 +40,7 @@ The twelfth was four words, and it was true.
 
 I sent it at 10:02. At 10:04 it said Read. She did not answer.
 
-She had read it two minutes after I sent it. I sat at the counter with my phone face up beside my hand until 11:40. At eleven Pancake got off my feet and went to his own bed. I wanted anything at all back from her. One word would have done.
+I sat at the counter with my phone face up beside my hand until 11:40. At eleven Pancake got off my feet and went to his own bed. I wanted anything at all back from her. One word would have done.
 
 On Thursday I looked at the thread thirty-one times. I know the number because I asked Remy how many times I had opened it, and it told me. It still said Read 10:04. I did not send a second one.
 
@@ -120,7 +120,7 @@ I had been looking forward to having it checked.
 
 I have sat across from a great many people who were angry with me. I know what it does to a face, and hers was not doing it. She was being careful. She kept four feet between us all morning, and when the four feet closed, she found something on the other side of the room. Vili spent the morning in the doorway, laying runners he had already laid. I believe she asked him to.
 
-On a job she puts people where she wants them with one word, “Runners” or “Bedroom.” This morning, every time I came inside her four feet, she was the one who moved. If I had been what she was angry at, she would have sent me to the truck.
+On a job she puts people where she wants them with one word, “Runners” or “Bedroom.” If I had been what she was angry at, she would have sent me to the truck.
 
 Her hair was tied back tighter than usual. I looked at the back of her neck more than I looked at my mother's dresser.
 
@@ -166,8 +166,6 @@ She looked at me. It was the first time that morning she had looked at me for lo
 
 Vili went out to the truck. Nobody had told him to.
 
-All morning he had stood in the doorway because she wanted him there. He had looked at her face and decided by himself that she did not want him there now.
-
 “Every one of them had a degree,” I said. “I never asked for one.”
 
 She waited.
@@ -184,9 +182,9 @@ I was glad she did not. The reason I had always had for it was gone. I did not h
 
 She took her time with it.
 
-“For about a year,” she said. “Then I had a crew to pay.”
+“For about a year,” she said. “Then I had a crew to pay. Nobody's asked me that since.”
 
-I had asked because I wanted to know, which is not my usual reason for a question. I wanted to ask her the rest of it. I did not. It was the first time that morning she had said more to me than a color. I did not want her to be sorry she had.
+I had asked because I wanted to know, which is not my usual reason for a question. I wanted to ask her the rest of it. I did not. I did not want her to be sorry she had told me.
 
 She held out her hand. I gave her the card. She took the pencil from behind her ear and wrote *COLLEGE DEGREE, MINIMUM* under the other five, and she drew the line.
 
@@ -224,7 +222,7 @@ Jo crouched and picked up the oldest pair. The tread was gone on the outside edg
 
 I crouched beside her. She was eighteen inches from me, and she did not move off.
 
-It was the first time all morning she had come inside four feet and stayed. I could smell the cab of her truck on the sweatshirt. I did not know whether she had noticed how close she was. I did not move, in case she had not.
+I could smell the cab of her truck on the sweatshirt. I did not know whether she had noticed how close she was. I did not move, in case she had not.
 
 “Green or blue?” she said.
 
@@ -256,7 +254,7 @@ I had been waiting since 5:35 for her to ask.
 
 She nodded and unwrapped her own. We ate without talking. The sky stayed white over the atrium. Pancake came out and stood in front of her, and then he leaned his whole side against her shin. She did not pet him. She did not move the leg.
 
-On our first night she had told me she would want my dog on the other side of a railing from her. Now he had all sixty-four pounds against her leg. I wanted to be where the dog was. I stayed on my end of the bench.
+I wanted to be where the dog was. I stayed on my end of the bench.
 
 At 11:40 she folded her foil into a square and stood up. She did not say anything about Tuesday. Neither did I.
 

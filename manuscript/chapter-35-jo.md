@@ -136,7 +136,7 @@ He didn't say it was the horseradish.
 
 “I am sorry,” he said.
 
-I waited for the rest of it. At Carmel he'd said it to the water. *I said I would fix it.*
+I waited for the rest of it.
 
 There wasn't a rest.
 
@@ -264,7 +264,7 @@ I pulled my own shirt off over my head. He looked at me under my own lamp. I let
 
 The glass was on its chain between us. He put one finger on it, on my breastbone, where his whole hand had been on Saturday. Then his hands went up my back and stayed.
 
-I got him out of his jeans and got on top of him and took him in, with the lamp on and both my hands flat on his chest. He kept his hands on my hips and didn't move me once. He watched my face. I put my whole weight down on him, all of it, on purpose. He took it.
+I got him out of his jeans and got on top of him and took him in, with the lamp on and both my hands flat on his chest. He kept his hands on my hips. He watched my face. I put my whole weight down on him, all of it, on purpose. He took it.
 
 I set the pace. He kept to it. The glass swung on its chain against his chest. He put his hand over it and over my hand and held both there. He said my name once, with his eyes open. Then his hands tightened on my hips and he quit waiting. I didn't want him to wait.
 

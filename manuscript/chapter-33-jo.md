@@ -22,7 +22,7 @@ It was a stairwell, cinder block painted white, with a window at the top. A flat
 
 He was in a gray T-shirt, wet down the middle of the back. He had the box on his palms, both of them up, under the bottom edge, the way you carry one. His knees were bent. His face was turned up the stairs at the kid, and his mouth was open on something.
 
-He'd taken the low end. On stairs the low end is the heavy end.
+He'd taken the low end.
 
 I sat down on the counter with my socks hanging over the sink and looked at his forearms in that picture till the screen went dark.
 
@@ -112,7 +112,7 @@ I'd said that at my own table, to his face, in July. He'd been doing the arithme
 
 I'd been furious for a week. I still was. *I did not ask you, because I knew what you would say.* He'd known what I'd say. So he hadn't let me say it.
 
-He hadn't written me a word since the pads. Then he'd sat in his car outside her dorm and written it out by hand, on paper torn off a pad, and spelled a word wrong, and stood in line at the post office in San Luis Obispo himself. I'd have bet money he'd never been inside one.
+He hadn't written me a word since the pads. Then he'd sat in his car outside her dorm and written it, and stood in line at the post office in San Luis Obispo himself. I'd have bet money he'd never been inside one.
 
 I folded the three pages back the way they'd come and put them in the envelope. I put the envelope on top of the bank's check.
 
@@ -236,9 +236,7 @@ He'd known what I'd say because I'd already said it to him. Over a beer at the P
 
 Nobody had to ask me anything. They all knew the answer.
 
-Kevin quit asking and went quiet. Cal didn't ask and sent a wire.
-
-I'd taught them both.
+I'd taught them all.
 
 ***
 
@@ -491,8 +489,6 @@ Denise pulled out the chair across from me and sat down. She pushed the calculat
 “Denise.”
 
 “And if you love him, it's a house.” She put her hand flat on the pad, on his fifty-eight ninety-one. “So?”
-
-He'd said it to me on a rock off Skyline in July, with his heart going under my hand. I told him to say it again when it wasn't. He did, across my hood, half a mile later. I kissed him and told him to get in the truck.
 
 I'd had it in my mouth on that rock. I'd had it in the dark at Carmel, and in Janice's office with her tape gun going behind me. Every time, I shut my mouth on it. I'd told myself I was waiting to be sure. I wasn't waiting. If I never said it, there was nothing he could buy with it. Not a truck. Not a sandwich. I'd kept it in my mouth the way I kept the bill.
 

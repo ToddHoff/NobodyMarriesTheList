@@ -62,7 +62,7 @@ She kept her hand out a second. Then she looked at my truck and put the hand in 
 
 “Jo,” I said. “It's a T-shirt and a toothbrush, Rita. If you carry it, I'll have to tip you.”
 
-Line seven was still on his card. *Comfortable being looked after.* At the dog park he'd said it out loud and couldn't tell me why, so it stayed on. I'd been on his gravel two minutes. I'd already said *I've got it* once.
+Line seven was still on his card. *Comfortable being looked after.* I'd been on his gravel two minutes. I'd already said *I've got it* once.
 
 He came down the steps behind her two at a time and stopped a foot short of me. He had on the gray shirt with the sleeves pushed up. My face went hot in front of his housekeeper. There wasn't a thing I could do about it.
 
@@ -92,7 +92,7 @@ I looked at the kitchen. There was nothing on the counters but Janice's cards. T
 
 There were two things on his refrigerator. One was a school form of Abby's under a magnet. I don't read what people put on their refrigerators. The other was a white plastic badge on a clip that said FOOD SERVICE and DARLENE. It still had my green tape on it, folded over on itself, the way he'd torn it on May 16. It was the only thing in that kitchen anybody had put out on purpose.
 
-I'd found that badge on the first Saturday, in a gray wool car coat, left pocket. I'd set it on the bench between us and watched him close his hand on it. Green goes home with the owner. Most of them have the tape in the trash by the first night. He'd had two months. My eyes stung. I wasn't going to do that in front of Janice Louie.
+Green goes home with the owner. Most of them have the tape in the trash by the first night. He'd had two months. My eyes stung. I wasn't going to do that in front of Janice Louie.
 
 “Is there bread?” I said. “I've been up since five. I'd eat a sandwich standing up.”
 
@@ -102,15 +102,15 @@ Janice put the rubber band around her cards.
 
 “Calvin,” she said. “The regulars order a sandwich.”
 
-It was the first thing Janice had ever said in my favor. She said it to him, not to me. She didn't look up from her cards.
+She said it to him, not to me. She didn't look up from her cards.
 
-In June he'd told me Janice liked me and nobody paid her to. This was the first I'd had it from her. I wanted to thank her. I kept my mouth shut, because then she'd have had to pretend she didn't know what for.
+In June he'd told me Janice liked me and nobody paid her to. I wanted to thank her. I kept my mouth shut, because then she'd have had to pretend she didn't know what for.
 
 She picked up her purse and said good night to all three of us. On her way out she stopped at the thermostat in the hall and moved it up a degree, to sixty-eight.
 
 Rita went home next. She took the halibut.
 
-He made the sandwiches himself. He got the bread out of a drawer and the butter out of the refrigerator. He buttered both pieces out to the edge with the knife flat, every corner. I watched him do it from a stool on the other side of the island. I'd told him that in June, over a sandwich that had gone to soup by eleven. He's done it every Saturday since.
+He made the sandwiches himself. He got the bread out of a drawer and the butter out of the refrigerator. He buttered both pieces out to the edge with the knife flat, every corner. I watched him do it from a stool on the other side of the island.
 
 I watched his hands more than the bread. I'd have told Denise I was checking his work.
 
@@ -244,7 +244,7 @@ He opened the cupboard on the left, then the one on the right, then a drawer wit
 
 He looked at it for a while.
 
-Rita had put it there with the label turned out, so whoever came looking would find it. He'd never washed a dish in that kitchen. He didn't have to tell me.
+Rita had put it there with the label turned out, so whoever came looking would find it.
 
 I washed. He rinsed. He was careful with the pan, like it had cost him something. We got through the plates without talking.
 
@@ -272,14 +272,12 @@ I hadn't told anybody that last part but Denise.
 
 “Yes.”
 
-He said it before he knew what it was. On his mother's wet lawn in May he'd said yes before I was done. I'd told him I wasn't finished. He'd said *I know. Yes.* He hadn't missed one of those Saturdays since.
+He said it before he knew what it was. On his mother's wet lawn in May he'd said yes before I was done. He hadn't missed one of those Saturdays since.
 
 “You don't pay for anything of mine without asking me first. Not a sandwich. Nothing.”
 
 He dried his hands on his shirt, because he didn't know where his dish towels were either.
 
 “I will not pay for anything of yours without asking you first,” he said.
-
-He said it word for word, the way he says everything back to me.
 
 I found the towels in the drawer by the stove and handed him one.

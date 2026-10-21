@@ -32,7 +32,7 @@ I had never seen her at her own door with nowhere to be. I wanted to kiss her ri
 
 Owen's shoes were inside the door, one of them on its side. The front room had a couch with a blanket folded over the arm and a television not much bigger than the screen in my car. She had vacuumed. The lines were still in the carpet. The hall closet door would not quite shut on whatever she had put in it in a hurry. I kept that to myself.
 
-She had cleaned for me. On Tuesday she had sat in her truck in my driveway working up her nerve. She had told me so to my face. I put the odds at better than even that she had stood at her front window through my second lap doing the same thing. I kept that to myself. I was not going to make her answer for Tuesday in her own front room.
+On Tuesday she had sat in her truck in my driveway working up her nerve. She had told me so to my face. I put the odds at better than even that she had stood at her front window through my second lap doing the same thing. I was not going to make her answer for Tuesday in her own front room.
 
 I followed her into the kitchen and stood in front of the drawer she wanted.
 
@@ -52,7 +52,7 @@ I moved my shoulder off the lines.
 
 She had a foil packet out of the refrigerator with a strip of masking tape on it. The tape said *J FRI* in square capitals that were not hers. Her father had been in this kitchen last night, letting himself in. She slid six linguiças into a black pan and lifted it off the burner one-handed to shake it. Her forearm took the whole weight of it. I watched the forearm.
 
-Her father had a key to this house. He had used it to bring her dinner. Everyone who has a key to my house and does not live in it is on my payroll.
+Everyone who has a key to my house and does not live in it is on my payroll.
 
 Her phone buzzed three times on the counter.
 
@@ -74,7 +74,7 @@ We ate at her table, which had three chairs. One had a phone charger hanging off
 
 “You still owe me.”
 
-I had owed her half a linguiça sandwich since May 16. On the Tuesday after, I had stood in a bakery line in San Jose and brought her a bifana, which was wrong and good and did not count. Anything else I owe, Janice has paid before I know about it. I had carried this one for nine weeks. I was in no hurry to put it down.
+I had owed her half a linguiça sandwich since May 16. Anything else I owe, Janice has paid before I know about it. I had carried this one for nine weeks. I was in no hurry to put it down.
 
 “What did you do all afternoon?” she said.
 
@@ -102,7 +102,7 @@ Jo put her sandwich down.
 
 I had arranged it on Thursday morning, before I wrote to ask what time.
 
-I had asked Rita myself, in my own kitchen. On June 27 a car had waited at her curb with her name on it and the usual. I had watched her look at my face to see whether I had sent it. I had arranged my dog so that I could stay the night in her house. She had not asked me to stay.
+I had asked Rita myself, in my own kitchen. On June 27 a car had waited at her curb with her name on it and the usual. I had watched her look at my face to see whether I had sent it.
 
 “I wanted to be able to stay, if you asked me to,” I said.
 
@@ -152,7 +152,7 @@ She stopped with her hands on my belt.
 
 I laughed. I could not stop. She laughed with her forehead against my chest. I felt it go through both of us.
 
-She had said it to me once before, in June, across a table in Los Gatos. I had argued with her. I told her I was answering her question. In her room I had my face down in her hair and could not get my breath.
+In her room I had my face down in her hair and could not get my breath.
 
 She put her hand flat on my chest, where she had put it on a curb in Los Gatos, and pushed. I went down onto her bed. She took my left wrist and turned my watch around on it, so the face was against the inside of my wrist where neither of us could read it.
 
@@ -193,8 +193,6 @@ The last time I had seen was 11:14. I had meant to be awake at five, when Rita w
 The bed was empty beside me. I could smell coffee. My watch was still turned around on my wrist. I left it that way.
 
 My shirt was on the chair by her boots, folded in thirds and then in half, the way she folds a furniture pad. I put it on and went down the hall.
-
-While I slept she had picked my shirt up off her floor.
 
 She was at the kitchen table in a gray crew shirt with SILVEIRA across the shoulders and, as far as I could see, nothing else. She had the reading glasses on, and a pen, and her checkbook open. I stood in her kitchen doorway and wanted her again.
 
@@ -239,8 +237,6 @@ It was ten years and four months from that table to her driveway. I wanted to be
 She wrote the check for the payment and the nineteen hundred and signed it. She tore it out, folded the coupon around it and licked the envelope. She made a face at the glue. She put the statement on the counter by the coffee maker, with the envelope on top of it for the mail.
 
 It was a number I could have sent from her kitchen in less time than it took her to lick that envelope. I had promised her on Wednesday. I put both hands around the mug.
-
-On Wednesday at my sink she had told me about Kevin's mother and eleven years of Sundays. She had kept her eyes on the pan the whole time she told it.
 
 At eight my watch tapped against the inside of my wrist. She heard it.
 

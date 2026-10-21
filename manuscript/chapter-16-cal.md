@@ -42,7 +42,7 @@ Jo was looking at my face. She looked at it for about as long as she looks at a 
 
 On June 16 she had made me list which parts of a month were me. This took her about two seconds. My shoulders came down an inch.
 
-I had been ready to explain it. I had a sentence half built on the walk up from my car. Every version of it had the plan in it. I did not want to say the plan out loud on her sidewalk. She was right about the car. She did not know what was scheduled behind it. I did not tell her.
+I had been ready to explain it. I had a sentence half built on the walk up from my car. Every version of it had the plan in it. She was right about the car. She did not know what was scheduled behind it. I did not tell her.
 
 She unfolded her arms, went down the walk to the driver and took a twenty out of her back pocket.
 
@@ -52,7 +52,7 @@ She unfolded her arms, went down the walk to the driver and took a twenty out of
 
 He looked at me. I said nothing. He took the twenty, shut the door he had been holding and drove away.
 
-He had looked at me because I was the account. One word from me would have kept him at her curb. He would have held that door until I said otherwise. It was her curb. I had my hands in my pockets so that I would not wave him off myself.
+He had looked at me because I was the account. It was her curb. I had my hands in my pockets so that I would not wave him off myself.
 
 She came back up the walk and stopped in front of me.
 
@@ -116,7 +116,7 @@ I knew what was in it the way I know what a test will say before I run it. It wa
 
 Jo moved her hands to the top of the wheel and looked straight ahead. The side of her face I could see went pink. She did not say anything for a mile.
 
-I had not said it for her to hear. A word I had not tested had put a stranger at her curb holding a door. I wanted a word that would stop the next one. Then I heard where I had said it. On May 19, at the fender of her white truck, she had told me next time, ask. I had just told my own product to do it for me. I did not know whether that counted.
+I had not said it for her to hear. A word I had not tested had put a stranger at her curb holding a door. I wanted a word that would stop the next one. Then I heard where I had said it. She had told me next time, ask. I had just told my own product to do it for me. I did not know whether that counted.
 
 The pink went down the side of her neck into her collar. I watched it until she looked over. Then I looked at the road.
 
@@ -148,7 +148,7 @@ She took 85 to 17. Past Los Gatos the road climbs into the hills. The reservoir 
 
 “Is that what he is.” She watched the water go by. “Everybody pulls when he says. Same as stairs. The low man calls it.”
 
-On Thursday Vili had called the dresser on the Delgados' landing. I lifted when he said and not before. The corner went past the wall with about a pencil's width to spare. Jo was at the bottom of the stairs. My hands did not close all the way until Friday afternoon. I kept looking at them.
+On Thursday Vili had called the dresser on the Delgados' landing. I lifted when he said and not before. Jo was at the bottom of the stairs. My hands did not close all the way until Friday afternoon. I kept looking at them.
 
 ***
 
@@ -244,7 +244,7 @@ She looked at me for a second. Then she slid the twenties across. When the boy a
 
 She picked up the bag with the sandwiches in it. I held the door.
 
-My ears were hot all the way back across the road. The boy at the register had watched a woman pay for my lunch and had thought nothing of it. In May I would have pressed the button before her twenties were on the counter.
+My ears were hot all the way back across the road. The boy at the register had watched a woman pay for my lunch and had thought nothing of it.
 
 She did not turn back toward 17. She drove past the store and turned off Summit Road. Half a mile on she took a narrower road that climbed through the trees.
 
@@ -262,7 +262,7 @@ A dog came around the end of the building at a trot to meet us. He was big and b
 
 Jo had her hand on the door handle. She did not open the door.
 
-On our first night she had told me she would want a railing. I knew what she would want now. I asked anyway.
+I knew what she would want now. I asked anyway.
 
 “Do you want me to keep him with me?”
 
@@ -406,7 +406,7 @@ I could have said Remy. She knew a machine had written the list in nine seconds 
 
 “I send things,” I said. “I like it when they are used.”
 
-She did not say anything. I watched her think of the three boxes on my mother's hearth. She had read the labels on the first Saturday. She had left them on the hearth with no tape on them every Saturday since.
+She did not say anything. I thought of the three boxes on my mother's hearth. She had left them there with no tape on them every Saturday since the first.
 
 “Why?” she said.
 

@@ -224,7 +224,7 @@ He looked at the basin. Then he looked at me.
 
 "My head. And here." He put his hand flat on his stomach.
 
-He answered each one as fast as I asked it. He had been waiting for someone to ask him.
+He answered each one as fast as I asked it.
 
 Mrs. Fonoti came in behind me and picked up the basin.
 
@@ -276,7 +276,7 @@ I took a juice glass out of the cupboard on the left and filled it at the tap. H
 
 At 11:27 it came back up, all of it, into Jo's sink.
 
-I stood behind him. I did not know where to put my hands. Then I put one flat on his back, between his shoulder blades, where his mother had put hers on the rim of the volcano. I kept it there until he was done.
+I stood behind him. I did not know where to put my hands. Then I put one flat on his back, between his shoulder blades, where his mother had put hers on mine at the rim of the volcano. I kept it there until he was done.
 
 I ran the water. He wiped his mouth on her rag.
 
@@ -336,7 +336,7 @@ He said it to the ceiling. Then he turned his head and saw me on the floor. His 
 
 He turned over and faced the back of the couch.
 
-On the rim of the volcano I had sat on the ground next to him for an hour, because there was nothing to buy. There was nothing to buy for this either. I stayed where I was.
+There was nothing to buy for this. I stayed where I was.
 
 After a while he turned back over.
 
@@ -386,7 +386,7 @@ At 4:10 that afternoon Jo wrote *Kevin's coming by.*
 
 At 4:16 somebody knocked on the front door with one knuckle. It was the knock of a man who knows there is a sick child on the other side.
 
-Kevin had a Safeway bag. He stood on the step and looked up the street and down it before he looked at me. He does it getting out of a car. He did it at the birthday dinner.
+Kevin had a Safeway bag. He stood on the step and looked up the street and down it before he looked at me.
 
 "Jo said you had him," he said.
 
@@ -402,7 +402,7 @@ Owen opened his eyes.
 
 Kevin took a box out of the bag and opened it. They were popsicles. He tore the paper off a purple one and put it in Owen's hand. Owen came up on one elbow and ate it. It was the first thing he had eaten since recess.
 
-Kevin stood at the end of the couch with his hands in his jacket pockets and watched him eat it. He looked at the basin and the thermometer and the box of Motrin in their row on the table. He looked at the towel I had left on the kitchen floor. He knew how the day had gone without asking me.
+Kevin stood at the end of the couch with his hands in his jacket pockets and watched him eat it. He looked at the basin and the thermometer and the box of Motrin in their row on the table. He looked at the towel I had left on the kitchen floor.
 
 He took the bag into the kitchen and put it on the counter. There was a bottle of green Gatorade in it and a sleeve of saltines. I put the rest of the popsicles in the freezer myself.
 
@@ -600,7 +600,7 @@ She took the pencil from behind her ear. It was still there from Pebble Beach. U
 
 She drew the line through it. She pressed hard enough that it came through on the front.
 
-I had said it to her on a ridge in August, with my arms around her. *Do you really need to work this much?* She had said yes. Since line five she had struck a line only after I could tell her why it was there. I had not told her about eleven. She had not waited for me to.
+Since line five she had struck a line only after I could tell her why it was there. I had not told her about eleven. She had not waited for me to.
 
 I put both hands flat on her table to keep them there.
 

@@ -86,7 +86,7 @@ I didn't remember saying it. It sounded like me.
 
 “I never asked him for anything.” It came out before I had looked at it. “Eleven years.”
 
-Vili waited for more. There wasn't any. I had surprised myself, and I shut up.
+Vili waited for more. There wasn't any.
 
 I tried to think of one thing I had asked him for. What came was the water heater. It went one morning after he'd left for school. I had a plumber whose mother I'd moved put a new one in by three. I paid him. When Kevin got home the shower was hot. I didn't mention it. I used to tell that one at my father's table as a funny story.
 
@@ -202,7 +202,7 @@ I didn't read him any. I counted thirty-four for the found sheet and held out bo
 
 He took the green one without looking at the blue.
 
-In the bar I had told him she'd keep every card that ever came with his name on it. I meant cards in a shoebox, in a son's handwriting. I have packed a hundred of those shoeboxes. Nobody had signed these. They came off a printer in some warehouse. His mother had cut them down and kept them in order anyway. I had sat three hours across a table from her son. Every time he put his card down, he squared it to the edge.
+In the bar I had told him she'd keep every card that ever came with his name on it. I meant cards in a shoebox, in a son's handwriting. I have packed a hundred of those shoeboxes. These came off a printer in some warehouse. I had sat three hours across a table from her son. Every time he put his card down, he squared it to the edge.
 
 He stood there with the green roll in his hand and didn't tear any. I wanted to bag the slips myself and tape the bag shut, so he could quit looking at them. That isn't mine to do on a job. It was his drawer.
 
@@ -250,7 +250,7 @@ He bent over it from the waist.
 
 He lifted on three.
 
-On Tuesday he had come up on two, ahead of me. This time he waited for the word. The base came off the floor level at both ends. In twenty years I've carried with plenty of men who can't wait for three.
+The base came off the floor level at both ends. In twenty years I've carried with plenty of men who can't wait for three.
 
 We took it down the hall and out through the atrium, under the open sky, and through the front door to the truck. He is strong. He has more arm than he knows what to do with, and the whole way he kept trying to carry the piece by himself from one end.
 
@@ -318,7 +318,7 @@ He did have it. He was holding very still. I could feel him breathing, and it wa
 
 “I know you're not.”
 
-He hadn't asked at the curb that morning, with a dinner held out to him. He wasn't going to ask in a thirty-six-inch hall. If anything happened, I was going to have to start it.
+If anything happened, I was going to have to start it.
 
 I have been in tighter spots than that with heavier furniture. I never wanted to stay in one.
 

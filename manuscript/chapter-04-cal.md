@@ -224,7 +224,7 @@ Jo was waiting on it too. She had stopped a step short of it, and she did not to
 
 “I know it isn't.”
 
-She had found the edge case too. She was closing it by standing still. I have sat across tables from people prepared to wait me out. I know what it looks like when they mean it. She would have stood there until eleven.
+She had found the edge case too. I have sat across tables from people prepared to wait me out. I know what it looks like when they mean it. She would have stood there until eleven.
 
 I had told her eight days earlier that I could not go in. That was still true. But two people were waiting in my mother's atrium, and neither of them could start until I did.
 
@@ -232,9 +232,9 @@ I took hold of the pull. That door has stuck at the same place on its track sinc
 
 I was standing in my mother's living room.
 
-“Runners,” Jo said, and the big man went past me with the roll. That was all she said about it.
+“Runners,” Jo said, and the big man went past me with the roll.
 
-I stayed where I was, one step inside the glass. My hand was still out from the pull, and I put it down. For seven months I had believed this was the step I could not take. On the eighth I had not gotten past the lawn. My mother's chair was where I had seen it from the atrium. I did not go any closer to it. I waited for the step to cost me something. Jo was still on the other side of the glass.
+I stayed where I was, one step inside the glass. My hand was still out from the pull, and I put it down. My mother's chair was where I had seen it from the atrium. I did not go any closer to it. I waited for the step to cost me something. Jo was still on the other side of the glass.
 
 She stopped on the threshold and smelled the house before she came in. I have since learned that she does that at every job.
 
@@ -302,7 +302,7 @@ I did not know what to do with that, so I kept it.
 
 Pat handed me the bag, which was mail, and a key on a loop of red yarn. She said she had been watering the maple. She said she would leave us to it. She took her empty cart back out the front door and closed it behind her without a sound.
 
-Pat Dolan had known me from two looks. I had needed her to tell me her name, though she had lived next door for all eighteen years I lived in that house. My mother had talked to her about me. Pat still had my mother's name for me. She had been looking after the house since October. My first thought was to have something sent to her. I could not think what. I did not know one thing about her.
+I had needed her to tell me her name, though she had lived next door for all eighteen years I lived in that house. Pat still had my mother's name for me. My first thought was to have something sent to her. I could not think what. I did not know one thing about her.
 
 Jo stood up.
 
@@ -349,7 +349,7 @@ She looked at the strip of aluminum. She looked at the telephone, for no reason 
 
 “You need the coffee maker till the end. Everybody does.” She came back across the linoleum and stepped over the strip to my side of it. “We start in the hall closet. I need forty boxes built, and Vili's still on the runners.”
 
-She had seen where my boots had stopped. She had given my boots a reason to be there. She was close enough to touch. I wanted to take hold of her arm above the elbow, where she had taken hold of mine on the ramp. She was on a job. I kept my hands at my sides.
+She had given my boots a reason to be there. She was close enough to touch. I wanted to take hold of her arm above the elbow, where she had taken hold of mine on the ramp. She was on a job. I kept my hands at my sides.
 
 She put a tape gun in my hand.
 

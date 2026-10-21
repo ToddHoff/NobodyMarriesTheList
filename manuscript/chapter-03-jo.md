@@ -70,7 +70,7 @@ Dawn Pruitt called before the first truck was out. She knows what time I'm up. S
 
 “No.”
 
-I said it fast. It's how I turn down a customer who wants a hundred off, before he gets a foot in the gap. Dawn had just told me he'd been up at midnight telling her what minute he measured me. I didn't want to hear what I'd say if I waited.
+I said it fast. It's how I turn down a customer who wants a hundred off, before he gets a foot in the gap. I didn't want to hear what I'd say if I waited.
 
 I heard her pour. Dawn only drinks coffee hot, so she pours half a cup at a time, and over the phone you can count them.
 
@@ -198,7 +198,7 @@ I had wanted him to argue. I found that out on his mother's wet lawn at seven in
 
 He was already half turned toward it.
 
-He'd have gone. He'd get in the back of that car and be on 280 before I had the clipboard back in the cab. The house would go to whoever answered the phone next. I'd have exactly what I told Dawn I wanted that morning. I stood there and didn't want to watch him get in that car. That's no reason to keep a job. I went looking for a better one before I opened my mouth.
+He'd get in the back of that car and be on 280 before I had the clipboard back in the cab. I stood there and didn't want to watch him do it. That's no reason to keep a job. I went looking for a better one before I opened my mouth.
 
 “The house still needs clearing,” I said. “That hasn't changed since last night. Tell him he can shut the engine off.”
 
@@ -234,7 +234,7 @@ He looked down at his shoes. They had wet grass on them already.
 
 He hadn't pretended last night either.
 
-I've heard every reason a house sits shut. The lawyer's slow. The brother won't sign. In twenty years nobody has stood at the curb and told me the reason was him. If he'd blamed the lawyer, I'd have nodded and written it down. I liked him for not doing it.
+I've heard every reason a house sits shut. The lawyer's slow. The brother won't sign. In twenty years nobody has stood at the curb and told me the reason was him. I liked him for it.
 
 “Have you got a key on you?”
 
@@ -252,7 +252,7 @@ He lowered the envelope.
 
 “I have not been inside since October,” he said. “I thought I could this morning. I cannot.”
 
-This time he looked at me when he said it. He'd thought he could, so he had come down first thing to find out with me standing there. Now he knew. My throat went tight. I wanted that envelope out of his hand. Taking it was the one thing I couldn't do.
+This time he looked at me when he said it. My throat went tight. I wanted that envelope out of his hand. Taking it was the one thing I couldn't do.
 
 “Then nobody goes in today,” I said. “You tell me what's in it, and I'll give you a rough number out here.”
 

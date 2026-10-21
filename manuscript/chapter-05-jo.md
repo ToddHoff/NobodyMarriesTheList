@@ -40,7 +40,7 @@ Before lunch he went out again, and this time I watched.
 
 He turned on the hose bib by the fence and let it run until it was cold. Then he crouched down in his new boots with his two hands cupped together, and the dog drank out of them. He filled them again. He did it five times, with his cuffs still turned back.
 
-Early that morning, with the neighbor's boxes on the hearth, I had turned around at that sink to ask him about the cabinets. His boots were on the hall carpet with the toes against the aluminum strip. He wasn't coming any farther. I looked at the yellow phone on the wall. I couldn't have told you why. It was the one thing in that kitchen that looked like somebody had used it every day. I didn't ask him about it then. He hadn't set foot past that strip since.
+Early that morning, with the neighbor's boxes on the hearth, I had turned around at that sink to ask him about the cabinets. His boots were on the hall carpet with the toes against the aluminum strip. I looked at the yellow phone on the wall. I couldn't have told you why. It was the one thing in that kitchen that looked like somebody had used it every day. I didn't ask him about it then. He hadn't set foot past that strip since.
 
 There are bowls in a kitchen. There was a kitchen thirty feet from him with thirty bowls in it, and he was not going in there for one.
 
@@ -242,7 +242,7 @@ I didn't know the number, but I knew whose it was before I opened it. My cell nu
 
 I read it standing up. Then I sat down and read it again.
 
-It was right. The sweet peas had been right too. It had the labels in it, and the hour, and it asked me for nothing.
+It was right. The sweet peas had been right too. It asked me for nothing.
 
 There was a semicolon in it. I have been getting messages from men since 1998, and that was my first semicolon.
 
@@ -264,6 +264,6 @@ His answer came back in under ten seconds.
 
 I laughed out loud in an empty house. That one I would have known in the dark.
 
-He'd kept my count. I had said four to him on the ramp of my truck the morning of the estimate. He had carried it around for a week and handed it back to me with the next number on it. I sat on the stool with my face hot and read the long one and the short one again.
+He'd kept my count. He had carried it around for a week and handed it back to me with the next number on it. I sat on the stool with my face hot and read the long one and the short one again.
 
 I turned the phone face down on the counter. I had seen that done once.

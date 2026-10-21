@@ -1,8 +1,22 @@
 # Nobody Marries the List: Handoff (current)
 
-Last updated: Tuesday, October 20, 2026, 5:33 PM PDT
+Last updated: Tuesday, October 20, 2026, 6:42 PM PDT
 
 START HERE. This is the live handoff from the night of October 19 on. `claude/handoff.md` is the archive (October 5 to the 10:13 PM entry of October 19); it has grown past what `project_read` returns whole (its last 4 KB, the 6:45 PM chapter 34 entry and its three sub-bullets, come back only through `project_search`), so new entries go here, newest first. Everything below the "Standing" line is carried over from the archive and is still in force. Nothing here is new invention; it records only what was discussed and decided.
+
+## October 20, 6:42 PM: all 165 explained-acts items applied; doc and files back in step
+
+- Todd: "Would you apply them all", then "Then write everything out so I can save it." All 165 applied, as filed in `claude/review-explained-acts-items.py` (P.1 and P.2 and the six Your-call items included): the 37 chapter files, the manuscript doc (header 6:42 PM), the project, and Todd's folder with Nobody Marries the List.docx rebuilt over itself. 147,233 words before, 144,160 after.
+- Found while applying: the manuscript doc had six edits the chapter files did not, all from the October 17 work (doc revs 1869 and 1893 to 1897). They were carried into the files, so the doc's wording stands: ch 11 "Kevin texted on Friday night, and the next morning my son was...", "I found out last night.", "Cal Brennan was at the curb three minutes early on Saturday morning, with three paper bags.", and "before it was light" (that sentence is cut by 11.1 anyway); ch 13 "That was about when..." (was "10:41 was about when"); ch 14 Jo's "Then I had a crew to pay. Nobody's asked me that since." Two layout slips in the doc were fixed to match the files: ch 35's italic *I said I would fix it.* had become its own paragraph (35.1 cuts it now), and an empty paragraph in ch 31 is gone.
+- Checked after applying: every paragraph of the doc compared with the chapter files, text and italics, with no differences left. How: the doc's `h` is the first 8 hex of the SHA-256 of a block's plain text, so local paragraphs can be hashed and matched; a full `view` read pages at about 250 KB and lands in tool-results files, so it never has to come into the conversation.
+- Next: nothing pending from this pass. Still noticed and not done: five "Huh"s (8, 9, 22, 26, 36), bare Yes (27 Jo, 28 Cal), the ", and" joins in 1, "up since four" in 27 and 29, the stomach-over-the-hill tell (17 times).
+
+## October 20, 6:22 PM: the explained-acts pass, filed as a review, nothing applied
+
+- Todd, 5:37 PM: "Ok, do the chapter by chapter pass, but do not make any changes because I want to make sure those changes are an improvement." Read 1 to 36 and the epilogue whole, main session, no agents. Filed `claude/review-explained-acts.md` (project and local; NOT in Todd's folder). 165 items: 5 Fact, 64 Strong, 62 Moderate, 28 Minor, 6 Your call. Each item has the cut or change, how the passage reads after, and why. Every quoted line was checked to appear exactly once in the current files, and all 165 were applied together on a scratch copy without collision. The exact edit list (old/new pairs per item, for applying later) is `claude/review-explained-acts-items.py`, project and local.
+- Five facts wrong on the page: 30.5 (she never told Owen she goes through every pocket; she told Cal, ch 1), 30.7 (the fence: in 16 she asked "Why?", not "what about when they are not"; 35 is where she asks "And when she doesn't?"), 30.10 ("between my gate and Saratoga Gap" should be "before Saratoga Gap"), 32.2 (Jo did much more than one hand on the log at Carmel; 27 has her towel him down), 36.2 (at the rim Jo's hand was on Cal's back, not Owen's).
+- Kept on purpose: Todd's October 19 keeps in 1 to 9, 29's full sink quote, Cal's case for the wire in 28 and 30, the Millbrae story in both 29 and 34, the epilogue mornings. Also noticed, not this pass: five "Huh"s (8, 9, 22, 26, 36), bare Yes (27 Jo, 28 Cal), the ", and" joins in 1, the stomach-over-the-hill tell (17 times).
+- Next: Todd picks numbers. Apply to the chapter files, the manuscript doc and the project; rebuild the Word file only on his word.
 
 ## October 20, 5:33 PM: folder and Word file up to date
 

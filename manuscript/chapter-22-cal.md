@@ -110,7 +110,7 @@ I laughed. I had not expected to.
 
 “I will drive you home,” I said.
 
-On Saturday she had told me she had the train. On June 27 I had planned to drive us, and I had looked at her on her front walk and seen that she was not getting into any car that day she was not driving. Since May she had not been in my car.
+On Saturday she had told me she had the train. Since May she had not been in my car.
 
 She picked up the cooler.
 
@@ -284,7 +284,7 @@ Abby laughed out loud. Her friends looked at her, and at Jo. Abby did not explai
 
 Jo was standing beside me with her shoulder against my arm, laughing. The girl from the front door had her phone on the two of us. She was not taking it for Abby. Abby was at the other end of the table with the knife.
 
-I could have asked the girl to delete it. In 2013 I would have had Janice call her mother before morning. It was my daughter's party. The girl was a guest at it. I did not want to be the man who took her phone. I let her have it.
+I could have asked the girl to delete it. It was my daughter's party. The girl was a guest at it. I did not want to be the man who took her phone. I let her have it.
 
 Jo did not see the girl. She was watching Abby.
 

@@ -38,7 +38,7 @@ She did not answer it. I looked at the phone for eleven minutes, and my watch re
 
 I read her five words as a spec. There was a day and an item. There was no end time. On the bench she had told me I was done at eleven. I had stayed until the door came down on the truck. Her crew eats at eleven. If I brought a lunch, I would be there at eleven to eat it. She was telling me to stay. I looked for another reading for some time and did not find one.
 
-My own four words were harder to account for. Jo had counted four on the ramp in front of my mother's house. I had kept her count since the bar without being asked. At 9:21 I had meant her to see that I kept it.
+My own four words were harder to account for. I had kept her count since the bar without being asked. At 9:21 I had meant her to see that I kept it.
 
 Then Remy had something else.
 
@@ -78,7 +78,7 @@ There was a silence, and then the sound of a hand going over a telephone.
 
 “This is the sister,” she said, and hung up.
 
-I did not get her name. When her hand went over the phone, I heard nobody else in the room. She had decided by herself. She knew her sister well enough to tell me not to say so. I liked her before she told me who she was.
+I did not get her name. When her hand went over the phone, I heard nobody else in the room. She had decided by herself. I liked her before she told me who she was.
 
 ***
 
@@ -200,7 +200,7 @@ He looked at me for a while. I am looked at a good deal, usually by people decid
 
 “I know what you asked.”
 
-She had already told him I was a client. What she told him next was about my boxes. My first one on Saturday took a minute and ten seconds and was not square. I had not seen her check the others. She could only know they were square if she had turned them over when I was not looking.
+My first one on Saturday took a minute and ten seconds and was not square. I had not seen her check the others. She could only know they were square if she had turned them over when I was not looking.
 
 He turned to me. “Those your boots?”
 
@@ -350,7 +350,7 @@ I opened the car door.
 
 “I told you I would not ask again.”
 
-I wanted to ask. I had wanted another evening since 8:45 on the seventh, when the car came and I stayed where I was. On the Friday she had said no. On the sidewalk in front of my mother's house I had told her I would not ask again. I had kept that for eleven days. I could not tell whether her question was a test, or which answer would pass it. I did not have many promises out to her. I was not going to break one in her yard with her father on the dock. My ears were hot.
+I wanted to ask. I had wanted another evening since 8:45 on the seventh, when the car came and I stayed where I was. I could not tell whether her question was a test, or which answer would pass it. I did not have many promises out to her. I was not going to break one in her yard with her father on the dock. My ears were hot.
 
 She looked at me for three seconds. I counted. She took the pencil from behind her ear, for no reason I could see, and put it back.
 

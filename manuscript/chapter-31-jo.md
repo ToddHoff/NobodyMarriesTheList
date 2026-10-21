@@ -98,9 +98,9 @@ If it came from my phone, it came from me.
 
 “No,” I said.
 
-His face came down like a roll-up door, from the top. He didn't argue. He looked at the dots on his screen and didn't say anything. He gets that from his father. I've watched for it in him since he could walk.
+His face came down like a roll-up door, from the top. He didn't argue. He looked at the dots on his screen and didn't say anything.
 
-At the volcano, when he got like this, Cal had sat down beside him and waited. I sat down on the step next to my son and put my hand on his back.
+I sat down on the step next to my son and put my hand on his back.
 
 A man went by with a stroller. The sprinkler came on across the street. Owen's back went up and down under my hand. The screen went dark in his hand. He didn't touch it awake.
 
@@ -146,7 +146,7 @@ It had been washed that morning. Nothing on it had ever been dinged. On the hill
 
 I was on the dock by myself pulling pads for Tuesday. Pads come off the shelf in twelves and go on the truck in twelves, and you check every one for tears before it goes, because a torn pad on a dresser is a claim. I had three dozen across the dock in stacks. My shoulders were warm from it. It was the first hour since Wednesday I hadn't thought about my bank.
 
-The forty-eight from that Thursday were on the second shelf. Thirds, then half. Every edge lined up. I'd watched them get folded through the office window, my father calling it, and turned away from the glass. I took a dozen off the top. Not one of them had a tear.
+The forty-eight from that Thursday were on the second shelf. Thirds, then half. Every edge lined up. I took a dozen off the top. Not one of them had a tear.
 
 A woman got out of the Volvo and looked up at the sign before she looked at anything else. White shirt, sleeves turned back twice. I knew her from the end of a table in Menlo Park. She'd set me a place.
 
@@ -198,7 +198,7 @@ She took a manila envelope out of her bag and set it on my desk. She squared it 
 
 “And if it doesn't end,” she said. “When I married him, nobody asked me to sign anything. There was nothing to sign. He's known you three months. He paid off your house. The next thing he pays for is a ring.”
 
-At *ring* my stomach went over the hill. It always does, with him. I didn't want it doing that for a word out of her mouth. I put my hand flat on the envelope to keep it still.
+At *ring* my stomach went over the hill. I didn't want it doing that for a word out of her mouth. I put my hand flat on the envelope to keep it still.
 
 I opened the envelope. It was forty pages, stapled at the corner, with tabs. PREMARITAL AGREEMENT across the top, and his name, and a blank where mine went.
 

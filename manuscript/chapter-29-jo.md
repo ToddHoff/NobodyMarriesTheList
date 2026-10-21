@@ -28,7 +28,7 @@ I stood out there another minute in case it did it again. Then I went in. I'd se
 
 ***
 
-Wednesday mornings before the yard I do my own bills, at my counter, with the light over the stove on and nothing else. The statement for September hadn't come. It comes by the eleventh, every month since 2023, and Tuesday's mail had been a pizza coupon and the calendar from Kevin's school, which he sends me every August. I don't mail a check late on account of the mail. I turned the old statement face up for the loan number. It had been face down by the coffee maker since Sunday the second, with *skip Aug* on it in my pen, for the check I'd mail in August, under the NOV 2036 I'd circled twice.
+Wednesday mornings before the yard I do my own bills, at my counter, with the light over the stove on and nothing else. The statement for September hadn't come. It comes by the eleventh, every month since 2023, and Tuesday's mail had been a pizza coupon and the calendar from Kevin's school, which he sends me every August. I don't mail a check late on account of the mail. I turned the old statement face up for the loan number. It had been face down by the coffee maker since Sunday the second.
 
 I wrote the date on the check and the bank's name, and left the amount.
 
@@ -134,7 +134,7 @@ I'd sat down this morning to put a zero in the extra for September and add a lin
 
 I scrolled to the bottom. There are a hundred and fifty-six lines. Two weeks ago I'd written that number on a found sheet in his mother's hall, in my capitals, with a number of dollars under it.
 
-On the last line, in the column where I keep notes, I'd typed *55*. I typed it in 2023. In November 2036 I'll be fifty-five, and Owen will be nineteen. In July I told Cal at my table I was going to have a party in my driveway, and I wasn't inviting the bank.
+On the last line, in the column where I keep notes, I'd typed *55*. I typed it in 2023. In November 2036 I'll be fifty-five, and Owen will be nineteen.
 
 Every line from September down to that one had been mine. I knew what each one was going to cost me and which month I'd feel it. I'd have typed the last date in myself, at this counter, on a weeknight, with the dishes done.
 
@@ -152,7 +152,7 @@ I picked the phone back up and opened his thread.
 
 The last thing in it was his, from Thursday night at 10:02. *Your father and I folded forty-eight pads.*
 
-I'd read it before the trucks went out on Friday morning, at this counter, in the dark. On Thursday I'd watched the two of them out the office window with their backs to the wind, my father calling the folds. When Cal looked up and saw me watching, I'd turned away from the glass. I'd had six days to answer it.
+I'd read it before the trucks went out on Friday morning, at this counter, in the dark. On Thursday I'd watched the two of them out the office window with their backs to the wind, my father calling the folds. I'd had six days to answer it.
 
 On Friday I'd had Denise tell him Remington was off till the fifteenth.
 
@@ -244,7 +244,7 @@ When the crew broke for lunch my father brought the sixteen-footer back from the
 
 I stood at the top of the garage stairs with a lamp in each hand and did the number. On the first of September I wasn't sending the bank three thousand nine hundred ninety-one dollars and eighty-one cents. I wasn't sending it on the first of any month, ever again. That was enough to hire a driver for the sixteen-footer until the white truck was fixed, with some left over. My father could be out of that cab by Friday.
 
-Kevin's folks gave us the down payment in 2012. His mother said grace every Sunday for eleven years, and then she said something about the house. I paid them back with interest nobody asked for. This was five hundred and twenty-one thousand dollars.
+Kevin's folks gave us the down payment in 2012. I paid them back with interest nobody asked for. This was five hundred and twenty-one thousand dollars.
 
 Every one of those dollars had Cal's name on it. I wasn't putting a driver in my father's cab with them.
 
@@ -322,7 +322,7 @@ I looked at her. She looked right back.
 
 She picked up the tape gun and taped a box shut, one strip down the middle and one across each end, and set it on the stack square.
 
-On the twenty-third of May, in his grandmother's hutch, I'd fanned a stack of packing slips with my thumb. Each one was cut down with scissors to its two typed lines. *Happy Birthday, Mom. Love, Cal.* They'd come out of the plastic windows on thirty-four boxes his office had sent her. She'd kept every slip, in order, and opened no box. I'd counted thirty-four of those for the found sheet.
+On the twenty-third of May, in his grandmother's hutch, I'd fanned a stack of packing slips with my thumb. *Happy Birthday, Mom. Love, Cal.* His office had typed every one.
 
 He'd said it to my face on a rock, with his heart going under my hand. I hadn't said it back.
 
@@ -375,7 +375,7 @@ Janice knocked twice on his door and opened it.
 
 He was already standing behind his desk. His sleeves were pushed up, and he looked like he'd been up since four. The corner of the card stuck up out of his shirt pocket.
 
-My stomach went over the hill. It always does, with him. I wanted my hand flat on his chest, where I'd put it on the rock. I stayed by the door.
+My stomach went over the hill. I wanted my hand flat on his chest, where I'd put it on the rock. I stayed by the door.
 
 His office had a desk with nothing on it and a long blank wall across from the window. I went to the wall, hooked the tape on the corner and walked it out to the window frame.
 
@@ -417,8 +417,6 @@ In June, Dawn had told me to watch what a man does with a no. Last Thursday he'd
 
 My driveway, in December now, or February. Chairs off the truck. Denise with a sheet cake. Owen home from wherever he'd gone. My father in his chair with his cushion, if his knees let him down the front steps. Every date in my spreadsheet typed in by me.
 
-He'd moved it to August and paid for it. He thought the party was about the bank.
-
 “My name was on that loan,” I said.
 
 I had more. I'd had it since before it was light, in order, the way I'd lay out a job for Vili. Under all of it was the thing I hadn't said on the rock. If I said one more word to him, I didn't know which one would come out. If it was that one, I'd be putting my whole weight on a man whose own assistant had just told me he always gives a present before the end.
@@ -434,8 +432,6 @@ I held the yellow copy out. “Every card comes out and goes back in the same or
 “Thank you, Ms. Silveira.”
 
 Behind me Cal said, “May I walk you to your truck?”
-
-The first night, on Minna Street, he'd walked me to my truck and read my father's name off the door.
 
 I didn't turn around. I put the pencil behind my ear and walked down the middle of his floor, between the sixty desks. Nobody was typing. All the way to the elevator my boots were the loudest thing on his floor.
 

@@ -106,7 +106,7 @@ Then she went down the steps to her car, and I stood in my doorway and watched h
 
 At 11:52 that night I took the envelope to the kitchen counter and read the agreement.
 
-I read all of it. In July I had approved fourteen pages that Remy prepared from three old ones, and I had not read a word of them. A woman's name had been on page nine. I read this one from the first page to the last, the way Jo had, standing up.
+I read all of it, from the first page to the last, the way Jo had, standing up.
 
 Stephanie's lawyer had my share count as of June 30. It was correct to the share. He had the house in Woodside, the house on Maui, and the trust that holds the house on West Remington Drive, which Jo had spent nine Saturdays emptying for me. Page eleven waived support, in capitals. Page nineteen kept Abby's trust whole. It was a careful document. Everything in it that was mine was right.
 
@@ -284,9 +284,7 @@ I got down on the floor by him and put my hand on his neck. He leaned it into my
 
 Jo stopped in the doorway.
 
-She was bitten on a job when she was twenty-six. She told me so on the first night, a minute after I told her his name. In three months he had leaned on her shin at lunch and lain against her leg on a beach. At Carmel she had put a hand on his back once, on the log. She had not done it since.
-
-She stood in the doorway with her hands in the sleeves of my fleece.
+She had her hands in the sleeves of my fleece.
 
 Then she came in and got down on the floor on the other side of him, by his head. She took one hand out of the sleeve and put it on him, flat, behind his ears, in the place he likes. Nobody had shown her that place.
 
@@ -344,7 +342,7 @@ I sat down on the stairs.
 
 On Saturday she had made four sandwiches.
 
-She had called a hospital at ten to six in the morning to ask whether my dog had eaten. She had not called me.
+She had not called me.
 
 I sat there with the phone against my knee until my hand stopped.
 
