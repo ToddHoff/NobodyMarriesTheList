@@ -186,7 +186,7 @@ She calls me Calvin when I am wrong. I had not done anything yet.
 
 “I like to know what a thing costs before I need it.”
 
-Janice turned to Jo. She is a small woman, and she stands very straight. Jo stands the same way. For a moment I was looking at two small women who had each decided something about me without consulting me.
+Janice turned to Jo. She is a small woman, and she stands very straight. Jo stands the same way.
 
 “You corrected the card I wrote for him,” Janice said. “In pencil.”
 

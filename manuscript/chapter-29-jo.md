@@ -30,7 +30,7 @@ I stood out there another minute in case it did it again. Then I went in. I'd se
 
 Wednesday mornings before the yard I do my own bills, at my counter, with the light over the stove on and nothing else. The statement for September hadn't come. It comes by the eleventh, every month since 2023, and Tuesday's mail had been a pizza coupon and the calendar from Kevin's school, which he sends me every August. I don't mail a check late on account of the mail. I turned the old statement face up for the loan number. It had been face down by the coffee maker since Sunday the second.
 
-I wrote the date on the check and the bank's name, and left the amount.
+I wrote the date on the check and the bank's name, and left the amount blank.
 
 Before I write the next one I always make sure the last one went where I told it to. The first year they parked my extra in something called unapplied funds, twice, where it sat doing nothing for anybody but them. So I got on the bank's site on my phone.
 
@@ -126,7 +126,7 @@ I'd been going to make this call in 2036. Some girl in a headset was going to te
 
 I put the phone face down on the counter. I still had his fleece on. I took it off and hung it over the back of a kitchen chair.
 
-I keep the house on a spreadsheet. I made it in October 2023, at this counter, the night the notary came and I signed for the refinance. It has a line for every payment from December 2023 to November 2036. One column says what I'll owe the bank after each one. The next one is where I type the date the check clears, and the last one is for notes. Every month I check the bank's number against mine, and they come out within a few cents.
+I keep the house on a spreadsheet. I made it in October 2023, at this counter, the night the notary came and I signed for the refinance. It has a line for every payment from December 2023 to November 2036. One column says what I'll owe the bank after each payment. The next one is where I type the date the check clears, and the last one is for notes. Every month I check the bank's number against mine, and they come out within a few cents.
 
 Thirty-three lines had a date in them. Thirty-two of them had the nineteen hundred on top.
 

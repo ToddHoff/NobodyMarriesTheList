@@ -6,7 +6,7 @@ On Sunday morning, in my crew shirt and my reading glasses and not much else, I 
 
 He'd been at my kitchen table about a minute. He'd squared my chipped mug to the edge of it.
 
-He'd been standing at the end of my table with that mug, looking for somewhere to be. I'd moved him around my kitchen by the hips the night before. He still hadn't found it.
+Before that he'd stood at the end of the table with the mug, looking for somewhere to be. I'd moved him around my kitchen by the hips the night before. He still hadn't found it.
 
 I'd left him asleep in my bed. I stood in the door a while wanting to wake him up. I was thinking about his hand on the back of my leg last night, on the scar.
 
@@ -400,7 +400,7 @@ Owen was across the hall. I slept in my room and Cal slept in his.
 
 Before it was light on Tuesday I made sandwiches in his kitchen. On the way in from the airport I'd had the car stop at a store in Kīhei. I paid with my own card. The food in his refrigerator was going to the pantry on Thursday. I wasn't taking it off them.
 
-I made twelve, plus one for Gil. Two pilots, Dr. Okamura, four men on the ground lines, the three of us, and two more, because there are always two more people than anybody tells you. Sausage and cheese on sweet bread, buttered out to the edge.
+I made twelve, plus one for Gil. Two pilots, Dr. Okamura, four men on the ground lines, the three of us, and two more. There are always two more people than anybody tells you. Sausage and cheese on sweet bread, buttered out to the edge.
 
 Gil came in and watched me wrap them.
 

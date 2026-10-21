@@ -236,7 +236,7 @@ He was going to make me say the whole thing.
 
 I put the phone down on the table.
 
-Tonight I'd said can you, at midnight, at my own table, to a man with eleven billion dollars. I'd asked him to read. I sat there and waited for it to cost me something. My face was hot.
+Tonight I'd said *can you*, at midnight, at my own table, to a man with eleven billion dollars. I'd asked him to read. I sat there and waited for it to cost me something. My face was hot.
 
 Half an hour later one headlight came up my street.
 

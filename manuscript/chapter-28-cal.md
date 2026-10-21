@@ -398,7 +398,7 @@ At 10:06 I typed the name of her lender and her loan number. I had read them ups
 
 *The lender accepts payments to a loan from anyone. It gives the payoff figure only to the borrower or someone she authorizes. Statement balance: $518,395.69. Interest at 7.000 percent: about $99.42 a day. A wire of $521,000.00 with the loan number in the reference exceeds the statement balance by $2,604.31. The lender applies it, refunds any excess to the borrower and mails her the release of the lien. Routed to J. Louie for processing. Approve?*
 
-She had mailed August's payment on July 18 with the nineteen hundred on top. I had watched her lick the envelope and make a face at the glue. With that in, she owed about five hundred and fifteen thousand five hundred dollars, and ninety-nine dollars a day on top of it. I was sending about forty-five hundred more than the payoff. It would go back to her by check, in her name.
+She had mailed August's payment on July 18 with the nineteen hundred on top. I had watched her lick the envelope and make a face at the glue. With that in, she owed about five hundred and fifteen thousand five hundred dollars, and ninety-nine dollars a day on top of it. I was sending about forty-five hundred more than the payoff. The excess would go back to her by check, in her name.
 
 I approved it.
 

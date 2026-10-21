@@ -62,7 +62,7 @@ I looked at my wrist. There was nothing on it.
 
 She waited.
 
-On the walk I had built a sentence for it. It had the word *if* in it twice, and it left her a way out at the end. It was a good sentence. I have said a thousand like it to rooms. I did not use it.
+On the walk I had built a sentence for it. It had the word *if* in it twice and left her a way out at the end. It was a good sentence. I have said a thousand like it to rooms. I did not use it.
 
 “Will you come?”
 

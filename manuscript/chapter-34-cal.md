@@ -22,7 +22,7 @@ I parked across the street from my mother's house at 6:44. The sun was not on th
 
 I had a sandwich in foil on the seat and her card in my shirt pocket. Last Saturday night Dawn had asked me what I was bringing. I had said, “Nothing.” The sandwich was what I owed.
 
-It had been ten days since Jo had said anything to me about August. She had not answered my letter.
+It had been ten days since Jo had said anything to me about the wire. She had not answered my letter.
 
 The sixteen-footer came around the corner from Bernardo at 6:56 with Vili driving and Manny beside him, and her pickup behind it. Vili backed the truck into the driveway in one pass and stopped it straight in line with the garage door instead of the front walk. I did not know what it meant.
 
@@ -346,7 +346,7 @@ She was right. I had known it at 3:12 in the afternoon on August 7. I had sent i
 
 “I know that *now.*” She pressed the heel of her hand to one eye, fast, and took it away. “I didn't know that on the twelfth.”
 
-The sentence I say is *That is on me. I will fix it.* I have said it to boards and to a reporter and to Stephanie. I had it in my mouth. I had the second half of it ready, the part where I fix it.
+The sentence I say is *That is on me. I will fix it.* I have said it to boards and to a reporter and to Stephanie. I had it in my mouth. I had the second half of it ready.
 
 There was nothing to fix. The house was paid. The bank could not send it back. Anything I did next would be another thing I had sent.
 

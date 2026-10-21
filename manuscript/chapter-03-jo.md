@@ -118,7 +118,7 @@ My sister came through the gate with two coffees and saw the can.
 
 “Nobody's sorry. They're a thank-you.”
 
-She read the card. Denise is forty-one and does my books on Tuesdays and Fridays, and she has never read anything of mine and kept her face still.
+She read the card. Denise is forty-one and does my books on Tuesdays and Fridays. She has never read anything of mine and kept her face still.
 
 “He SENT these?”
 
@@ -154,7 +154,7 @@ The house was on West Remington Drive, a wide street with old trees and a church
 
 Cal Brennan was on the sidewalk in front of the house, with his back to it.
 
-He had on the gray shirt. It could have been the same one or one of its brothers. He also had on suede shoes, on a wet lawn, at seven in the morning, and that was reason five.
+He had on the gray shirt. It could have been the same one or one of its brothers. He also had on suede shoes, on a wet lawn, at seven in the morning. That was reason five.
 
 I have met a great many people at the curb of a dead parent's house. Most of them are looking at the house. He was looking at the street.
 
@@ -264,7 +264,7 @@ I walked him to my truck and pulled the ramp. It was still wet from the fog on 1
 
 I went up it. He came after me, and suede has no business on wet aluminum. His foot went out from under him on the second step, and I had him by the arm above the elbow before I'd decided to.
 
-There was more arm there than I expected from a man who types for a living. I let go late, and he noticed.
+There was more arm there than I expected from a man who types for a living. I let go late. He noticed.
 
 “Different shoes,” I said.
 

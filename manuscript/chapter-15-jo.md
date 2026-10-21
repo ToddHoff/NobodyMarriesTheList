@@ -234,7 +234,7 @@ His hands were shaking at his sides. It could have been the boxes.
 
 I went through it for the piano anyway. I'd been at it since Sunday night at my counter. This had even less in it than his text.
 
-Then I counted Saturday. We'd be done at his mother's house by one. There was nothing after that. My heart was going. I had half a sandwich in my lap that I'd forgotten I was holding.
+Then I counted Saturday. We'd be done at his mother's house by one. There was nothing after that. My heart was going. I'd forgotten I was holding half a sandwich in my lap.
 
 Vili set his sandwich down on his knee. Vili answers everything, and he had his mouth open to answer this.
 

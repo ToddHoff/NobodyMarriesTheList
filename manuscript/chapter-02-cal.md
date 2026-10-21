@@ -2,7 +2,7 @@
 
 **Cal**
 
-I have turned my phone face down on a table once in my life, and I can give you the time. It was 8:45 on a Thursday night in May.
+I have turned my phone face down on a table once in my life. I can give you the time. It was 8:45 on a Thursday night in May.
 
 I cannot give you the reason. I have looked for it.
 
@@ -36,9 +36,9 @@ She took the pencil down and pulled the card over. Under the first line she wrot
 
 “Whose?”
 
-I did not have an answer. Remy does not show its work unless you ask, and I had not asked.
+I did not have an answer. Remy does not show its work unless you ask. I had not asked.
 
-In April I had approved it at my desk in about a minute. Now I did the arithmetic at the table, with her waiting. Thirty-six was five years under me. Thirty was eleven years under me and twelve over my daughter.
+Thirty-six was five years under me. Thirty was eleven years under me and twelve over my daughter.
 
 She slid the card back with two lines on it, both dead. She was forty-four. There was gray coming in over her left ear that she had done nothing about, and there were lines at the corners of her eyes from years of looking at things in full sun. On a billboard we take those out first. When she smiled, I looked at them more than at anything else in the bar. I had specified against all of it. Sitting there, I could not have told you what I had against it.
 

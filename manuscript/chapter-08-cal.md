@@ -268,7 +268,7 @@ The eleventh course was three wild strawberries. Not one was larger than the pea
 
 I moved mine across. She had asked me the same question about six shrimp, twenty-seven days earlier.
 
-She started on them one at a time, with her fingers, and I watched her mouth until she looked up and caught me at it.
+She started on them one at a time, with her fingers. I watched her mouth until she looked up and caught me at it.
 
 I did not look away. I could feel my ears go hot. I let her see that too. There was strawberry at the corner of her mouth. I wanted to take it off with my thumb. After that I wanted my own mouth there, in a room where two tables had already turned around once that evening.
 
@@ -292,7 +292,7 @@ She stopped with the last of my strawberries halfway.
 
 She studied me. I had seen her study a hutch like that, working out where the weight was.
 
-I let her look. I could still have given her two. I could have said any two of the eight in the voice she had caught me using at the sixth course. She would have struck them. We would have been even by the twelfth course. I did not want to be even with her like that. I did not know yet how else to pay them.
+I let her look. I could have said any two of the eight in the voice she had caught me using at the sixth course. She would have struck them. We would have been even by the twelfth course. I did not want to be even with her like that. I did not know yet how else to pay them.
 
 “Then you owe me,” she said.
 

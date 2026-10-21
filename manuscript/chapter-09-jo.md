@@ -40,7 +40,7 @@ The man in it had an apron on and a towel over his shoulder. He looked at the dr
 
 I bill a truck and a driver by the hour. I knew about what two hours of that man's night had cost, and I knew I was not going to see the number.
 
-I had it to within forty dollars. That was no use to me. I wanted it on paper, in my hand, where I could pay it.
+I had it to within forty dollars. I wanted it on paper, in my hand, where I could pay it.
 
 I took a twenty out of my purse and put it on the counter under the window.
 
@@ -200,7 +200,7 @@ He was holding still. I had told him to.
 
 He came down.
 
-He tasted like salt. For a second he kissed like a man following an instruction. Then his hand came up to the side of my face and he quit being careful, and I felt it all the way down the backs of my legs. I have lifted with those legs for twenty years. They had not done that before.
+He tasted like salt. For a second he kissed like a man following an instruction. Then his hand came up to the side of my face and he quit being careful. I felt it all the way down the backs of my legs. I have lifted with those legs for twenty years. They had not done that before.
 
 His other hand still had my rag in it. I could feel it against my back. I hadn't kissed anybody since Kevin. Toward the end with Kevin it was something you did at the door with your keys already out. I kept my hand flat on his chest. I didn't trust it anywhere else.
 
@@ -230,7 +230,7 @@ On the way out I passed the taco truck. Three people in aprons were at the windo
 
 It is forty-five minutes home at that hour. I took 17 to 85 to 280 with the windows down, because the cab smelled like a taco truck and so did I. The truck made its noise on the grades, and I turned the radio up over it.
 
-At the last light before the freeway I could still feel where his hand had been on the side of my face. I put my own hand there, like a fool, and the man in the next car saw me do it.
+At the last light before the freeway I could still feel where his hand had been on the side of my face. I put my own hand there. The man in the next car saw me do it.
 
 On Saturday morning I'd be in his mother's house at seven with a clipboard, saying green or blue, with Vili watching. I tried to work out how I'd keep my face shut for four hours. I didn't get anywhere.
 

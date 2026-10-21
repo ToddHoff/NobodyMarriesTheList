@@ -42,7 +42,7 @@ Jo was looking at my face. She looked at it for about as long as she looks at a 
 
 On June 16 she had made me list which parts of a month were me. This took her about two seconds. My shoulders came down an inch.
 
-I had been ready to explain it. I had a sentence half built on the walk up from my car. Every version of it had the plan in it. She was right about the car. She did not know what was scheduled behind it. I did not tell her.
+I had been ready to explain it. I had a sentence half built on the walk up from my car. Every version had the plan in it. She was right about the car. She did not know what was scheduled behind it. I did not tell her.
 
 She unfolded her arms, went down the walk to the driver and took a twenty out of her back pocket.
 

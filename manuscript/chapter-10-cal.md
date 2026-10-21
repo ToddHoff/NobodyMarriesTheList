@@ -2,7 +2,7 @@
 
 **Cal**
 
-Nineteen messages had gone to Jo Silveira in my name, and on Friday night I read eighteen of them for the first time.
+Nineteen messages had gone to Jo Silveira in my name. On Friday night I read eighteen of them for the first time.
 
 On Wednesday, at 9:14 in the evening, Jo had quoted one to me across a table, and I had told her I noticed it recently. It was the one lie I had told her, and I had until seven on Saturday to make it true.
 
@@ -311,7 +311,7 @@ She turned the clipboard around. Under the found sheet there was a form, and it 
 
 “I worked that out around ten.”
 
-I can have a fender replaced without anyone signing anything. That had been offered to me at 7:00. She was holding out a pen, and it was the first one I had ever seen her with. Her fingers were on the clipboard next to mine, and they had pencil on them.
+I can have a fender replaced without anyone signing anything. She was holding out a pen, and it was the first one I had ever seen her with. Her fingers were on the clipboard next to mine, and they had pencil on them.
 
 I signed by the X.
 

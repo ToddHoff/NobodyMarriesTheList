@@ -44,7 +44,7 @@ I had approved the other one in a car.
 
 On Wednesday at 6:24 in the morning, three minutes after she told me *I sign it* and hung up, Remy had put a second item on my screen. *Confidentiality agreement for Jo Silveira, prepared from your three prior agreements. Approve?* I was still hearing her say it. I said approve. It was one of three hundred and six things I approved that day. I did not open it.
 
-At 2:05 this afternoon, after her truck went down the ramp, I opened it and read all fourteen pages. When my two were done I asked Remy for the three it was made from, and I read those. I had approved every page of them too. I wrote three letters on my own paper, one to each woman who had signed one, Ms. Holcomb first. Their addresses were in the notice lines. Each letter said she was released from every term, and that she owed me nothing under it. I signed them and put the stamps on myself. I mailed them on the way to San Carlos.
+At 2:05 this afternoon, after her truck went down the ramp, I opened it and read all fourteen pages. When my two were done I asked Remy for the three it was made from, and I read those. I had approved every page of them too. I wrote three letters on my own paper, one to each woman who had signed one, Ms. Holcomb first. Their addresses were in the notice lines. Each letter said she was released from every term and owed me nothing under it. I signed them and put the stamps on myself. I mailed them on the way to San Carlos.
 
 I had not told Jo about the letters. They were owed to three other people.
 

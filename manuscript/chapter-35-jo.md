@@ -200,7 +200,7 @@ I put my spoon in the bowl.
 
 “I remember.”
 
-“That was half of it.” He had his hands flat on the table on either side of the card. “I wanted someone who would use what I sent. Then I would not have to come. I could pick it from the back of a car and never be in the room.”
+“That was half of it.” He had his hands flat on the table on either side of the card. “I wanted someone who would use what I sent. Then I would not have to come. I could pick it out from the back of a car and never be in the room.”
 
 He said it to my face.
 

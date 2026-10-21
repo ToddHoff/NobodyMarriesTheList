@@ -200,7 +200,7 @@ South of the Bay Bridge the wind came up past twenty in the gusts. My father had
 
 “Bow line,” my father said. “Forward cleat.”
 
-Cal stepped off onto the dock with the bow line when he was told. He put it on the first cleat he came to, which was the one at the back corner of the slip. A gust took the bow and pushed it out, and the whole boat swung. I went off the stern with my line and got a turn on before it hit anything.
+Cal stepped off onto the dock with the bow line when he was told. He put it on the first cleat he came to, at the back corner of the slip. A gust took the bow and pushed it out, and the whole boat swung. I went off the stern with my line and got a turn on before it hit anything.
 
 “Forward cleat,” my father said.
 

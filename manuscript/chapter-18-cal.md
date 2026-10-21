@@ -168,7 +168,7 @@ I kept my hand there.
 
 I had known since the first night that a dog bit her on a job when she was twenty-six. I had not known which leg. On the first Saturday my dog came through a door she had left open and leaned his whole side against her left shin. She ate the rest of her lunch without moving it. It was this leg.
 
-She came down over me and took me in slowly. She watched my face the whole while. I let her see it. Her breath went short. Then she quit being careful with it. So did I. A jet went over, climbing. The window hummed in its frame. I did not look up. Once, low, against my neck, she laughed at something I never found out.
+She came down over me and took me in slowly. She watched my face the whole while. I let her see it. Her breath went short. Then she quit being careful. So did I. A jet went over, climbing. The window hummed in its frame. I did not look up. Once, low, against my neck, she laughed at something I never found out.
 
 My watch tapped against the inside of my wrist more than once. I could not have told you the number. I did not want it.
 

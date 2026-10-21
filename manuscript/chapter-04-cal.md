@@ -8,7 +8,7 @@ The house is 15.4 miles from mine. It takes twenty-two minutes. Until that Frida
 
 It is an Eichler on West Remington Drive, a wide street with old trees down both sides. At the Bernardo end there is a church on the corner and a run of Eichlers beside it, and hers faces the middle school.
 
-My grandfather bought it new in 1960 for $21,500, and I own a watch that cost more. They sell for three million now, and the buyers are paying for the glass. The back wall is all window, and the middle of the house is an atrium with no roof on it.
+My grandfather bought it new in 1960 for $21,500. I own a watch that cost more. They sell for three million now. The buyers are paying for the glass. The back wall is all window, and the middle of the house is an atrium with no roof on it.
 
 My mother worked the cafeteria line at that school for thirty years. While I was a student there she handed me a tray five days a week, and I thanked her exactly as I thanked the woman next to her.
 
@@ -294,7 +294,7 @@ Message: Happy Mother's Day, Mom.
 Thinking of you today. Love, Cal
 ```
 
-I had not written it. I had not known it was sent. It was a standing order with a recipient, an address and three dates a year, and it had run since 2014 without a failure. It did not have a field for whether she was alive.
+I had not written it. It was a standing order with a recipient, an address and three dates a year, and it had run since 2014 without a failure. It did not have a field for whether she was alive.
 
 “She carried them in herself,” Pat said. “She wouldn't let the driver. I have looked at that woman's recycling for forty years, and I never saw one of those boxes broken down.”
 

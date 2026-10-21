@@ -42,7 +42,7 @@ Somewhere in the revenue slides I was back in the water on Maui with my arms out
 
 ***
 
-I had last seen her at 9:40 on Wednesday night, at the private terminal at SFO, with Owen asleep on my shoulder. She took her own bag and his, and she would not let me carry either one. She let me carry Owen to her truck. I put him in the back seat and did his belt, and she watched me do it with her keys in her hand. Then she said, “Thursday's a workday,” and drove home to San Bruno. I stood beside the plane with nothing in my hands until the woman who looked after the cabin asked if I needed anything.
+I had last seen her at 9:40 on Wednesday night, at the private terminal at SFO, with Owen asleep on my shoulder. She took her own bag and his and would not let me carry either one. She let me carry Owen to her truck. I put him in the back seat and did his belt, and she watched me do it with her keys in her hand. Then she said, “Thursday's a workday,” and drove home to San Bruno. I stood beside the plane with nothing in my hands until the woman who looked after the cabin asked if I needed anything.
 
 Jo did not write on Thursday. I had not expected her to. She had three days of work to make up and two trucks out.
 
@@ -122,7 +122,7 @@ There were three coffees. She had planned for me. Mine had milk and sugar in it.
 
 Before she went in, she stopped at the truck and asked Vili how Burlingame had gone on Monday. He told her forty minutes late and a woman who wanted every lamp wrapped twice. She asked him two more questions about Burlingame. She did not ask him one about Hawaii.
 
-She had driven forty minutes on a Saturday to see whether the business ran without her sister. It did. She looked at the truck for a while, and then at the house. Then she went in.
+She had driven forty minutes on a Saturday to see whether the business ran without her sister. It did. She looked at the truck for a while, then at the house. Then she went in.
 
 Jo came out to the atrium with tape on her wrist.
 
@@ -358,7 +358,7 @@ Dawn did not say anything for a while. I heard her set the cup down on something
 
 “No.”
 
-I had been wrong in front of Jo nineteen times since May that I could name. She had never sent me a thank-you.
+I could name nineteen times since May that I had been wrong in front of Jo. She had never sent me a thank-you.
 
 “Two more Saturdays,” I said. “Then the house is empty. Denise asked me what then.”
 

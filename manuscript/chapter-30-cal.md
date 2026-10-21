@@ -277,7 +277,7 @@ Vili looked at the pads. Then he looked at me for a while, the way he had looked
 
 “Tell her yourself,” he said. “Seven next Saturday.”
 
-He was right. I had asked the man she pays to carry one more thing for me. It was the last Saturday. He went out to the truck.
+He was right. I had asked the man she pays to carry one more thing for me. Next Saturday was the last one. He went out to the truck.
 
 ***
 
@@ -381,7 +381,7 @@ It had twelve lines, one for each of mine. I read every one. It was right about 
 
 I read line twelve twice.
 
-It was a better description of Jo Silveira than I could have written. It had been written in under a second, to be sent to Dawn Pruitt, so that she could find me another one.
+It was a better description of Jo Silveira than I could have written. Remy had written it in under a second, to send to Dawn Pruitt so that she could find me another one.
 
 In April I had asked it who to love. It told me in nine seconds. I agreed with it.
 

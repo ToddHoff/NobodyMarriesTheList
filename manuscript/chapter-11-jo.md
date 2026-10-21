@@ -220,7 +220,7 @@ I gave Owen the tape gun and a stack of flat boxes, and I went to do the hall ba
 
 I do bathrooms by myself, with the door open. A medicine cabinet is nobody's business. The bottles go in a bag for the pharmacy drop box, and I don't read a label out loud. The family gets an empty shelf.
 
-It's the quietest job in a house. Nobody comes in, because nobody wants to watch you empty a dead woman's medicine cabinet, and I like it for that. It was already warm in there. The sun comes through the high window over the tub, and there was dust on the sill thick enough to write in.
+It's the quietest job in a house. Nobody comes in, because nobody wants to watch you empty a dead woman's medicine cabinet. I like it for that. It was already warm in there. The sun comes through the high window over the tub, and there was dust on the sill thick enough to write in.
 
 She'd had one toothbrush. The towel on the bar was worn thin enough to see my hand through. In the cupboard there were six good ones, folded in thirds with the fold facing out. Everybody has good towels. I have boxed a thousand of them, and not one had ever been wet.
 
@@ -266,7 +266,7 @@ I lifted the robe off the hook, and there was writing on the door behind it.
 
 It was two columns of short lines in blue ballpoint, each with a name and a number. The left ones said CALVIN, from 4 up to 12. The right ones said ABBY. They started at 3, down by my hip, and the last one said 14 and was over my head.
 
-Abby was the daughter who named the dog. She was in six of the frames out in the hall. Nobody had to see this door but me. I could have hung the robe back on its hook and let the door go with the house. Whoever bought it would paint it.
+Abby was in six of the frames out in the hall. Nobody had to see this door but me. I could have hung the robe back on its hook and let the door go with the house. Whoever bought it would paint it.
 
 I don't decide anything in that house without the owner in the room.
 
@@ -316,7 +316,7 @@ He meant the pencil. I took it from behind my ear and gave it to him.
 
 Owen got back under my hand. Cal drew the line along the edge of it, and the pencil went past the side of my finger, close enough that I felt it go. Then he wrote beside the line in capitals, slowly. He took a long time over the O. OWEN 9.
 
-The last hand on my own head had been his. The first night, at the Pied Piper, with my own tape. I'd told myself it was nothing like my father's. This time my hand was on my son's head. The man had just run my pencil along my finger. My throat went tight. I kept my eyes on the door.
+The last hand on my own head had been his. The first night, at the Pied Piper, with my own tape. I'd told myself it was nothing like my father's. This time my hand was on my son's head. My throat went tight. I kept my eyes on the door.
 
 “That's carpenter's pencil,” I said. “It won't rub out.”
 

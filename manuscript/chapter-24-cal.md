@@ -44,7 +44,7 @@ Her company has three trucks. The white one takes a three-bedroom in one load. S
 
 At Kevin's car he had told her that in eleven years she had asked him for one thing. On 280 afterward I counted the things Jo had told me to do since May 7. I was at thirty-eight by the Woodside exit. Every one had been an order.
 
-She had told me work. I did not ask about the truck.
+She had said “Work.” I did not ask about the truck.
 
 “There is dinner,” I said.
 
@@ -150,7 +150,7 @@ She gave me her box cutter. On the first box I ran the blade in too deep and ope
 
 I kept the blade short after that.
 
-The first box was May 2014, Mother's Day. Inside it was a smaller box in good paper, with a gift receipt on top in a printed envelope. It was the paper Abby's lamp had come in on Sunday. Inside the paper was a cashmere wrap, the color of oatmeal, folded around a sheet of tissue.
+The first box was May 2014, Mother's Day. Inside it was a smaller box in good paper, with a gift receipt on top in a printed envelope. It was the same paper Abby's lamp had come in on Sunday. Inside the paper was a cashmere wrap, the color of oatmeal, folded around a sheet of tissue.
 
 “One wrap,” Jo said, and wrote it down. “Cashmere. Tags on.”
 

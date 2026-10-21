@@ -86,7 +86,7 @@ On Tuesday I moved a product review. I had not moved one before.
 
 On October 6, at 2:14 in the afternoon, I was in one. I did not come out of it. Remy took my mother's call. I did not think of that when I moved this one. I thought of it at a red light in San Jose and sat through the green.
 
-I walked Pancake at five in the morning, and I was in San Jose by ten. There is a neighborhood there called Little Portugal. I did not ask Remy for the best bakery in it. I drove down the street until I found a door with nine people over seventy waiting outside, and I stood behind them for fourteen minutes. Farther along, the white towers of a church stood up over the roofs. The people in line were all speaking Portuguese at once. Inside, the air was warm and smelled of yeast and burnt sugar. The case ran the length of the room. Most of it was round loaves of sweet bread with shining tops. The custard tarts at the end were scorched black in spots, every one of them. The woman behind the counter called every customer *querida* or *querido*. When it was my turn she called me *querido* too. I wanted her to say it again.
+I walked Pancake at five in the morning, and I was in San Jose by ten. There is a neighborhood there called Little Portugal. I did not ask Remy for the best bakery in it. I drove down the street until I found a door with nine people over seventy waiting outside. I stood behind them for fourteen minutes. Farther along, the white towers of a church stood up over the roofs. The people in line were all speaking Portuguese at once. Inside, the air was warm and smelled of yeast and burnt sugar. The case ran the length of the room. Most of it was round loaves of sweet bread with shining tops. The custard tarts at the end were scorched black in spots, every one of them. The woman behind the counter called every customer *querida* or *querido*. When it was my turn she called me *querido* too. I wanted her to say it again.
 
 At the counter I asked for sausage and egg on a sweet roll. I may have pointed. I paid with my phone, because I do not carry a wallet, and I drove north with a paper bag on the passenger seat. The car had 1,100 miles on it. I have owned it for three years.
 
@@ -154,7 +154,7 @@ She unwrapped it on the edge of the dock and lifted the top of the roll.
 
 “The flowers were right. The text was right.” She took another bite. “I'm eating, Cal.”
 
-She ate the bifana standing up, all of it, and I watched her do it. I did not think about the product review. She wiped her hands on her jeans.
+I watched her eat the bifana standing up, all of it. I did not think about the product review. She wiped her hands on her jeans.
 
 “That doesn't count,” she said. “You still owe me half a linguiça.”
 
@@ -224,7 +224,7 @@ Jo looked at me. I went to the middle of the ramp and took hold of it there.
 
 “Not there,” she said. “That's not how you carry one. You take an end. Palms up.”
 
-I took an end, and she took the other. It was heavier than its dimensions suggested. I have lifted more than that in a gym four mornings a week for ten years, and I have never had to walk anywhere with it.
+I took an end, and she took the other. It was heavier than its dimensions suggested. I have lifted more than that in a gym four mornings a week for ten years. I have never had to walk anywhere with it.
 
 “On three,” she said. “I say three. You don't.”
 

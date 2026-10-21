@@ -1,8 +1,82 @@
 # Nobody Marries the List: Handoff (current)
 
-Last updated: Tuesday, October 20, 2026, 6:42 PM PDT
+Last updated: Wednesday, October 21, 2026, 3:32 PM PDT
 
 START HERE. This is the live handoff from the night of October 19 on. `claude/handoff.md` is the archive (October 5 to the 10:13 PM entry of October 19); it has grown past what `project_read` returns whole (its last 4 KB, the 6:45 PM chapter 34 entry and its three sub-bullets, come back only through `project_search`), so new entries go here, newest first. Everything below the "Standing" line is carried over from the archive and is still in force. Nothing here is new invention; it records only what was discussed and decided.
+
+## October 21, 3:32 PM: the map, in the back after The List
+
+- Todd asked for a ChatGPT prompt for a map of the travels and ran four rounds. Round 1 lacked the billboard, had a branded truck and put Oyster Point in the wrong place; round 2 fixed those but drew Monterey Bay as an inland lagoon east of Carmel; round 3 still had Highway 1 on a spit closing the bay off; round 4 (3:29 PM) opens the bay west onto the Pacific and doubles the route's weight so it reads in grayscale on e-ink. All thirteen labels right (Golden Gate, San Francisco, South San Francisco, Oyster Point, San Bruno, Woodside, Sunnyvale, Castle Rock, Los Gatos, Carmel, Big Sur, Maui, Kīlauea). Left as is: the dogs' beach is on the bay's south shore, not past the point facing the ocean. Claude's call: use round 4.
+- Placement: the back, after The List, as "Where They Went" (Claude, 3:22 PM: in front it would show the Hawaii trip and Carmel before chapter 1; Todd sent round 4 without objecting).
+- Filed (here only; NOT yet Todd's folder): `manuscript/images/map.png` (1024 by 1536 PNG), `manuscript/back-02-map.md` (heading and one image line with alt text). The other back files are renumbered: `back-03-dogs.md`, `back-04-recipes.md`, `back-05-questions.md` (the old 02 to 04 names are gone from the project too).
+- Word build: `claude/build-vellum-docx.js` takes a back-file line `![alt](path.png)` as a centered picture, fit to a 6.5 by 7.2 inch frame (the map prints 4.8 by 7.2), with single line spacing so the body's 1.5 cannot clip it. Checked in a rendered test page. The Word file is rebuilt in the outputs with the map (37 chapters, 5 back pages, 1 image).
+- Doc: "Where They Went" heading at level 2 before "Dogs I Have Met", with an italic placeholder line; the doc cannot hold images.
+- For a paperback: 1024 px is about 3.4 inches at 300 dpi, so the map would need upscaling to fill a print page. The ebook is fine as is.
+
+## October 21, 10:37 AM: back matter drafted, four pages
+
+- Todd, 10:25 AM: "Ok, let's move on to some of the other back matter we talked about earlier." Asked which (the October 20, 4:04 PM list): "All of them" for the four in-book extras; "[No preference]" on the bonus scene, the next book's first chapter and the map, so those are not started.
+- Filed (chapter-style files, the manuscript doc after the epilogue, the project; NOT yet Todd's folder or the Word file):
+  - `manuscript/back-01-list.md`, The List: the printout from 33 as it hangs on Jo's fridge (his blue-ink line across the top, his pencil dates down the side for the eight struck before he mailed it: 5/7, 5/7, 5/16, 5/23, 6/20, 6/6, 7/25, 8/1, and "I will tell you this one myself." beside 7, 9, 11 and 12), every line struck but twelve, the thirteenth in her printing, and a short note from Jo on each. Dates and places checked against 1, 2, 4, 7, 10, 14, 21, 27, 34, 35 and 36.
+  - `manuscript/back-02-dogs.md`, Dogs I Have Met: Owen's top ten from his app, Pancake first ("That only makes him cuter," from 35); "Not counted": Truck Dog (19) and the dog barking in Hilo (19); Volcanoes I Have Met: Kīlauea. The other nine dogs are new and offstage.
+  - `manuscript/back-03-recipes.md`, Recipes: Frank's caldo verde in Jo's words, true to 35 (potatoes and onion till they give, mash in the pot, kale cut to thread, linguiça rounds fat and all; an hour); the linguiça and egg sandwich on one of Cal's cards, true to 34 (it splits, cut side down, the egg in the fat, do not break the yolk, foil folded twice, tear it in half and hold one half out).
+  - `manuscript/back-04-questions.md`, For Reading Groups: ten questions.
+- Word build: `claude/build-vellum-docx.js` now takes back-NN-*.md files after the epilogue (Heading 1 page, no narrator line), ### subheads, - bullets, **bold** and ~~strike~~. Tested: the 37 chapters build word for word as before; the back matter adds 11 struck lines, 12 bold runs and 10 bullets.
+- Doc: inserted at the end, headings at level 2 like the chapters; the list and dog numbers are literal text, the recipe steps and questions are real numbered lists. Header 10:36 AM, now "Chapters 1 to 36, the epilogue and the back matter". The Jump-to row has no back-matter links yet. The scratch verify script keys files by chapter number and must skip back-*.md.
+
+## October 21, 10:23 AM: the cards stay typed; ch 1's card fixed
+
+- Todd, 10:09 AM, asked for a ChatGPT prompt for the first card and a standard look. Claude wrote `claude/card-art-style.md` (look matched to the cover; each writer's hand; the prompt). Todd generated two images (the second fixed the round table, three twenties and the suit jacket). 10:19 AM: "I don't think these cards will be readable in a book. They will be tooi small." Measured, he was right. 10:21 AM: "ok, let's go with the first" (cards stay typed text, art only where it need not be read). "Does anything need to change?"
+- Changed (chapter file, manuscript doc header 10:22 AM, project; NOT yet Todd's folder or the Word file): ch 1's card now reads DON'T: say "noted." / DON'T: look at your watch. / DON'T: mention the list. (the Word build strips leading spaces, so the old indented "Mention the list." printed as an order); and "The card said not to mention the list. I drew a line through that DON'T." (the card's last line is "8:45 car."). The epilogue card's "DON'T: say "noted."" now repeats the first line exactly. Checked in a test build: the card prints as eight clean lines.
+
+## October 21, 10:08 AM: an outside critique of AI-sounding lines, six taken
+
+- Todd, 10:04 AM, sent six passages a critic called AI-sounding. Claude's view went first. 10:07 AM: "Ok, do what you think makes the book better."
+- Taken (chapter files, manuscript doc header 10:08 AM, project; NOT yet Todd's folder or the Word file):
+  - 12: cut "For a moment I was looking at two small women who had each decided something about me without consulting me." (the paragraph ends "Jo stands the same way.")
+  - 33: cut "I'd kept it in my mouth the way I kept the bill." ("the bill" had nothing to point at; "I shut my mouth on it" stays, for 35's "I shut my mouth on the word").
+  - 34: "I had the second half of it ready." ("the part where I fix it" cut; "There was nothing to fix." stays).
+  - 32: "I did not get up." alone (he always stands for her); cut "The sentence took longer to arrive than most sentences do."
+  - 30: "Remy had written it in under a second, to send to Dawn Pruitt so that she could find me another one." The April "who to love" paragraph stays.
+- Not taken: the critic's rewrites themselves (Cal contractions; "they'd already discussed me", untrue since Janice and Jo are meeting for the first time; the triplet merge in 33; "I waited").
+
+## October 20, 11:04 PM: outside line edit of 22 to the epilogue, twelve notes taken; folder and Word file written
+
+- Todd, 10:54 PM, sent the line edit for 22 to the epilogue. Claude's view went first. 11:02 PM: "Great, apply all the fixes that makes sense. Write out the files so I can save them. And create the docx file."
+- Continuity flags checked first: the review counts in 25 add up (431 the old total, 206 overnight, 403 by night); "ninth Saturday of ten" in 30 is right (July 25 is the eighth, August 1 was Carmel, August 22 the tenth); "six Saturdays since the hutch" in 24 is right; "four days" to Tokyo in 28 is Tuesday to Friday; "aproved" in 33 is deliberate (Jo notices it); the flat "Where are you." and "What happened," are deliberate; Owen's first ask in 36 holds (Sweeney Ridge came through Jo). Two real ones, fixed below: "It was the last Saturday" in 30 read as that day, and "about August" in 34 was vague (she did speak to him, at the vet in 32).
+- Taken (chapter files, manuscript doc header 11:04 PM, project, Todd's folder, Word file), 12 changes:
+  - 22: "It had the word *if* in it twice and left her a way out at the end."
+  - 23: "He put it on the first cleat he came to, at the back corner of the slip."
+  - 24: "She had said "Work."" (her word to him in 23); "It was the same paper Abby's lamp had come in on Sunday."
+  - 25: "Tonight I'd said *can you*, at midnight, at my own table..." (italics, as *if* in 22).
+  - 26: "Each letter said she was released from every term and owed me nothing under it."
+  - 28: "The excess would go back to her by check, in her name." (Remy's word in the text above).
+  - 29: "...and left the amount blank."; "One column says what I'll owe the bank after each payment."
+  - 30: "Next Saturday was the last one."
+  - 34: "It had been ten days since Jo had said anything to me about the wire."
+  - 35: "I could pick it out from the back of a car and never be in the room." (plan quote updated to match).
+- Left: Cal's contractions, commas after opening phrases, the em dash offered in 32, italics already in the book, and lines doing work (pay me for the gas; "needed it to"; "She would not let the driver" from 4; the 2014 shoes; "under the city"; "Can he carry."; the carpool dad's fragments; "His name was on that contract"; "She came all the way"; the piano's "It was"; the ramp's "and"s; "She took it. She took it with her right hand"; "He looked at me."; "not the same"; "the whole time" in 26; "I heard it after I said it"; "in that cab since July").
+- Checked after: the whole doc against the chapter files, text and italics, no differences.
+
+## October 20, 8:25 PM: outside line edit of 3 to 12 and 15 to 21, thirty notes taken
+
+- Todd, 8:15 PM, sent the rest of the outside line edit (3 to 12 numbered 1 to 68; 15 to 21 unnumbered; 13 and 14 missing from the paste; several of its "21" notes are in 18 and 20). Claude's view went first. 8:23 PM: "don't do the pass. Just apply the ones you think would improve the book." (The pass he declined is a whole-book ", and" sweep.)
+- Taken (chapter files, manuscript doc header 8:25 PM, project; NOT yet Todd's folder or the Word file), 30 changes:
+  - ", and" joins split: 3 (Denise's introduction; "That was reason five."; "I let go late. He noticed."), 4 (the watch and the glass), 5 (the opening, now "I had also looked at a client's arm for six seconds"; "That's about right for me and a dog."), 6 (the bakery line, keeping "a door"; the gym), 8 (the strawberries), 9 (the kiss; the hand at the light, with "like a fool" cut), 10 (the opening, which also makes nineteen-and-eighteen easier: the nineteenth is the footsteps line Jo quoted), 11 (the medicine cabinet), 19 ("There are always two more people than anybody tells you."), 20 ("She took her own bag and his and would not let me carry either one.").
+  - Cuts: 4 "I had not known it was sent."; 8 "I could still have given her two."; 9 "That was no use to me."; 10 "That had been offered to me at 7:00."; 11 "Abby was the daughter who named the dog." and "The man had just run my pencil along my finger."
+  - Rewordings: 6 "I watched her eat the bifana standing up, all of it."; 15 "I'd forgotten I was holding half a sandwich in my lap."; 16 "Every version had the plan in it."; 18 "Then she quit being careful. So did I."; 19 "Before that he'd stood at the end of the table with the mug" (the opening walks back from the question, so the step back is now marked); 20 "She looked at the truck for a while, then at the house." and "I could name nineteen times since May that I had been wrong in front of Jo."; 21 "They'll go through their mother's closet and her jewelry and her desk with a box of tissues." and "The fourth time, I typed his name."
+- Left, with reasons given to Todd: Cal's contractions; commas after opening phrases (the book runs open punctuation); Todd's October 19 keeps (the cruise versions in 6, the month-at-a-time line in 3); lines set up or paid off elsewhere (5, 16, 36, 40, 41, 61, 65, 66, 68, the butter in 17, "either" in 19, the 7:02 clock in 18); lines doing work (8, 11, 12, 13, 15, 18, 25, 27, 29, 30, 47, 55, 64 and others); word swaps with no gain.
+
+## October 20, 8:13 PM: outside line edit of 1 and 2, the useful notes taken
+
+- Todd, 8:08 PM, sent an outside line edit of chapters 1 and 2 (29 items; his paste ends partway through 29). 8:10 PM: "This is a critique so don't make changes without discussing it first." Claude's view went first. 8:11 PM: "We are going to generate images for the cards so I don't want to make changes yet for those." 8:12 PM: "Apply those that help the book."
+- Taken (chapter files, manuscript doc header 8:13 PM, project; NOT yet Todd's folder or the Word file):
+  - Ch 1, the first "noted" count tied to the word: "And you said 'noted.'" I put my finger on the word. "That's one." (She had named the watch and "noted" and then said "one.") The two counts stay; Cal works them out in ch 4 ("She kept more than one count").
+  - Ch 1, cut "Now his hand had been on my head for as long as it takes to read a tape." (it retold the measuring); kept "I could still feel where his hand had been."
+  - Ch 2, cut "In April I had approved it at my desk in about a minute. Now I did the arithmetic at the table, with her waiting." (then-and-now; the April approval is already on the page).
+  - The ", and" joins split: "That was the second reason. It went in the wrong column."; "I had four reasons by then. I couldn't have told you..."; "once in my life. I can give you the time."; "unless you ask. I had not asked."
+- Held for the card images: the critic's note that the ch 1 card reads wrong. The Word build trims each card line, so the indent before "Mention the list." is lost and the card prints as an order to mention it. The image has to show watch and list under DON'T; ch 1's "The last line on the card said not to mention the list. I drew a line through DON'T." depends on it (the card's real last line is "8:45 car."). The epilogue card needs its own image.
+- Left: 25 ("From seven to eighteen was eleven years." is how Cal gets there, and "every one of them" needs it) and 2 ("I was also twenty minutes late"). Every KEEP agreed with.
 
 ## October 20, 6:42 PM: all 165 explained-acts items applied; doc and files back in step
 

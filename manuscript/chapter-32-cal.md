@@ -166,7 +166,7 @@ She had my fleece on, the one I handed her at my gate on the way to Carmel. It w
 
 She stopped inside the doors and found me on the floor. Then she looked at the door with the keypad, and back at me.
 
-I did not get up. I did not think I could do it well enough to be worth doing.
+I did not get up.
 
 She came across the room and sat down on the floor beside me with her back to the wall. Her shoulder was four inches from mine. I could feel the warmth off her through the fleece, and I could smell my own dog on it, and her sleep. My shirt still had him down the front of it. She did not move away. I wanted to put my face against her neck and leave it there. I kept my hands on my knees.
 
@@ -370,7 +370,7 @@ She did not say anything to that for a moment. I heard her breathing, harder tha
 
 “I'm closing your file,” she said.
 
-I was sitting on my own stairs with no shirt on. I had slept forty-six minutes since Monday morning. The sentence took longer to arrive than most sentences do.
+I was sitting on my own stairs with no shirt on. I had slept forty-six minutes since Monday morning.
 
 “Why?”
 

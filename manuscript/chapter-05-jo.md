@@ -2,7 +2,7 @@
 
 **Jo**
 
-By the end of his four hours on the first Saturday we had emptied one closet, and I had looked at a client's arm for six seconds and been caught at it.
+By the end of his four hours on the first Saturday we had emptied one closet. I had also looked at a client's arm for six seconds and been caught at it.
 
 I've worked around men's arms for twenty years. I pay eleven people for theirs. I know what a forearm is for and about what it will lift, and I don't stand in a hallway holding one by the wrist.
 
@@ -32,7 +32,7 @@ I eat apart from the crew on every job. They need forty-five minutes a day to ta
 
 I picked the atrium. It had a bench and the sun, and it had the best thing about that house, which was that the dog was on the far side of it.
 
-From the bench I could see straight through the living room, in one wall of glass and out the other, to the back yard. He was lying against the back door with his nose on the track. He was an old golden retriever, the pale kind, about the color of his name, with a white face. That put two panes of glass and a living room between us, and that is about right for me and a dog.
+From the bench I could see straight through the living room, in one wall of glass and out the other, to the back yard. He was lying against the back door with his nose on the track. He was an old golden retriever, the pale kind, about the color of his name, with a white face. That put two panes of glass and a living room between us. That's about right for me and a dog.
 
 He had been out there since before I came. Twice that morning I had seen Cal go out the back door with nothing in his hands and come back in with them wet, and I hadn't worked out why.
 

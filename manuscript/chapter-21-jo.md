@@ -4,7 +4,7 @@
 
 On Thursday I packed a dead woman's kitchen in Westlake by myself, in fog so thick I'd driven over with my headlights on at seven in the morning. My nose was peeling from Maui. Every time I wiped it on my sleeve I was back on that lanai.
 
-Her son had flown in from Phoenix. He sat in the garage with the door up, on a folding chair, with his phone, and every hour he came in and asked if I needed anything. I've cleared a lot of houses for people's children. They'll go through their mother's closet with a box of tissues, and her jewelry and her desk. They leave the kitchen to me.
+Her son had flown in from Phoenix. He sat in the garage with the door up, on a folding chair, with his phone, and every hour he came in and asked if I needed anything. I've cleared a lot of houses for people's children. They'll go through their mother's closet and her jewelry and her desk with a box of tissues. They leave the kitchen to me.
 
 I built two dish packs on her counter and taped the bottoms in an H. Plates on edge, cups rim down, glasses in their own cells. I can do a kitchen like hers in five hours if nobody talks to me. Nobody did. The house was so quiet I heard the furnace come on twice before noon, in July.
 
@@ -12,7 +12,7 @@ I was three days behind, with two trucks out and me on neither one. Vili had the
 
 I had my phone in my back pocket all day. I took it out four times. In Denise's thread my *HOME* from Wednesday night sat right under her *MARRY HIM* from Monday. It didn't answer hers. She knew it didn't. Cal's was under that, with nothing in it since the terminal. I'd told him Thursday was a workday. He takes what I tell him to the letter.
 
-The fourth time I typed his name. Then I stood there with the phone in one hand and a stack of her salad plates in the other. I couldn't find a next word that didn't sound like a thank-you note. You don't send a man a thank-you note for a volcano. I put the phone back in my pocket and the plates in the box.
+The fourth time, I typed his name. Then I stood there with the phone in one hand and a stack of her salad plates in the other. I couldn't find a next word that didn't sound like a thank-you note. You don't send a man a thank-you note for a volcano. I put the phone back in my pocket and the plates in the box.
 
 I wanted my hand on his back. I'd had it there three hours at the rim, through his sweatshirt. I could still feel his ribs going in and out under it. I stood in a dead woman's kitchen in the fog and missed that in my palm. I'd known the man since May. I'd slept with him once. I had no business missing a man's back.
 

@@ -490,7 +490,7 @@ Denise pulled out the chair across from me and sat down. She pushed the calculat
 
 “And if you love him, it's a house.” She put her hand flat on the pad, on his fifty-eight ninety-one. “So?”
 
-I'd had it in my mouth on that rock. I'd had it in the dark at Carmel, and in Janice's office with her tape gun going behind me. Every time, I shut my mouth on it. I'd told myself I was waiting to be sure. I wasn't waiting. If I never said it, there was nothing he could buy with it. Not a truck. Not a sandwich. I'd kept it in my mouth the way I kept the bill.
+I'd had it in my mouth on that rock. I'd had it in the dark at Carmel, and in Janice's office with her tape gun going behind me. Every time, I shut my mouth on it. I'd told myself I was waiting to be sure. I wasn't waiting. If I never said it, there was nothing he could buy with it. Not a truck. Not a sandwich.
 
 Now there was a house, and if I said it, it would sound like the house.
 

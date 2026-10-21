@@ -102,8 +102,9 @@ Silveira Moving, South S.F. Est. 1987.
 Divorced. One son, 8.
 
 ASK: her work. Her father.
-DON'T: say "noted." Look at your watch.
-       Mention the list.
+DON'T: say "noted."
+DON'T: look at your watch.
+DON'T: mention the list.
 
 8:45 car.
 ```
@@ -114,7 +115,7 @@ I write a card like that for every house I walk. Stairs, elevator, piano, who si
 
 “I did.”
 
-“And you said 'noted.' That's one.”
+“And you said 'noted.'” I put my finger on the word. “That's one.”
 
 “You are counting.”
 
@@ -178,7 +179,7 @@ My beer came. The six dollars came with it, and I left them where they were.
 
 I'd told him more than I tell clients who ask on their own. While I drank, I looked at his hands on the table, because my father would have. They were clean to the wrist. I'd have bet they had never been under the heavy end of anything. I had my answer. I kept looking at them anyway.
 
-The last line on the card said not to mention the list. I drew a line through DON'T.
+The card said not to mention the list. I drew a line through that DON'T.
 
 “Dawn told me,” I said.
 
@@ -240,11 +241,11 @@ Nobody had put a hand on my head since my father measured me against the garage 
 
 He laughed. It was one syllable, and I felt it more than I heard it. He looked at his hand on my head like he had just found it there. He took it back, and the tape ran home into the case with a snap that made both of us jump.
 
-That was the second reason, and it went in the wrong column.
+That was the second reason. It went in the wrong column.
 
 We sat down. My face was warm, and I blamed the walk from Minna Street. His ears had gone red again, and he had nothing to blame.
 
-I'd changed my shirt in the cab thinking this would be the easiest beer I'd had all year. Now his hand had been on my head for as long as it takes to read a tape. I could still feel where it had been. I told myself a quarter to nine was good news.
+I'd changed my shirt in the cab thinking this would be the easiest beer I'd had all year. I could still feel where his hand had been. I told myself a quarter to nine was good news.
 
 I picked up his card and turned it over. On the back I wrote *5'8″ or taller* in carpenter's pencil. Then I drew a line through it.
 
@@ -376,7 +377,7 @@ It was an honest question. Cal Brennan had to look into his own glass to answer 
 
 Owen was at his father's until Sunday. There was nobody at my house to know what time I got in.
 
-I had a six a.m. load in Pacifica. I had four reasons by then, and I couldn't have told you which column any of them were in.
+I had a six a.m. load in Pacifica. I had four reasons by then. I couldn't have told you which column any of them were in.
 
 I texted Denise under the table. *Call off Vili.*
 
