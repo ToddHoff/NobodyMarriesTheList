@@ -104,7 +104,7 @@ The bartender was there before my chair stopped moving. I asked for whatever was
 
 There was a twenty in my purse. It stayed there. Cal looked at my purse. Then he looked at me.
 
-He had Stephanie's envelope on the seat beside him. He put it on the table first and squared it to the edge. Abby's green tape was still across the flap, with DAD on it in her printing.
+He had Stephanie's envelope on the seat beside him. He put it on the table first. Abby's green tape was still across the flap, with DAD on it in her printing.
 
 I turned to the last page. My printing still ran off the end of the line and down the margin. He hadn't added a word to it. I took the pencil from behind my ear and drew a line through *and what I owe on it*.
 
@@ -159,7 +159,7 @@ He came down. I put my hands in the gray over his ears and kissed him at the cor
 
 We sat down on the same side.
 
-"Chairs off the truck," I said. "Denise brings a sheet cake. Dad sits in his chair, with his cushion. Owen times it."
+"Chairs off the truck," I said. "Abby squares them up. Denise brings a sheet cake. Dad sits in his chair, with his cushion. Owen times it."
 
 "I did not bring a ring."
 

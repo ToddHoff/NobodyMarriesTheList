@@ -290,7 +290,7 @@ Denise called me at 12:46 on Thursday afternoon. I could hear her turn signal.
 
 She had written it down before she dialed. I could hear her turn the page.
 
-The transmission had gone on the twenty-seventh. The next night she had lain on the slab in my mother's hall with her head against mine. On Thursday I had sat at her table until 2:41 reading reviews with her. She had driven me to Carmel and back with a truck down in her yard, and paid eighty-one fifty for our lunch, and made me coffee on Sunday with the statement face down beside my mug. In ten days she had not said one word about any of it. My watch tapped against my wrist. I let it.
+The transmission had gone on the twenty-seventh. The next night she had lain on the slab in my mother's hall with her head against mine. On Thursday I had sat at her table until 2:41 reading reviews with her. She had driven me to Carmel and back with a truck down in her yard, and paid eighty-one fifty for our lunch, and made me coffee on Sunday with the statement face down beside my mug. In ten days she had not said one word about any of it.
 
 “I knew about the house,” I said. “I read it on her counter.”
 

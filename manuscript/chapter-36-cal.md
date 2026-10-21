@@ -402,7 +402,7 @@ Owen opened his eyes.
 
 Kevin took a box out of the bag and opened it. They were popsicles. He tore the paper off a purple one and put it in Owen's hand. Owen came up on one elbow and ate it. It was the first thing he had eaten since recess.
 
-Kevin stood at the end of the couch with his hands in his jacket pockets and watched him eat it. He looked at the basin and the thermometer and the box of Motrin, squared to the edge of the table. He looked at the towel I had left on the kitchen floor. He knew how the day had gone without asking me.
+Kevin stood at the end of the couch with his hands in his jacket pockets and watched him eat it. He looked at the basin and the thermometer and the box of Motrin in their row on the table. He looked at the towel I had left on the kitchen floor. He knew how the day had gone without asking me.
 
 He took the bag into the kitchen and put it on the counter. There was a bottle of green Gatorade in it and a sleeve of saltines. I put the rest of the popsicles in the freezer myself.
 

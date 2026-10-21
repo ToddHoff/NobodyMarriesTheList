@@ -104,8 +104,6 @@ Sixty people work on that floor. Every head that came up went to the woman in bo
 
 I had seen her in a bar, on a curb, on her own loading dock and in a green dress. This was the first time in my building. She looked down the length of my floor the way she had looked down my mother's hall, as a job. I wanted her to like it.
 
-My watch tapped. I did not look at it.
-
 Janice has worked for me for seventeen years, and she has never needed an estimate for anything. She retires in December. She had hired a mover six months early so that she could get a look at Jo.
 
 Every long message on Jo's phone was Janice's. Jo did not know it. Janice had booked the estimate anyway. I have watched her size up people since there were nine of us. She folds her hands and lets them talk. She would not bring up the messages.

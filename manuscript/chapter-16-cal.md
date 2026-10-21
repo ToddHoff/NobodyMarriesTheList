@@ -256,8 +256,6 @@ She did not turn back toward 17. She drove past the store and turned off Summit 
 
 “Not till today.”
 
-My watch tapped against my wrist.
-
 The trees stopped at the top of the hill. The winery was a long, plain building with a roof made of solar panels. Jo pulled in beside it and shut off the engine.
 
 A dog came around the end of the building at a trot to meet us. He was big and brown, with his tail going. He stopped at Jo's door and looked up at it.

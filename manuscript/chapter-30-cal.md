@@ -109,7 +109,7 @@ I thought it was not the same. In 2012 I wanted my mother to stop making a payme
 
 I looked for a way to say that to Abby. Every way I found came out as *this time I meant it.* That is what a man says about the twelfth one. Abby had sat at the end of the table for the other eleven.
 
-My watch tapped against my wrist. I did not turn it over. My hand was not steady, so I squared the edge of my plate to the edge of the counter until it was.
+My watch tapped against my wrist. I did not turn it over.
 
 Abby got up. She took the tin and went through it again and pulled one card and put it on the counter in front of me, square to the edge, the way I put things down.
 

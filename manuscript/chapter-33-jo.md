@@ -24,7 +24,7 @@ He was in a gray T-shirt, wet down the middle of the back. He had the box on his
 
 He'd taken the low end. On stairs the low end is the heavy end.
 
-My stomach went over the hill. I sat down on the counter with my socks hanging over the sink and looked at his forearms in that picture till the screen went dark.
+I sat down on the counter with my socks hanging over the sink and looked at his forearms in that picture till the screen went dark.
 
 Then another text.
 

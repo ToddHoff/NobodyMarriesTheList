@@ -324,7 +324,7 @@ Kevin laughed and shook his head. “Everybody does the back one. The forward cl
 
 “Thank you.”
 
-He put his fork down and squared it to the edge of his plate. His ears had gone red.
+He put his fork down. His ears had gone red.
 
 I've seen his ears go red at the Pied Piper and on his mother's slab and at the end of his ex-wife's table. I'd never seen it happen over another man, at my father's table, over where you tie up a boat.
 
@@ -464,7 +464,7 @@ Across the roof of the car Cal was looking at my son's phone. He'd heard. He kep
 
 “I know, Kevin.”
 
-My face was hot. He looked up the street and down it again. Then he got in and pulled out.
+He looked up the street and down it again. Then he got in and pulled out.
 
 Owen waved at Cal through the back window until they were gone.
 

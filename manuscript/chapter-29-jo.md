@@ -154,6 +154,8 @@ The last thing in it was his, from Thursday night at 10:02. *Your father and I f
 
 I'd read it before the trucks went out on Friday morning, at this counter, in the dark. On Thursday I'd watched the two of them out the office window with their backs to the wind, my father calling the folds. When Cal looked up and saw me watching, I'd turned away from the glass. I'd had six days to answer it.
 
+On Friday I'd had Denise tell him Remington was off till the fifteenth.
+
 I didn't type anything now either. I wasn't going to say this on a phone.
 
 I put my boots on. It was still dark. The sea glass on the sill over the sink was black.
@@ -312,7 +314,7 @@ In June she'd had till December in this office. She'd given up the rest of the y
 
 “He always gives a present before the end.”
 
-I looked at her. She looked right back. My neck went hot from the collar up.
+I looked at her. She looked right back.
 
 “The end of what,” I said.
 

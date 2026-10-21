@@ -100,7 +100,7 @@ Jo put her sandwich down.
 
 “Tonight,” she said.
 
-My ears went hot. I had arranged it on Thursday morning, before I wrote to ask what time.
+I had arranged it on Thursday morning, before I wrote to ask what time.
 
 I had asked Rita myself, in my own kitchen. On June 27 a car had waited at her curb with her name on it and the usual. I had watched her look at my face to see whether I had sent it. I had arranged my dog so that I could stay the night in her house. She had not asked me to stay.
 

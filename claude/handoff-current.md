@@ -1,8 +1,38 @@
 # Nobody Marries the List: Handoff (current)
 
-Last updated: Tuesday, October 20, 2026, 4:17 PM PDT
+Last updated: Tuesday, October 20, 2026, 5:33 PM PDT
 
 START HERE. This is the live handoff from the night of October 19 on. `claude/handoff.md` is the archive (October 5 to the 10:13 PM entry of October 19); it has grown past what `project_read` returns whole (its last 4 KB, the 6:45 PM chapter 34 entry and its three sub-bullets, come back only through `project_search`), so new entries go here, newest first. Everything below the "Standing" line is carried over from the archive and is still in force. Nothing here is new invention; it records only what was discussed and decided.
+
+## October 20, 5:33 PM: folder and Word file up to date
+
+- Todd, 5:30 PM: "Yes on the word file. Hold on the pass." Written to ~/NobodyMarriesTheList: the 19 changed chapter files (1, 5, 12, 14, 15, 16, 17, 18, 20, 23, 27, 28, 29, 30, 31, 33, 35, 36, epilogue), claude/book-plan.md, claude/handoff-current.md, and Nobody Marries the List.docx rebuilt over itself. The narration pass is ON HOLD until Todd says.
+
+## October 20, 5:31 PM: a third book-level critique, two fixes
+
+- Todd, 5:29 PM: "Let's do the fixes, including Abby is something I missed too". Filed (files, project, manuscript doc header 5:30 PM, plan's epilogue entry): the epilogue's wedding list now has Abby ("Chairs off the truck," I said. "Abby squares them up. Denise brings a sheet cake..."); ch 35 "I got my pencil out of the drawer by the stove." so the epilogue's "Every line I'd ever struck on his list had come out of that pencil" holds.
+- Offered, not started: a chapter-by-chapter pass for narration that explains what an act already showed. The Word file and Todd's folder do not have these two fixes or the 4:52 PM changes in the .md files yet.
+
+## October 20, 5:22 PM: Word file rebuilt
+
+- Todd, 5:20 PM: "export the docx file". Rebuilt from the current chapters (37 sections, 146,904 words) and written over ~/NobodyMarriesTheList/Nobody Marries the List.docx, same name. The 19 changed chapter .md files are still NOT in his folder; offered.
+
+## October 20, 4:54 PM: book-level critiques, continuity fixes and the tells trim
+
+- Todd, 4:35 PM, sent two book-level critiques ("don't make changes yet"); Claude gave its view; Todd, 4:39 PM: "I don't care how long it is. The story is the story. Make all the changes you think will improve the story." Length is not a concern; do not cut for length.
+- Filed to the chapter files, the project and the manuscript doc (header 4:52 PM); plan decision record at 4:52 PM. NOT yet written to Todd's folder, and the Word file is not rebuilt; do both when he asks (19 chapter files changed: 1, 5, 12, 14, 15, 16, 17, 18, 20, 23, 27, 28, 29, 30, 31, 33, 35, 36, epilogue).
+- The details are in the plan's 4:52 PM decision record. Note for the doc: early chapters use curly quotes, later ones straight; find text without quotes where possible.
+
+## October 20, 4:27 PM: the Word file, always one name
+
+- Todd, 4:23 PM: "Write a docx file"; 4:26 PM: "It needs to always have the same name so I can reimport it into vellum." The whole book is built to **~/NobodyMarriesTheList/Nobody Marries the List.docx**, and every rebuild overwrites that same file. Never a new name. Build: `node claude/build-vellum-docx.js manuscript "Nobody Marries the List.docx"` (in the container: stage the manuscript files, `docx` is preinstalled, then commit the file back to that path). The old "Nobody Marries the List - chapters 1-10.docx" is left alone.
+- claude/build-vellum-docx.js now takes epilogue-jo.md and its "## Epilogue" heading, and treats JO SILVEIRA and OWEN cards as written notes like Janice's (in his folder and the project; uncommitted).
+- First build: 37 sections, about 147,000 words, 358 pages in Word; pages 1, 356 and 358 checked as images.
+
+## October 20, 4:23 PM: everything written to Todd's folder
+
+- Todd, 4:21 PM: "Ok, write evertyhing out the file file system so I can save it." Written to ~/NobodyMarriesTheList: manuscript/chapter-12-cal.md, chapter-28-cal.md, chapter-36-cal.md (new), epilogue-jo.md (new); claude/book-plan.md, character-sheet.md, handoff-current.md, proposals-36.md (new). Everything else there already matched (35, the style guide, handoff.md, pending-updates.md, checked by hash). He commits himself; nothing committed from here.
+- Line notes after the critiques, all filed: "I know what two days of that sounds like in a house. I did nine of them to Cal in August." cut ("Sounds like narration"); "The piper" is now "The Pied Piper" (the Maxfield Parrish painting, 1909); "Nothing on that table was anything I'd have to wash and walk back." cut ("Odd").
 
 ## October 20, 4:17 PM: two outside critiques of the epilogue, four changes filed
 
@@ -155,6 +185,7 @@ Git repo on Todd's computer: `~/NobodyMarriesTheList`. Do not write files to his
 - Say the thing; do not be coy. No character speaks narration (October 18). Nothing from an earlier chapter restated unless it does new work (October 19). Clock times are Cal's (October 17). Places at full size (October 15). Dawn may say true things about both of them; nobody else explains him to himself.
 - A revised chapter replaces the old one. Never keep superseded chapters. Scene breaks are a line holding only `***` (in the doc, a plain paragraph of three asterisks, written as `\*\*\*` in markdown).
 - Always show the link to the full manuscript in replies, not chapter files ("The chapters don't refresh"). After every manuscript change, reopen the manuscript doc for him with the Artifact tool's open action.
+- The Word file for Vellum is always ~/NobodyMarriesTheList/Nobody Marries the List.docx, overwritten in place, never renamed (Todd, October 20, 4:26 PM: "It needs to always have the same name so I can reimport it into vellum.").
 - Every doc has one header line with the full date and time of the most recent update; overwrite it on every change, with the real time (check the clock first).
 - Keep moving and keep him posted; a long silent stretch drew "Are you spinning."
 

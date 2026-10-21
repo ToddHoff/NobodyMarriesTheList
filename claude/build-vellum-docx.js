@@ -27,7 +27,7 @@ function runsFromInline(text, extra) {
   return runs;
 }
 
-const files = fs.readdirSync(srcDir).filter(f => /^chapter-\d\d-(jo|cal)\.md$/.test(f)).sort();
+const files = fs.readdirSync(srcDir).filter(f => /^(chapter-\d\d-(jo|cal)|epilogue-jo)\.md$/.test(f)).sort();
 const children = [];
 const stats = { chapters: 0, paragraphs: 0, notes: 0, screens: 0, breaks: 0, words: 0 };
 
@@ -36,7 +36,7 @@ for (const f of files) {
   let i = 0;
   // heading
   while (lines[i].trim() === '') i++;
-  const m = /^## Chapter (\d+)$/.exec(lines[i].trim());
+  const m = /^## (Chapter \d+|Epilogue)$/.exec(lines[i].trim());
   if (!m) throw new Error('no heading in ' + f);
   i++;
   while (lines[i].trim() === '') i++;
@@ -46,7 +46,7 @@ for (const f of files) {
   children.push(new Paragraph({
     heading: HeadingLevel.HEADING_1,
     pageBreakBefore: stats.chapters > 0,
-    children: [new TextRun('Chapter ' + m[1])],
+    children: [new TextRun(m[1])],
   }));
   children.push(new Paragraph({ style: 'VellumElementSubtitle', children: [new TextRun(n[1])] }));
   stats.chapters++;
@@ -59,7 +59,8 @@ for (const f of files) {
       i++;
       while (lines[i].trim() !== '```') { block.push(lines[i]); i++; }
       i++;
-      const isNote = block[0].startsWith('JOANNA SILVEIRA');
+      // cue cards and hand-written cards; phone and Remy screens stay monospace
+      const isNote = block[0].startsWith('JOANNA SILVEIRA') || block[0].startsWith('JO SILVEIRA') || block[0].trim() === 'OWEN';
       for (const b of block) {
         if (b.trim() === '') continue;            // an empty paragraph would import as a scene break
         const text = smart(b.trim());
@@ -90,7 +91,7 @@ for (const f of files) {
 const doc = new Document({
   creator: 'Wendy Garrity',
   title: 'Nobody Marries the List',
-  description: 'Chapters 1 to 10, first draft. Laid out for Vellum import.',
+  description: 'Chapters 1 to 36 and the epilogue, first draft. Laid out for Vellum import.',
   styles: {
     default: { document: { run: { font: 'Times New Roman', size: 24 } } },
     paragraphStyles: [

@@ -4,7 +4,7 @@
 
 On Tuesday afternoon I walked an empty house in Redwood City by myself. I made it about a minute at a time without thinking about Cal Brennan.
 
-I do the last walk-through alone. The crew had taken the second truck back to the yard. The owners were in Sacramento with everything they owned. I open every door in a house before I give back the keys. Every closet, every cupboard, the oven, the dryer, the space under the stairs. Last year I found a wedding ring in a dryer in Millbrae. The woman cried on the phone for ten minutes.
+I do the last walk-through alone. The crew had taken the second truck back to the yard. The owners were in Sacramento with everything they owned. I open every door in a house before I give back the keys. Every closet, every cupboard, the oven, the dryer, the space under the stairs. Last year I found nine hundred dollars in a dryer in Millbrae. The woman cried on the phone for ten minutes.
 
 I opened the oven and thought about his guest room. I opened the dryer and thought about it again.
 
@@ -126,7 +126,7 @@ We ate on his back step with the dog between us and the oaks going dark. He told
 
 He laughed out loud. The dog lifted his head to see what was wrong with him.
 
-My stomach went over the hill. I'd already put him on a found sheet in June. His seven, with his name signed under them. I didn't bring that up on his back step.
+I'd already put him on a found sheet in June. His seven, with his name signed under them. I didn't bring that up on his back step.
 
 “How many bedrooms?” I said.
 

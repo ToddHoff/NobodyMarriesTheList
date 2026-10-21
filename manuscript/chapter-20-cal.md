@@ -68,6 +68,8 @@ That was as close as she was going to come. I took it. I went to bed.
 
 On Saturday morning the car said seventy-one degrees on Remington at 6:52. I had parked across the street, where I have parked since June 6. I had on number thirty-eight. I had a gallon of water and a bowl for Pancake, and my lunch, which I had made at 5:40 with the butter out to the edge. I had decided in the car that I would not bring up Hawaii unless she did.
 
+It was the first Saturday on Remington since June 27. July is her busy month. She had booked paying loads on the Fourth, the eleventh and the eighteenth.
+
 Her truck turned onto Remington at 6:59. Vili was driving. He backed it in on one pass and got down. Jo came around the front with the clipboard already in her hand.
 
 Vili went to the back and pulled the door up. He looked at the house, and at me on the curb with a gallon of water, and at her.
@@ -356,8 +358,6 @@ Dawn did not say anything for a while. I heard her set the cup down on something
 
 “No.”
 
-My watch tapped against my wrist. I did not turn it over.
-
 I had been wrong in front of Jo nineteen times since May that I could name. She had never sent me a thank-you.
 
 “Two more Saturdays,” I said. “Then the house is empty. Denise asked me what then.”
@@ -480,7 +480,7 @@ He stayed.
 
 She keeps a truck door between herself and every dog she meets. On our first night she told me she would want my dog on the other side of a railing from her. A week ago I found the scar on the back of her calf. She got down on her knees on the floor eighteen inches from my dog, with her back half to him so that she could see the grout. She tore off a length of green tape and wrapped it around her fingers sticky side out, and she went over the floor with it, square by square, lifting the slivers out of the grout so he would not cut a foot. When the tape was full she folded it on itself and tore another. She did not look up at me.
 
-I did not say anything. If I had, she would have had to answer me. My watch tapped against the inside of my wrist.
+I did not say anything. If I had, she would have had to answer me.
 
 She picked up my photograph out of the glass and held it up to me from the floor.
 

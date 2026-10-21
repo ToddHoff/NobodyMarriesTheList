@@ -304,7 +304,7 @@ Then he sat down, and he was the one with the card again.
 
 “This is a room.”
 
-“This is a table.” He squared the card to the edge again. “I am good at rooms.”
+“This is a table,” he said. “I am good at rooms.”
 
 I get that voice in driveways, from men who want my crew to like them. They keep it on until the truck pulls out. His had worked on me from across the table. It hadn't even been pointed at me. I had never had a man sit back down and tell me it was a voice.
 

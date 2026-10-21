@@ -8,7 +8,7 @@ On Sunday night Cal Brennan asked if he could work a load, and I put him on my p
 
 That was the whole message. There was no semicolon in it and nothing about anybody's mother. Janice would have given me a reason. He hadn't.
 
-He'd written once before, on the Wednesday night after the fight. *I still owe linguica.* I read it in my kitchen in my socks, and I knew who wrote it by the last word, because Janice would have looked it up. He sent four words. One was spelled wrong.
+He'd written to me himself once since the fight, on the Wednesday night. *I still owe linguica.* I read it in my kitchen in my socks, and I knew who wrote it by the last word, because Janice would have looked it up. He sent four words. One was spelled wrong.
 
 I didn't answer it for three days, because I didn't trust what I'd say. On Saturday night I fixed his spelling and sent that. It was the most I could manage.
 

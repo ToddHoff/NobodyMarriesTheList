@@ -224,7 +224,7 @@ Jo crouched and picked up the oldest pair. The tread was gone on the outside edg
 
 I crouched beside her. She was eighteen inches from me, and she did not move off.
 
-It was the first time all morning she had come inside four feet and stayed. I could smell the cab of her truck on the sweatshirt. My face was hot again. I did not know whether she had noticed how close she was. I did not move, in case she had not.
+It was the first time all morning she had come inside four feet and stayed. I could smell the cab of her truck on the sweatshirt. I did not know whether she had noticed how close she was. I did not move, in case she had not.
 
 “Green or blue?” she said.
 

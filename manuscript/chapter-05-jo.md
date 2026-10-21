@@ -226,7 +226,7 @@ I could have sent him home. His four hours were up. The coats could sit with no 
 
 “Then we do the coats,” I said.
 
-He put blue tape on all fourteen. Vili and Manny packed them in the boxes he had built that morning and carried them out to the truck, and he stood in the driveway until the door came down. I was home in San Bruno by two. Owen was at my father's until morning, and the house was too quiet. I showered and did a week of laundry. At seven I ate cereal standing at the counter.
+He put blue tape on all fourteen. Vili and Manny packed them in the boxes he had built that morning and carried them out to the truck, and he stood in the driveway until the door came down. I was home in San Bruno by two. Owen was at his father's until morning, and the house was too quiet. I showered and did a week of laundry. At seven I ate cereal standing at the counter.
 
 All afternoon, through two loads of wash and the folding, I thought about the coats. It had taken him about five minutes. The gray car coat went blue with the rest. Most people keep one. I've watched grown sons carry home a raincoat that wouldn't go around them. He had kept the badge out of that coat and sent the coat to the truck. I couldn't make anything of that I liked.
 

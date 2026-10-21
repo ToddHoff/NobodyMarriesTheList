@@ -432,7 +432,7 @@ We ate our dinner on the terrace with the dog under the table. Dinner came with 
 
 While we ate, the fog came back in off the ocean underneath us. It filled the canyons first and then everything below the hotel, until there was no road and no Nepenthe and no ocean, only white, flat, all the way out, with the tops of the ridges standing up out of it. The sun went down into it orange. The white went pink, and then gray, and then the stars came out over it, more of them than I knew there were.
 
-Cal had his hand on the table. I put mine on top of it, in front of everybody. He turned his hand over and held on. He looked at me and waited. My face went hot. I passed him the bread.
+Cal had his hand on the table. I put mine on top of it, in front of everybody. He turned his hand over and held on. He looked at me and waited. I passed him the bread.
 
 In the room I lit the fire. The fire came in a paper bag. The bag said forty minutes.
 

@@ -484,7 +484,7 @@ By the time I'd done the dishes Owen was asleep, with his door open a foot.
 
 I sat at my counter with the light over the stove on and nothing else. The fleece was on the back of the chair. I put it on. It still smelled like his dog and the cold at his gate. I wanted him at my counter so bad my stomach hurt.
 
-On the terrace at Ventana he'd turned his hand over under mine and held on, and looked at me, and waited. My face went hot. I passed him the bread.
+On the terrace at Ventana he'd turned his hand over under mine and held on, and looked at me, and waited. I passed him the bread.
 
 Kevin used to pass me the salt.
 

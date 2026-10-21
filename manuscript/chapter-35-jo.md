@@ -204,7 +204,7 @@ I put my spoon in the bowl.
 
 He said it to my face.
 
-My stomach went over the hill. I put my hands under the table.
+I put my hands under the table.
 
 For three months I'd sent back everything he sent.
 
@@ -218,7 +218,7 @@ He looked at Pancake on my feet. Then at me.
 
 “I am in your kitchen,” he said.
 
-I got the carpenter's pencil out of the drawer by the stove. I turned the card over to the back and wrote *COMFORTABLE BEING LOOKED AFTER* under GOOD FAMILY, in capitals, and drew the line through it. I pressed hard enough that it showed on the front.
+I got my pencil out of the drawer by the stove. I turned the card over to the back and wrote *COMFORTABLE BEING LOOKED AFTER* under GOOD FAMILY, in capitals, and drew the line through it. I pressed hard enough that it showed on the front.
 
 That left two.
 
@@ -236,7 +236,7 @@ By the time the dishes were done it was dark out. Pancake was asleep on my kitch
 
 “He sleeps better on his own bed,” he said. “I will carry him out at nine. He will not wake up.”
 
-I had the dish towel in my hands. I folded it in thirds and in half without looking at it and put it on the counter. My face was hot. My mouth already had its sentence. *Go on. I've got it.*
+I had the dish towel in my hands. I folded it in thirds and in half without looking at it and put it on the counter. My mouth already had its sentence. *Go on. I've got it.*
 
 I made a different one.
 
