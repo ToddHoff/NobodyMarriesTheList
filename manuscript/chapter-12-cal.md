@@ -20,13 +20,13 @@ He read them off his phone.
 
 He was checking whether I did. I have run interviews that way since the company had four people.
 
-Pancake walked him twice around the yard. Owen held the leash in both hands, as I had shown him, and kept his back to the glass, where his mother was.
+Pancake walked him twice around the yard. Owen held the leash in both hands, as I had shown him, with his back to the glass, where his mother was.
 
 He is nine. My daughter was nine in 2017. I was not here for that line either.
 
 I remembered the last of mine. I was twelve and told her I was too old for it. She made me stand there in my socks anyway. Fourteen years later she started a column for Abby next to mine. She never mentioned it in the four times I made the drive in her last five years.
 
-Jo watched from the other side of the glass with her arms crossed. Her hair was half out of its tie. My hand had been in it in the hall. She watched her son and the dog, and twice she watched me instead. I counted.
+Jo watched from the other side of the glass with her arms crossed. Her hair was half out of its tie. My hand had been in it in the hall. She watched her son and the dog, except twice, when it was me. I counted.
 
 When Pancake had done his two laps he went to the glass and leaned on it, where her leg was.
 
@@ -34,7 +34,7 @@ When Pancake had done his two laps he went to the glass and leaned on it, where 
 
 “He leans on the one person in a room who would rather he did not.”
 
-Owen looked at the dog, and then at his mother.
+Owen looked from the dog to his mother.
 
 “Question six,” he said. “Do you take days off?”
 
@@ -70,7 +70,7 @@ Owen looked at the dog again.
 
 I tell my board the same thing when I have already decided and want one more quarter of numbers before I say so. I did not argue for my dog.
 
-At 7:30 that night I called Janice, as I do after every Saturday, and told her about the day so that she could write to Jo.
+At 7:30 that night I called Janice, as I do after every Saturday, to tell her about the day so that she could write to Jo.
 
 “Go on,” Janice said.
 
@@ -82,9 +82,9 @@ I gave her the sandwich, the butter and the nine questions. I gave her Owen's ha
 
 It was not. I had left out the bathroom door with my daughter's name on it twelve times. I had left out that Jo took hold of my shirt in the hall and told me to bend down. I had left out question six. I did not want any of them in a message at 9:14.
 
-Her message went to Jo at 9:14. I read it before I approved it. It was about butter, and it was good.
+Her message went to Jo at 9:14. I read it before I approved it. It was about butter. It was good.
 
-I had my thumb over the screen for forty seconds. I have read every one since the fifth of June, and every one has been kinder to her than I would have been. I have approved all of them. I approved that one.
+I had my thumb over the screen for forty seconds. Every one I have read since the fifth of June has been kinder to her than I would have been. I have approved all of them. I approved that one.
 
 ***
 
@@ -98,25 +98,25 @@ Estimate, 10:00. Booked by J. Louie.
 
 I had not booked an estimate. I looked up from the phone.
 
-She was at the far end of the floor, outside Janice's door, with a clipboard. She had on the gray T-shirt with SILVEIRA across the shoulders, and the boots, and the pencil was behind her ear. She was counting Janice's file cabinets out loud. Janice stood beside her with her hands folded.
+She was at the far end of the floor, outside Janice's door, with a clipboard. She was in the boots and the gray T-shirt with SILVEIRA across the shoulders, the pencil behind her ear. She was counting Janice's file cabinets out loud. Janice stood beside her with her hands folded.
 
 Sixty people work on that floor. Every head that came up went to the woman in boots first and then to me.
 
 I had seen her in a bar, on a curb, on her own loading dock and in a green dress. This was the first time in my building. She looked down the length of my floor the way she had looked down my mother's hall, as a job. I wanted her to like it.
 
-Janice has worked for me for seventeen years, and she has never needed an estimate for anything. She retires in December. She had hired a mover six months early so that she could get a look at Jo.
+In seventeen years Janice has never needed an estimate for anything. She retires in December. She had hired a mover six months early so that she could get a look at Jo.
 
 Every long message on Jo's phone was Janice's. Jo did not know it. Janice had booked the estimate anyway. I have watched her size up people since there were nine of us. She folds her hands and lets them talk. She would not bring up the messages.
 
 “Cal?” Brandon said.
 
-We hold reviews standing, on the open floor. I took the chairs out in 2019, and the reviews got eleven minutes shorter. Brandon runs the gifts team. He was nine minutes into a feature that was shipping on Thursday, and he had not noticed that I had stopped listening.
+We hold reviews standing, on the open floor. Since I took the chairs out in 2019, the reviews have run eleven minutes shorter. Brandon runs the gifts team. He was nine minutes into a feature that was shipping on Thursday and had not noticed that I had stopped listening.
 
 “Say the last part again,” I said.
 
 “You tell Remy once,” Brandon said. “Your mother's birthday, Mother's Day, Christmas. It picks the gift, writes the card and sends it, every year. You never miss one again.”
 
-He was proud of it, and he had reason to be.
+He was proud of it, with reason.
 
 “How was it tested?”
 
@@ -128,7 +128,7 @@ He was proud of it, and he had reason to be.
 
 “How old are the people who work here?”
 
-He looked at the woman beside him, and she looked at her laptop.
+He looked at the woman beside him, who looked at her laptop.
 
 “Thirty-one, on average,” she said.
 
@@ -148,7 +148,7 @@ I had not said that out loud to anyone who works for me. I said it at the volume
 
 Eleven people picked up their laptops and left the floor at close to a run.
 
-Brandon stayed where he was. He had worked on it for a year, and he was waiting to find out whether he still worked here. He was not going to ask.
+Brandon stayed where he was. Having worked on it for a year, he was waiting to find out whether he still worked here. He was not going to ask.
 
 “The work is right,” I told him. “The sample was wrong. Bring it back in two weeks.”
 
@@ -186,7 +186,7 @@ She calls me Calvin when I am wrong. I had not done anything yet.
 
 “I like to know what a thing costs before I need it.”
 
-Janice turned to Jo. She is a small woman, and she stands very straight. Jo stands the same way.
+Janice turned to Jo. She is a small woman who stands very straight. Jo stands the same way.
 
 “You corrected the card I wrote for him,” Janice said. “In pencil.”
 
@@ -220,13 +220,13 @@ Jo pointed the pencil at the cabinets.
 
 They were discussing me like a piece of furniture. I did not object.
 
-Janice looked at her for some time, and then she nodded. In seventeen years I have seen her give that nod to two lawyers and a caterer.
+Janice looked at her for some time before she nodded. In seventeen years I have seen her give that nod to two lawyers and a caterer.
 
 “Is there a card for me?” Jo said.
 
 “There are two. I had to start a second.”
 
-Jo laughed. I felt it under my sternum, where I had felt it at dinner. She turned to me, and she was still smiling, with the lines at the corners of her eyes that a billboard would have taken out. I had been waiting since Saturday to see them again.
+Jo laughed. I felt it under my sternum, where I had felt it at dinner. She turned to me still smiling, with the lines at the corners of her eyes that a billboard would have taken out. I had been waiting since Saturday to see them again.
 
 “Owen got through nine of his questions on Saturday,” she said. “He sent me with the other two.”
 
@@ -250,7 +250,7 @@ Jo laughed. I felt it under my sternum, where I had felt it at dinner. She turne
 
 She nodded, the way she nods when a count comes out right, and started to turn back to the cabinets.
 
-It was true, and it would have let me walk her to the elevator and keep Saturday. All I had to do was stop talking.
+It was true enough to let me walk her to the elevator and keep Saturday. All I had to do was stop talking.
 
 The line about the dog was Janice's. Jo had used it to answer her son. Owen checks what he is told.
 
@@ -310,9 +310,9 @@ She kept looking at me. I could see her do the subtraction. By the fifth of June
 
 “How?” she said.
 
-I ran it. I could have Janice stop, and Jo would get nothing on Saturday nights but four words with a number in them. I could write the long ones myself, and she would know by the second sentence. I could tell her that every fact in them was mine, and it was not going to help. Every version I ran came out the way the cruise had.
+I ran it. I could have Janice stop, which would leave Jo nothing on Saturday nights but four words with a number in them. If I wrote the long ones myself, she would know by the second sentence. I could tell her that every fact in them was mine. It was not going to help. Every version I ran came out the way the cruise had.
 
-I did not have an answer. She waited for one, and then she quit waiting.
+I did not have an answer. She waited for one, then quit waiting.
 
 Janice paused. It was the eighth time in seventeen years.
 
@@ -320,7 +320,7 @@ Janice paused. It was the eighth time in seventeen years.
 
 “I know what he told you,” Jo said. “I was there.”
 
-I had been there too, and then I had driven home and given all of it to Janice at 7:30, with times. I looked at the fourteen cabinets of my cards.
+I had been there too, right up until I drove home and gave all of it to Janice at 7:30, with times. I looked at the fourteen cabinets of my cards.
 
 Jo put the pencil behind her ear.
 
@@ -330,7 +330,7 @@ Jo put the pencil behind her ear.
 
 “Her name's Denise,” Jo said. “You have it.”
 
-She walked to the elevator, and I went with her. She did not tell me not to. She walks fast when she has decided something, and I had to lengthen my stride.
+When she walked to the elevator, I went with her. She did not tell me not to. She walks fast when she has decided something, so I had to lengthen my stride.
 
 She pushed the button herself.
 

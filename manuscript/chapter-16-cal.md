@@ -24,7 +24,7 @@ Her hair was down. I had seen it down once, in Los Gatos, for four hours. She ha
 
 “No.”
 
-The driver looked at me, and then at his phone. He had driven for my account long enough to know that a woman on a sidewalk with her arms folded was his problem and not mine.
+The driver checked me before he checked his phone. He had driven for my account long enough to know that a woman on a sidewalk with her arms folded was his problem and not mine.
 
 “Pickup for Jo Silveira, one-thirty,” he said. “It says the usual.”
 
@@ -98,7 +98,7 @@ When we were moving I took out my phone.
 
 “I will look later.”
 
-She looked over at me, and back at the road.
+She looked over at me and back at the road.
 
 “Look at what?”
 
@@ -152,7 +152,7 @@ On Thursday Vili had called the dresser on the Delgados' landing. I lifted when 
 
 ***
 
-At the top of 17 she took the exit for Summit Road and turned east along the ridge. The road ran under redwoods, with driveways going off into the trees. Jo put her window down, and the air that came in was ten degrees cooler than the valley and smelled of dust and bay leaves. The sun came down between the trunks in long bars. Her forearms on the wheel went from sun to shade and back.
+At the top of 17 she took the exit for Summit Road and turned east along the ridge. The road ran under redwoods, with driveways going off into the trees. When Jo put her window down, the air that came in was ten degrees cooler than the valley and smelled of dust and bay leaves. The sun came down between the trunks in long bars. Her forearms on the wheel went from sun to shade and back.
 
 There was an orchard on a slope beside the road, apple trees in rows with an old barn at the top. The apples on them were small and green. A table by the road had a box on it for money. Nobody was minding it.
 
@@ -172,7 +172,7 @@ I had not known she did that. I wanted to know what else she did when she drove 
 
 The winery was built like an Italian villa. There were white chairs in rows on its lawn for a wedding. A sign by the gate said members only, by reservation. A woman at the gate had a clipboard. She knew my name before I said it.
 
-“Mr. Brennan.” She looked at the clipboard, and then at me. “I don't have you down. I'm sure we can find you a seat.”
+“Mr. Brennan.” She looked at the clipboard, then at me. “I don't have you down. I'm sure we can find you a seat.”
 
 She would have put me at a stranger's wedding before she told me no.
 
@@ -340,7 +340,7 @@ I told her about those Saturdays. I drove up the ridge to Castle Rock alone and 
 
 I had not told anyone about those Saturdays. She answered with her own, looking out at the water. I had thought of her truck as where she worked. I wanted to ask what she drove it to get away from. I did not ask. She had told me as much as she meant to.
 
-On the way back down she turned off just past the store, up a dirt drive to an old farmhouse where the vines run uphill into the redwoods. There was a porch, and on the porch a plank across two barrels, and a woman of about eighty pouring behind it. A cat slept in a wine crate at her feet. The sun had come around to the west. From the porch I could see the veins in the leaves. Jo sat on the top step with her glass. I sat on the step below her. After a while she put her knee against my shoulder and left it there. The woman poured a red from those vines. I kept my shoulder where it was and did not hear a word about the wine. Jo paid.
+On the way back down she turned off just past the store, up a dirt drive to an old farmhouse where the vines run uphill into the redwoods. On the porch a plank lay across two barrels, with a woman of about eighty pouring behind it. A cat slept in a wine crate at her feet. The sun had come around to the west. From the porch I could see the veins in the leaves. Jo sat on the top step with her glass. I sat on the step below her. After a while she put her knee against my shoulder and left it there. The woman poured a red from those vines. I kept my shoulder where it was and did not hear a word about the wine. Jo paid.
 
 She had paid four times that afternoon, counting my driver. I had stopped reaching for my back pocket after the store. I owed her half a linguiça sandwich already. I tried to work out what the afternoon added to it. I could not get a number.
 

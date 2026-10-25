@@ -62,7 +62,7 @@ I stayed on anyway. So did he. Behind him somebody laughed. A glass went down on
 
 "It says sixty-one."
 
-My stomach went over the hill. It always does, with him. I stood in line with a box of pencils and tried to think what a man does for an hour at a table that gets him to ninety-four. Last August Stephanie stood in my office and told me the next thing he paid for would be a ring. I'd had a ring in my hand that afternoon, out of a dead woman's soap dish.
+His ears had gone red. They still do, with me. I stood in line with a box of pencils and tried to think what a man does for an hour at a table that gets him to ninety-four. Last August Stephanie stood in my office and told me the next thing he paid for would be a ring. I'd had a ring in my hand that afternoon, out of a dead woman's soap dish.
 
 "What are you buying?" he said.
 
@@ -118,7 +118,8 @@ It was his printing, in blue ink.
 
 ```
 JO SILVEIRA
-Silveira Moving & Estate, South S.F. Est. 1987.
+Silveira Moving & Estate
+South S.F. Est. 1987.
 Divorced. One son, 10.
 
 ASK: her.

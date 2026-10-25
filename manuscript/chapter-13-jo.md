@@ -16,7 +16,7 @@ After a while I took out my phone.
 
 There were thirty-two. I went through them the way I go through a closet, every one, out loud.
 
-*Thank you for today. You read three labels this morning that I would rather nobody had read, and you didn't look at me once.*
+*Thank you for today. At eight you read three labels I would rather nobody had read. You didn't look at me once.*
 
 “Hers,” I said.
 
@@ -38,17 +38,17 @@ The one about the dog I didn't read out loud. I had read it three times in my ki
 
 I said “Hers” anyway. I made myself.
 
-He had told me that nine were his. I counted nine. They were short, and every one had a number or a time in it, and not one of them was nice. I read the nine again.
+He had told me that nine were his. I counted nine. They were short, every one with a number or a time in it. Not one of them was nice. I read the nine again.
 
-At *Noted. That is five* I laughed out loud. I was as mad as I've been at anybody since the divorce, by myself in a parking garage, and I put my hand over my mouth like somebody might hear.
+At *Noted. That is five* I laughed out loud. I was as mad as I've been at anybody since the divorce, alone in a parking garage with my hand over my mouth like somebody might hear.
 
-A car came down the ramp from the level above me. It was going slow. It was gray, and its front fender was pushed in, and there was no headlight on that side. I knew that fender. I put it there.
+A car came down the ramp from the level above me. It was going slow. It was gray, with its front fender pushed in and no headlight on that side. I knew that fender. I put it there.
 
 I slid down in my seat.
 
-I am forty-four years old. I own three trucks, and I sign eleven paychecks, and I slid down behind my own steering wheel until I was looking at the bottom of the dash. I stayed there until I heard him go out past the gate arm.
+I am forty-four years old. I own three trucks and sign seven paychecks. I slid down behind my own steering wheel until I was looking at the bottom of the dash. I stayed there until I heard him go out past the gate arm.
 
-He didn't stop. He has walked me to that truck twice, and it has my father's name on the door. If he saw it, he was doing what I told him.
+He didn't stop, though he has walked me to that truck twice and it has my father's name on the door. If he saw it, he was doing what I told him.
 
 I sat back up. My hair had come out of its tie on the headrest.
 
@@ -100,7 +100,7 @@ I had bought a cushion because of one of those messages. I had read another one 
 
 “He said, ‘All right.’ In fifteen years I heard a man say that about four times.”
 
-I remembered it. He'd been on the sidewalk in suede shoes with his back to his mother's house, and he had said he wouldn't ask again, and then he hadn't. I had stood on that wet lawn wanting him to argue, so that I'd have something to push on.
+I remembered it. He'd been on the sidewalk in suede shoes with his back to his mother's house when he said he wouldn't ask again. He hadn't since. I had stood on that wet lawn wanting him to argue, so that I'd have something to push on.
 
 “That doesn't make the messages his,” I said.
 
@@ -136,7 +136,7 @@ Denise was down the office steps before I had the brake set.
 
 “HE didn't hit any.”
 
-I got down. My father was in his chair on the dock, on the cushion. Cal Brennan was beside him in the gray shirt with a stack of furniture pads, and he had folded every one of them square.
+I got down. My father was in his chair on the dock, on the cushion. Cal Brennan was beside him in the gray shirt with a stack of furniture pads, every one of them folded square.
 
 “What did he do?” Denise said.
 
@@ -172,7 +172,7 @@ I knew who told her. Janice had said so herself, upstairs. He'd been on this doc
 
 On the first night, the card he squared to the edge of the table said to ask about my father. It was in her writing, with the sevens crossed. He asked. I told him about the knees and the one line.
 
-He stood up when he saw me. He always does. He had his cuffs turned back and pad lint all down the front of the gray shirt, and there was a crease in his forehead I hadn't seen before. My stomach went over the hill anyway.
+He stood up when he saw me. He always does. He had his cuffs turned back, pad lint all down the front of the gray shirt, and a crease in his forehead I hadn't seen before. I wanted to pick the lint off him anyway.
 
 “I said Saturday,” I said.
 
@@ -186,13 +186,13 @@ He started to unfold the top one.
 
 “Leave it.”
 
-My father looked at the pads, and at Cal, and at me.
+My father looked at the pads, at Cal, at me.
 
 “Take the sixteen-footer,” he said. “It's got a door.”
 
 ***
 
-The sixteen-footer was in the yard with its ramp out. I walked Cal up it, and I pulled the door down behind us to knee height.
+The sixteen-footer was in the yard with its ramp out. I walked Cal up it and pulled the door down behind us to knee height.
 
 It was dim in there and it smelled like old pads and the rubber on the floor. The light came in under the door in a stripe, about as high as his shins. The straps hung on the rail behind him. He stood up straight in there with his hands at his sides, like a man waiting to be told where to go.
 
@@ -216,7 +216,7 @@ I took the clipboard off the hook and turned to a clean found sheet. My hands ne
 
 I got my phone out and started at the top.
 
-“‘Thank you for today. You read three labels this morning.’”
+“‘Thank you for today. At eight you read three labels.’”
 
 “It is Janice's,” he said.
 
@@ -236,7 +236,7 @@ I had told myself I'd read that one flat, like a packing slip. My voice went on 
 
 If he'd said it was his, I would have written it down. I wanted him to. I'd have put it in his column and never asked him again.
 
-I called out all thirty-two. He knew every one without looking at the screen, and he didn't claim one of hers. Not even the dog. I wrote 23 on the sheet and 9 under it, and I pressed hard enough that the numbers came through on the next two pages.
+I called out all thirty-two. He knew every one without looking at the screen and didn't claim one of hers. Not even the dog. I wrote 23 on the sheet and 9 under it, pressing hard enough that the numbers came through on the next two pages.
 
 “Janice hoped my boots were off,” I said. “Janice told me to get my father a cushion. I bought it.”
 
@@ -256,19 +256,19 @@ That was true. It was the worst thing he could have said. I had stood in that of
 
 He didn't answer that.
 
-I was scared, and he could see it.
+I was scared where he could see it.
 
-“What else was you?” I said. “Not her, and not your robot. You.”
+“What else was you?” I said. “Not her. Not your robot. You.”
 
 He took his time. He always does when it's a real question. I have watched him do it with a shrimp.
 
-“I stood in a line in San Jose for fourteen minutes and bought you the wrong sandwich,” he said. “I called your sister to ask what Vili eats. In Los Gatos I left the cue card in my car. I asked you before I sent for the taco truck, and I asked you before I kissed you.”
+“I stood in a line in San Jose for fourteen minutes and bought you the wrong sandwich,” he said. “I called your sister to ask what Vili eats. In Los Gatos I left the cue card in my car. I asked you before I sent for the taco truck. I asked you before I kissed you.”
 
 I was writing. When he got to that one, the pencil stopped. I could feel his hand on the side of my face in that parking lot. I made the pencil go again.
 
 “On Saturday I made my own lunch,” he said. “I wrote your son's name on my mother's door.”
 
-That was all. I had them down in the order he said them, and there were seven.
+That was all. I had seven, in the order he said them.
 
 “It's a short list,” I said.
 
@@ -282,11 +282,11 @@ I turned the clipboard around and held out the pencil.
 
 He came the four feet to take it. For the length of the signature he was close enough that I could smell the clean shirt and the pad lint and the coffee Denise had made him. He signed under the seven and gave me back the pencil.
 
-I did not step back. Neither did he. My heart was going, and I was not going to let it decide anything.
+I did not step back. Neither did he. My heart was going, but I was not going to let it decide anything.
 
 “One more,” I said. “Your list. Twelve lines. Who wrote it?”
 
-“Remy wrote it,” he said. “In April I asked it to read fourteen years of my history and describe the woman I would choose. It took nine seconds. I read the twelve lines, and I agreed with them.”
+“Remy wrote it,” he said. “In April I asked it to read fourteen years of my history and describe the woman I would choose. It took nine seconds. I read the twelve lines. I agreed with them.”
 
 “You asked your phone who to marry.”
 

@@ -2,9 +2,11 @@
 
 **Jo**
 
+~~10. Never married~~
+
 On Friday afternoon my father backed the sixteen-footer to the dock in one pass. Then he sat in the cab with the engine off.
 
-I was on the dock with the clipboard. The four o'clock wind was coming over the hill off the ocean, hard enough to lift the corners of the pads on the stack, and I had my boot on them.
+I was on the dock with the clipboard. The four o'clock wind was coming over the hill off the ocean, hard enough to lift the corners of the pads on the stack, so I had my boot on them.
 
 He got down sideways. He took the door in both hands and put his good leg down first. Then he brought the other one after it and stood on the asphalt holding the door until the knee would take him.
 
@@ -30,19 +32,19 @@ He looked at me. Then he looked at the white truck against the back fence with i
 
 He went to his chair by the office door, in the shade, and sat down. There wasn't any cushion on it.
 
-I didn't have it. Vili had the big truck in Daly City on Monday, and somebody had to run the small one back and forth to Foster City all day while the crew packed. I could pack or I could drive. My father knew that before I did. He'd be in at five-thirty. He'd have the keys off the board before I got my coffee.
+I didn't have it. With Vili on the big truck in Daly City Monday, somebody had to run the small one back and forth to Foster City all day while the crew packed. I could pack or I could drive. My father knew that before I did. He'd be in at five-thirty. He'd have the keys off the board before I got my coffee.
 
 ***
 
 Fridays I do the trucks myself. Mileage, fuel, tires, and whatever's rolling around loose in the cab. I climbed up into the sixteen-footer with the clipboard.
 
-His cushion was on the driver's seat. It was the one off his chair on the dock, the one I bought in May because of a message. He'd taken it off his chair and sat on it for three days of Burlingame and San Mateo and Pacifica, and it had gone flat in the middle.
+His cushion was on the driver's seat. It was the one off his chair on the dock, the one I bought in May because of a message. He'd taken it off his chair and sat on it for three days of Burlingame and San Mateo and Pacifica, until it went flat in the middle.
 
 His tide book was on the dash, open to the week. Down the margin, next to the tides, he'd written his loads in pencil. Wednesday, three. Thursday, two. Friday, two. He keeps the tides because he's a sailor. I don't know why he kept the loads. I've never seen him write down a load in my life.
 
 The fuel receipt was under the visor, where we both keep them. A hundred and ninety-one miles since Wednesday morning. Front tires fine. The big bottle of ibuprofen from his kitchen was in the door pocket with the cap off, half gone. I put the cap on it. I left it in the door.
 
-I wrote the mileage on the clipboard. I sat a minute in his seat, on his cushion, with my hands on the wheel at ten and two where his had been, and the wind rocked the truck on its springs. The cab smelled like his coffee and like the menthol rub he puts on his knees and says he doesn't. That was three days of my loads on his knees, so I wouldn't have to ask anybody for a driver. My throat was tight.
+I wrote the mileage on the clipboard. I sat a minute in his seat, on his cushion, with my hands on the wheel at ten and two where his had been, while the wind rocked the truck on its springs. The cab smelled like his coffee and like the menthol rub he puts on his knees and says he doesn't. That was three days of my loads on his knees, so I wouldn't have to ask anybody for a driver. My throat was tight.
 
 I took the cushion down, and the tide book. He saw me coming with them. He put his hands flat on the seat of the chair and lifted himself up off it so I could get the cushion under him. He sat back down and opened the tide book.
 
@@ -86,7 +88,7 @@ On Thursday Cal had said he loved me, twice. I hadn't said it back.
 
 Now I had a Saturday I hadn't asked for.
 
-In 2018 I moved a retired dentist from Pacifica to a cottage in Carmel with a name on it instead of a number. *Dolores 4 NE of 12th*. It took Vili three passes to find it. On the way out we went down Ocean Avenue to turn around, and at the bottom there was a beach with dogs all over it and nobody holding a leash. Forty dogs, easy. I stayed in the cab.
+In 2018 I moved a retired dentist from Pacifica to a cottage in Carmel with a name on it instead of a number. *Dolores 4 NE of 12th*. It took Vili three passes to find it. On the way out we went down Ocean Avenue to turn around. At the bottom there was a beach with dogs all over it and nobody holding a leash. Forty dogs, easy. I stayed in the cab.
 
 I typed it before I could think about it.
 
@@ -102,7 +104,7 @@ He answered before I'd put the phone down.
 
 ***
 
-On Saturday morning Cal was at his gate when he said he'd be, with the dog on the leash, a canvas bag at his feet and a fleece over his arm. He had his sleeves pushed up, and he looked like he'd been up since four. My stomach went over the hill. I sat in the cab with the engine running and let it.
+On Saturday morning Cal was at his gate when he said he'd be, with the dog on the leash, a canvas bag at his feet and a fleece over his arm. He had his sleeves pushed up. I sat in the cab with the engine running and let myself look at him.
 
 He lifted Pancake into my back seat with both arms under him and set him down on my seat covers. Then he got in next to me and put the bag between his feet.
 
@@ -116,7 +118,7 @@ He lifted Pancake into my back seat with both arms under him and set him down on
 
 He put it on the seat between us.
 
-We went over the hill on 84 and down through La Honda in the half dark under the redwoods, with my lights on. At San Gregorio the fog was sitting on the water and the road, and I turned south on 1. Nobody takes 1 on a job. On a job you take 101 and you're past Gilroy by eight. The dog put his chin on Cal's shoulder and kept it there.
+We went over the hill on 84 and down through La Honda in the half dark under the redwoods, with my lights on. At San Gregorio, with the fog sitting on the water and the road, I turned south on 1. Nobody takes 1 on a job. On a job you take 101 and you're past Gilroy by eight. The dog put his chin on Cal's shoulder and kept it there.
 
 He sat with his fleece on the seat between us and looked at the fog. Every time I opened my mouth he turned his whole head. All I talked about was the fog and how far it was to Santa Cruz.
 
@@ -128,15 +130,15 @@ I drove. Past Pescadero and Davenport, and through Santa Cruz before it was awak
 
 ***
 
-I parked in the lot at the bottom of Ocean Avenue, where everybody parks. On any job the first thing I find is the bathroom. This lot has one, and from the asphalt it's a straight shot down a slope of sand to the water. People stood at their tailgates with coffee. He had the fleece over his arm.
+I parked in the lot at the bottom of Ocean Avenue, where everybody parks. On any job the first thing I find is the bathroom. This lot has one. From the asphalt it's a straight shot down a slope of sand to the water. People stood at their tailgates with coffee. He had the fleece over his arm.
 
-The sand on the slope was white even with no sun on it. The fog was down on the water. The cypress on the bluff were black against it. Out past where the waves broke, surfers in black wetsuits sat on their boards waiting, and I could hear them talking to each other in the fog.
+The sand on the slope was white even with no sun on it. The fog was down on the water. The cypress on the bluff were black against it. Out past where the waves broke, surfers in black wetsuits sat on their boards waiting. I could hear them talking to each other in the fog.
 
 There were dogs everywhere, jumping down out of back seats all over the lot and coming out of the fog in twos, and nobody holding a leash. I counted ten. I stood at the top of the slope with my truck keys in my fist.
 
 Cal knelt and unclipped Pancake. “Go on,” he said.
 
-The dog went down the slope at a trot and straight into the water. A wave came in, and he ran from it up the sand with the wind blowing his ears inside out. When it went back out he went after it, barking. A spotted dog half his age came and ran it with him, and then a little white one that barked at both of them. The three of them went in and out with the waves over and over, and every few waves Pancake came back to Cal and leaned on his shins, soaking wet, and went again. He never got farther than the length of my sixteen-footer.
+The dog went down the slope at a trot and straight into the water. When a wave came in, he ran from it up the sand with the wind blowing his ears inside out. When it went back out he went after it, barking. A spotted dog half his age came and ran it with him, and then a little white one that barked at both of them. The three of them went in and out with the waves over and over. Every few waves Pancake came back to Cal and leaned on his shins, soaking wet, and went again. He never got farther than the length of my sixteen-footer.
 
 “He has not been on a beach since Abby was twelve,” Cal said.
 
@@ -146,9 +148,9 @@ He sat down in the sand and took off his shoes and socks and rolled his jeans. H
 
 “Each one is three inches.”
 
-I laughed out loud, and a woman with a poodle looked at us. His feet were as white as the sand. My face went hot over a man's feet.
+When I laughed out loud, a woman with a poodle looked at us. His feet were as white as the sand. My face went hot over a man's feet.
 
-We walked north along the wet sand with the dog running the waves beside us. The tide was low and coming in. I had my sneakers in my hand, and the water was cold enough to make my ankles ache. A loose V of pelicans came out of the fog, low over the water, and went back into it without one of them moving a wing. Past the surfers a seal had its head up, watching the dogs.
+We walked north along the wet sand with the dog running the waves beside us. The tide was low and coming in. I had my sneakers in my hand. The water was cold enough to make my ankles ache. A loose V of pelicans came out of the fog, low over the water, and went back into it without one of them moving a wing. Past the surfers a seal had its head up, watching the dogs.
 
 Cal stopped and bent down at the edge of the wet sand. He rinsed something in the next wave and held it out to me on his palm. It was a piece of glass about the size of my thumbnail, frosted on every side and blue all the way through.
 
@@ -164,9 +166,9 @@ I took it and put it in the front pocket of my jeans.
 
 A black dog about the size of a washer came out of the fog at a lope, straight at me.
 
-My leg knew before I did. The back of my left calf went tight where the stitches were, and I stopped walking. I couldn't have told you what my hands were doing.
+My leg knew before I did. The back of my left calf went tight where the stitches were. I stopped walking. I couldn't have told you what my hands were doing.
 
-Cal took one step and was on my left, between me and it, with his hands loose at his sides. The black dog put its nose in his palm and went around him to Pancake. Somebody up the beach whistled, and it ran off into the fog.
+Cal took one step and was on my left, between me and it, with his hands loose at his sides. The black dog put its nose in his palm and went around him to Pancake. When somebody up the beach whistled, it ran off into the fog.
 
 He stayed on my left after it was gone.
 
@@ -174,7 +176,7 @@ I was shaking a little. I took the fleece off his arm and put it on. It came dow
 
 ***
 
-At the north end the beach runs out under a bluff, and there was a driftwood log there as long as my truck. We sat on it. Pancake came back soaked and lay down in the sand against my left leg, on the scar, which is where he lies. I put my hand on his wet back.
+At the north end, where the beach runs out under a bluff, there was a driftwood log as long as my truck. We sat on it. Pancake came back soaked and lay down in the sand against my left leg, on the scar, which is where he lies. I put my hand on his wet back.
 
 “Kevin used to go quiet,” I said.
 
@@ -196,7 +198,7 @@ I watched the dog's ribs go up and down under my hand.
 
 I'd told Vili the rest of it once, in May, in the cab. I'd never told anybody about the hall. Cal let it sit there.
 
-I didn't tell him when it started. The first time Kevin went quiet, Owen was five weeks old. That winter he called me from every store he walked into. Did we need anything. I had the baby on one arm and the phone on the other, and I always had it handled. On a Tuesday in March he stopped talking. I've been looking for what I did ever since.
+I didn't tell him when it started. The first time Kevin went quiet, Owen was five weeks old. That winter he called me from every store he walked into. Did we need anything. I had the baby on one arm and the phone on the other. I always had it handled. On a Tuesday in March he stopped talking. I've been looking for what I did ever since.
 
 He took the card out of his shirt pocket. The corners had gone soft.
 
@@ -232,7 +234,7 @@ I gave it back. He put it in his pocket and kept his hand over the pocket.
 
 “What do you want?” he said.
 
-I had my hand in my pocket, on the glass. I opened my mouth, and what was in it was the house, paid off by fifty-five. Since Friday night that was December. What I wanted was twenty minutes ago, him on my left without being asked, and no piano after. I shut my mouth on both of them.
+I had my hand in my pocket, on the glass. When I opened my mouth, what was in it was the house, paid off by fifty-five. Since Friday night that was December. What I wanted was twenty minutes ago, him on my left without being asked, and no piano after. I shut my mouth on both of them.
 
 The dog sighed against my leg.
 
@@ -242,11 +244,11 @@ Somebody up there yelled. A golf ball came down off the bluff, hit the log a foo
 
 A man in a sweater stood at the edge of the grass with his hands on his hips, looking down at us.
 
-I held my hand out, and Cal gave me the ball. I threw it back up overhand, the way I throw a roll of tape to Vili on top of a load. It cleared the edge and landed on the grass a yard from him.
+When I held my hand out, Cal gave me the ball. I threw it back up overhand, the way I throw a roll of tape to Vili on top of a load. It cleared the edge and landed on the grass a yard from him.
 
 He looked at it. Then he lifted his hat to me.
 
-Cal looked up at the edge of the bluff, and then at my arm.
+Cal looked up at the edge of the bluff, then at my arm.
 
 “We'll walk Point Lobos on the way down and eat at Nepenthe after,” I said. “Neither one lets dogs in. Pancake's exhausted anyway.”
 
@@ -270,7 +272,7 @@ He held the dog's head in both hands while I wiped his face.
 
 ***
 
-I took us out the long way, down Scenic Road. It runs one way, south along the water, and every house on it is a three-truck house with a name on it instead of a number. Half of them had nobody home, with every blind down to the same height.
+I took us out the long way, down Scenic Road. It runs one way, south along the water. Every house on it is a three-truck house with a name on it instead of a number. Half of them had nobody home, with every blind down to the same height.
 
 Out on the point there was a house built of gray rocks off the beach, with a stone tower beside it, forty feet if it was an inch.
 
@@ -286,7 +288,7 @@ Point Lobos won't let a dog past the gate, not even shut up in a car. I'd looked
 
 Cal took a trail guide out of the box at the gate and read it walking.
 
-The trail out on the point runs between two wires on posts, and a sign says to stay inside them. Cal stayed inside them. Out there the cypress grow sideways off the rock, and every branch had orange on it, as bright as a safety vest.
+The trail out on the point runs between two wires on posts, with a sign that says to stay inside them. Cal stayed inside them. Out there the cypress grow sideways off the rock, every branch with orange on it as bright as a safety vest.
 
 “It is an alga,” Cal said, out of the guide. “The color is carotene. It is the same as in a carrot.”
 
@@ -296,7 +298,7 @@ The trail out on the point runs between two wires on posts, and a sign says to s
 
 Where the trail came out of the trees at the edge of the point, I stopped walking.
 
-The cove under us was the green of a beer bottle held up to the light, and so clear I could see the rocks on the bottom and the kelp standing up off them, leaning one way and then the other. Out past the cove the water went blue, and then a darker blue, all the way out to where the sky came down to it. A swell came in and hit the rocks under the point and went up white, higher than the trees, and I felt it in my feet before I heard it. In the kelp an otter lay on its back with its paws folded on its chest, asleep, going up and down.
+The cove under us was the green of a beer bottle held up to the light, and so clear I could see the rocks on the bottom and the kelp standing up off them, leaning one way and then the other. Out past the cove the water went blue, and then a darker blue, all the way out to where the sky came down to it. A swell came in and hit the rocks under the point and went up white, higher than the trees. I felt it in my feet before I heard it. In the kelp an otter lay on its back with its paws folded on its chest, asleep, going up and down.
 
 “A painter called this the greatest meeting of land and water in the world,” Cal said, out of the guide.
 
@@ -310,11 +312,11 @@ Cal looked at the rock a while. Then he laughed out loud on the trail.
 
 Where the trail goes back into the trees, it's one person wide. Cal went first. There wasn't anybody on it but us. All the way up the slope at the beach I'd wanted my hands on his back. I put them there, both of them, flat.
 
-He stopped. He didn't turn around. He reached back with one hand and held my wrist against him, and we stood there between the wires. I put my forehead between his shoulders. His shirt still smelled like the wet dog.
+He stopped. He didn't turn around. He reached back with one hand and held my wrist against him. We stood there between the wires. I put my forehead between his shoulders. His shirt still smelled like the wet dog.
 
-I waited for the piano. A family came around the bend behind us, and he let go of my wrist so they could get by.
+I waited for the piano. When a family came around the bend behind us, he let go of my wrist so they could get by.
 
-South of Point Lobos the road climbs out onto the side of the mountains and stays there. On my side the hills went up gold, grazed short, with cows standing on them at angles I wouldn't park a truck at. On Cal's side there was nothing but air, and a long way down, the water. It was green over sand and dark over kelp, and every cove had a white edge where it broke. The fog had gone back out and sat on the ocean a few miles off, flat and white. Cal had his window down and his arm out in the wind.
+South of Point Lobos the road climbs out onto the side of the mountains and stays there. On my side the hills went up gold, grazed short, with cows standing on them at angles I wouldn't park a truck at. On Cal's side there was nothing but air, and a long way down, the water. It was green over sand and dark over kelp, with a white edge on every cove where it broke. The fog had gone back out and sat on the ocean a few miles off, flat and white. Cal had his window down and his arm out in the wind.
 
 I'd lived three hours north of this my whole life. I'd never driven it.
 
@@ -322,17 +324,17 @@ At Bixby Creek the road crosses the canyon on one gray arch, from one side to th
 
 “It is two hundred and sixty feet down to the creek,” Cal said.
 
-I walked out to the edge. The arch went across in one piece, so thin from the side it didn't look like it could hold up the road. Under it the creek came out of the canyon and crossed a little gray beach into the ocean, and the water there was the color of a swimming pool, going white on the sand. South of the bridge the coast went on, one headland behind another, each one bluer than the one in front of it, until the last one was the same color as the sky.
+I walked out to the edge. The arch went across in one piece, so thin from the side it didn't look like it could hold up the road. Under it the creek came out of the canyon and crossed a little gray beach into the ocean, where the water was the color of a swimming pool, going white on the sand. South of the bridge the coast went on, one headland behind another, each one bluer than the one in front of it, until the last one was the same color as the sky.
 
 Every load I'd ever run south on 101, this was over the hill on my right the whole time.
 
 Cal was on my left. I hadn't seen him get there.
 
-Past the bridge the road climbs to a point where the wind came across so hard it rocked the truck on its springs, and Cal brought his arm in. The lighthouse at Point Sur went by on top of its own rock, white, out in the water. Down in the Big Sur valley the road went into the redwoods along the river, cold and dark after all that light, and came up out of them into the sun.
+Past the bridge the road climbs to a point where the wind came across so hard it rocked the truck on its springs. Cal brought his arm in. The lighthouse at Point Sur went by on top of its own rock, white, out in the water. Down in the Big Sur valley the road went into the redwoods along the river, cold and dark after all that light, and came up out of them into the sun.
 
-At Nepenthe I parked in the shade at the edge of the lot. Cal rolled all four windows down and put his hand flat on the back seat and then on the dash, and filled the dog's water, and Pancake lay down on my seat covers and looked at us.
+At Nepenthe I parked in the shade at the edge of the lot. Cal rolled all four windows down, put his hand flat on the back seat and then on the dash, and filled the dog's water. Pancake lay down on my seat covers and looked at us.
 
-The terrace hangs eight hundred feet over the water. I went to the rail before I went to the stand. The mountains come straight down into the ocean there, one ridge behind another, going south as far as I could see, each one a little bluer than the last, and the water at the bottom was so far down the waves broke white without making any sound. I've stood on a lot of decks in Hillsborough that thought they had a view.
+The terrace hangs eight hundred feet over the water. I went to the rail before I went to the stand. The mountains come straight down into the ocean there, one ridge behind another, going south as far as I could see, each one a little bluer than the last. The water at the bottom was so far down the waves broke white without making any sound. I've stood on a lot of decks in Hillsborough that thought they had a view.
 
 The girl at the stand said forty minutes. We sat on the built-in benches by the fire pit with the sun on us. Twelve minutes in, he went down to the truck. He came back up.
 
@@ -354,7 +356,7 @@ The last picture anybody took of us had cost me forty-eight sixty and a Saturday
 
 The man put his phone away. When I sat back down, Cal took his hand off his knee and put it flat on my back, between my shoulders, and left it there. My shoulders came down an inch.
 
-We didn't get a table on the edge till after two. I'd had coffee at five and nothing since, and we'd walked the beach and the point. Cal had been looking at the burgers at the next table since we sat down. I read the menu from the right-hand side.
+We didn't get a table on the edge till after two. I'd walked the beach and the point on coffee at five and nothing since. Cal had been looking at the burgers at the next table since we sat down. I read the menu from the right-hand side.
 
 On Thursday I'd bought him a burger with Wagyu in it. That was before Hillsborough.
 
@@ -392,7 +394,7 @@ He paid for the cake. I paid for the rest, five twenties, and didn't wait for th
 
 “Thank you,” he said. He'd had his phone out under the edge of the table while I paid. He put it in his shirt pocket, behind the card.
 
-“There is a hotel back up the road that takes dogs,” he said. “It is three hours home, and you have been driving since before six.”
+“There is a hotel back up the road that takes dogs,” he said. “It is three hours home. You have been driving since before six.”
 
 I knew the place. I'd moved two couples who went there every anniversary. A night up there was most of Hillsborough.
 
@@ -418,7 +420,7 @@ He took his phone back out. “I am having clothes sent down from Carmel. May I 
 
 The hotel is up a long drive off the highway, higher than Nepenthe. A boy in a vest held his hand out for my keys. I gave him the keys and told him the truck's seven foot ten with the rack.
 
-At the desk Cal gave them his card for the room, and I gave them mine for the dog. The girl ran them both.
+At the desk Cal gave them his card for the room. I gave them mine for the dog. The girl ran them both.
 
 The room had wood walls, top to bottom, and a king bed I'd have put four men on. There was a dog bed by the fireplace with a bowl next to it. Pancake looked at the bed and lay down across the door.
 
@@ -430,7 +432,7 @@ That evening the boy in the vest knocked with two shopping bags from a store in 
 
 We ate our dinner on the terrace with the dog under the table. Dinner came with the room. I'd said yes to the room.
 
-While we ate, the fog came back in off the ocean underneath us. It filled the canyons first and then everything below the hotel, until there was no road and no Nepenthe and no ocean, only white, flat, all the way out, with the tops of the ridges standing up out of it. The sun went down into it orange. The white went pink, and then gray, and then the stars came out over it, more of them than I knew there were.
+While we ate, the fog came back in off the ocean underneath us. It filled the canyons first and then everything below the hotel, until there was no road and no Nepenthe and no ocean, only white, flat, all the way out, with the tops of the ridges standing up out of it. The sun went down into it orange. The white went pink, then gray, until the stars came out over it, more of them than I knew there were.
 
 Cal had his hand on the table. I put mine on top of it, in front of everybody. He turned his hand over and held on. He looked at me and waited. I passed him the bread.
 
@@ -456,7 +458,7 @@ I shut my mouth against his shoulder and kept my hand where it was until he was 
 
 In the morning the menu on the desk had no prices on it. Breakfast came with the room. I didn't know which side to read it from.
 
-It came on a cart, and the waiter set it out on our deck with the coffee in a pot and the orange juice with pulp on the side of the glass. We ate it in the hotel's robes. They were as thick as a moving pad. Below the deck the fog was still down in the canyons, white and flat, with the ridges standing up out of it in the sun. Past the last ridge the ocean had started to come out blue. Something in the oaks under us sang the same three notes over and over. Pancake had eaten out of the new bag at seven, and he lay on my bare feet.
+It came on a cart. The waiter set it out on our deck with the coffee in a pot and the orange juice with pulp on the side of the glass. We ate it in the hotel's robes. They were as thick as a moving pad. Below the deck the fog was still down in the canyons, white and flat, with the ridges standing up out of it in the sun. Past the last ridge the ocean had started to come out blue. Something in the oaks under us sang the same three notes over and over. Pancake had eaten out of the new bag at seven and lay on my bare feet.
 
 I had eggs and bacon, and the lox on a bagel because it was there, and a warm roll out of a basket under a napkin. Cal had the same as me. Under the table he gave the dog one piece of his bacon and looked up to see if I'd seen.
 

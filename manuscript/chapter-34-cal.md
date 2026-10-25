@@ -2,13 +2,15 @@
 
 **Cal**
 
+~~9. Good family~~
+
 At 4:52 on Saturday morning I put two links of linguiça in a pan in my kitchen in Woodside and stood over them with a fork.
 
 I had bought them on Thursday, in a grocery store in Redwood City, in a package of five. I had stood in front of the case for six minutes. There were four brands. I chose the one with a Portuguese name on it and a town in California under the name, because Jo's father would have had an opinion about the others and I did not want to hear it. The sweet rolls were in a bag of six on the shelf above. I had carried the package and the bag to the register myself.
 
 Pancake lay on the kitchen floor with his head tilted to the left. Dr. Ramos had said he might keep a little of it. He watched the pan with one eye higher than the other.
 
-The linguiça split at 4:58. The package said it would. I cut it lengthwise and put it back face down. When the edges went dark I took it out and put an egg in the fat. The yolk broke when I turned it. I did not make another. I put the egg on the bottom half of the roll and the linguiça on top of the egg, and the top half of the roll on that, and I wrapped it in foil and folded the ends twice.
+The linguiça split at 4:58. The package said it would. I cut it lengthwise and put it back face down. When the edges went dark I took it out and put an egg in the fat. The yolk broke when I turned it. I did not make another. I put the egg on the bottom half of the roll, the linguiça on top of the egg and the top half of the roll on that. I wrapped it in foil and folded the ends twice.
 
 It was a sandwich. It had taken twenty-two minutes and I was sweating.
 
@@ -26,11 +28,11 @@ It had been ten days since Jo had said anything to me about the wire. She had no
 
 The sixteen-footer came around the corner from Bernardo at 6:56 with Vili driving and Manny beside him, and her pickup behind it. Vili backed the truck into the driveway in one pass and stopped it straight in line with the garage door instead of the front walk. I did not know what it meant.
 
-Jo got out of her pickup, and she did not go to the truck. She crossed the street to me.
+Jo got out of her pickup and did not go to the truck. She crossed the street to me.
 
 I have watched people walk into rooms to tell me things for eighteen years. A person who has decided something walks faster for the first few steps than she does for the rest. Jo came off the curb fast and slowed in the middle of the street. By the time she got to my side of it she was walking as she walks onto a job.
 
-She had her hair back. There was a thin chain at her neck, the one I had seen at the hospital, and it went down inside her T-shirt. She had the clipboard against her hip.
+She had her hair back. There was a thin chain at her neck, the one I had seen at the hospital, going down inside her T-shirt. She had the clipboard against her hip.
 
 “Morning,” she said.
 
@@ -44,15 +46,15 @@ Last Saturday, in that house, she had spoken only to Vili.
 
 “You said.” She looked at me a second longer than the sentence needed. “Seven to eleven, like it says. Then we'll see.”
 
-She went across the street and up the walk without waiting for me, and I followed her. I wanted to put my hand on the back of her neck, under the chain, where her hair was coming loose already. I kept my hands at my sides.
+She went across the street and up the walk without waiting for me. I followed her. I wanted to put my hand on the back of her neck, under the chain, where her hair was coming loose already. I kept my hands at my sides.
 
 ***
 
-She ran it from the middle of the floor. She did not route a single call through Vili. She called the item and looked at me and waited, and I said green or blue to her face, and she said it back and wrote it down. The coffee maker: blue. The mixing bowls, nested by size, left of the stove, second shelf: green. The kitchen table, where my mother read my report cards: green. I had not decided that one until I heard myself say it.
+She ran it from the middle of the floor. She did not route a single call through Vili. She called the item and looked at me and waited. I said green or blue to her face. She said it back and wrote it down. The coffee maker: blue. The mixing bowls, nested by size, left of the stove, second shelf: green. The kitchen table, where my mother read my report cards: green. I had not decided that one until I heard myself say it.
 
-The table under the globe lamp in the front room had sat with no tape on it since June 6. She did not call it. She did not look at it. At 9:20 I went in and put green tape on it myself, and when I came back she had already written it down.
+The table under the globe lamp in the front room had sat with no tape on it since June 6. She did not call it. She did not look at it. At 9:20 I went in and put green tape on it myself. When I came back she had already written it down.
 
-The yellow telephone stayed on the wall. She did not call it, and I did not.
+The yellow telephone stayed on the wall. She did not call it. Neither did I.
 
 By 10:40 the kitchen was cupboards with the doors open and nothing on the shelves. Manny wiped them down without being asked. Vili took the kitchen table out to the truck on his shoulder, alone, with a pad on it, and came back for the chairs, and then for the table under the globe lamp.
 
@@ -66,15 +68,15 @@ She took her bag out to the atrium. Vili and Manny went out to the truck, where 
 
 I took the foil out of the kitchen and went out and sat down on the other end of the bench.
 
-It is a short bench. That morning there were about eighteen inches between us, and her bag was in them.
+It is a short bench. That morning there were about eighteen inches between us, with her bag in them.
 
 I unfolded the foil. The sandwich was flatter than it had been at five. The roll had soaked up some of the egg. I tore it in half. It came apart worse than hers had in May. I held one half out across the bench.
 
 She looked at it.
 
-She looked at it for long enough that I started to bring my hand back. Then she took it. She took it with her right hand, and her fingers touched mine, and I did not move until she had it.
+She looked at it for long enough that I started to bring my hand back. Then she took it. She took it with her right hand. Her fingers touched mine. I did not move until she had it.
 
-She ate it before she opened her own bag. She ate it in four bites, looking at the maple, and I ate mine and did not taste it. At the third bite she stopped and looked at the inside of it.
+She ate it before she opened her own bag. She ate it in four bites, looking at the maple. I ate mine and did not taste it. At the third bite she stopped and looked at the inside of it.
 
 “You broke the yolk,” she said.
 
@@ -92,11 +94,11 @@ At 1:35 in the afternoon the rest of the green was in the truck: both tables and
 
 “Walk-through,” Jo said, and went into the house by herself.
 
-Last Saturday she had gone into the house by herself at the end and stayed nine minutes. I had not known what she did in there. I stood in the atrium where she had left me, and I watched her through the glass.
+Last Saturday she had gone into the house by herself at the end and stayed nine minutes. I had not known what she did in there. I stood in the atrium where she had left me and watched her through the glass.
 
 I watched her go into the front room, where the three boxes were still on the hearth. She went into my mother's bedroom, and into mine, and into the hall bathroom, which had no door now. She opened every closet. She opened the oven. She ran her hand along the top of the refrigerator nook where the refrigerator had been.
 
-In every room she stood in the middle of the floor for a while after she had opened everything. It was longer than the job took. The job took seconds. She stood in the middle of my old bedroom for a minute and forty seconds, with the clipboard against her leg and her face toward the window, and she did not write anything down. I had watched her for three months, and I could tell when she was looking for something. She was not looking for anything.
+In every room she stood in the middle of the floor for a while after she had opened everything. It was longer than the job took. The job took seconds. She stood in the middle of my old bedroom for a minute and forty seconds, with the clipboard against her leg and her face toward the window, without writing anything down. After three months of watching her, I could tell when she was looking for something. She was not looking for anything.
 
 Then she went into the kitchen, last, and crossed it to the door in the corner by the back door. It is the door to the garage. She tried the knob.
 
@@ -110,11 +112,11 @@ She came out to the atrium. Vili was in the front doorway.
 
 “I do not have a key to it.”
 
-Vili had already gone to the truck. He came back with a hammer and a thin steel punch, and he went through the kitchen to the garage door and looked at the hinges.
+Vili had already gone to the truck. He came back with a hammer and a thin steel punch and went through the kitchen to the garage door to look at the hinges.
 
 “Pins are on this side,” he said. “I can have it off in two minutes, boss.”
 
-I put my hand in my pocket for my phone. There is a locksmith on El Camino who would have been there in forty minutes, and Remy would have had him there in twenty. I had my thumb on the screen.
+I put my hand in my pocket for my phone. There is a locksmith on El Camino who would have been there in forty minutes. Remy would have had him there in twenty. I had my thumb on the screen.
 
 Then my thumb was on the other thing in my pocket.
 
@@ -136,7 +138,7 @@ The garage smelled like concrete and lemon furniture polish. The water heater st
 
 Against the back wall, under three moving pads, there was something about five feet long and three and a half feet high.
 
-Jo came in and stood beside me. She put her hand flat on the top pad and pressed, and something under it did not give.
+Jo came in and stood beside me. She put her hand flat on the top pad and pressed. Something under it did not give.
 
 “Those aren't mine,” she said. “Somebody who knew what they were doing put this here. Look how it's set.” She put her hand on the side nearest the wall. “Face to the wall. You do that so if anything hits it, it hits the back.”
 
@@ -162,15 +164,15 @@ She and Vili walked it out from the wall on its legs. Then she got down on her k
 
 “Clean,” she said. She put the panel back and stood up. “Vili. Big door.”
 
-Vili went to the big door and unlatched it and ran it up, and the afternoon came into my mother's garage all at once, white and hot, with the ramp lying on the driveway at the end of it and the truck backed up to the edge of the light.
+When Vili unlatched the big door and ran it up, the afternoon came into my mother's garage all at once, white and hot, with the ramp lying on the driveway at the end of it and the truck backed up to the edge of the light.
 
 Jo lifted the seat of the bench.
 
-Pianists keep music in a bench. I knew that the way I know most things, from a page. There was music in this one. There were three books on top, thin ones with paper covers, and the top one said JOHN THOMPSON'S EASIEST PIANO COURSE, PART ONE. Under the title, in blue ballpoint, in capitals, in the hand that had written ABBY on a bathroom door twelve times, it said *ABBY.*
+Pianists keep music in a bench. I knew that the way I know most things, from a page. There was music in this one. There were three books on top, thin ones with paper covers. The top one said JOHN THOMPSON'S EASIEST PIANO COURSE, PART ONE. Under the title, in blue ballpoint, in capitals, in the hand that had written ABBY on a bathroom door twelve times, it said *ABBY.*
 
 Under the books there was a spiral notebook, the narrow kind that fits in a purse.
 
-Jo took the books out and handed them to me and did not open them. She took the notebook out and looked at the cover, and she handed that to me too.
+Jo took the books out and handed them to me and did not open them. She took the notebook out, looked at the cover and handed that to me too.
 
 On the first page my mother had written PIANO and a number. *$1,800.* Under it there were lines, ruled by hand with the edge of something straight. Each line had a month and a year and *$100* and a check mark in her pen.
 
@@ -180,7 +182,9 @@ I read it twice.
 
 In September 2012, the month before I paid off her house, she had bought a piano for my daughter on payments. Abby was four. My mother had paid a hundred dollars a month for eighteen months and checked off every one. The last line said *Feb. 2014.* Under it, in her capitals: *PAID.*
 
-Abby had come every summer until she was fourteen. She had sat at this bench with her book open on the stand, and she had never told me.
+Abby had come every summer until she was fourteen. She had sat at this bench with her book open on the stand. She had never told me.
+
+Everybody hides things.
 
 I did not know whether she could play. I did not know whether she still could.
 
@@ -192,7 +196,7 @@ I lifted the keyboard lid and pressed one key, in the middle. It was flat. I pre
 
 “Green,” I said.
 
-She did not write it down. She did not take the pencil from behind her ear. She looked at me, and then at the piano, and then she turned around to Vili and Manny in the light.
+She did not write it down. She did not take the pencil from behind her ear. She looked at me, then at the piano, before she turned around to Vili and Manny in the light.
 
 It had not been on her estimate. On any other job she would have had the paper out of the truck before I finished the word.
 
@@ -202,9 +206,9 @@ It had not been on her estimate. On any other job she would have had the paper o
 
 “You're low,” she said. “With Vili.”
 
-Vili looked at her. He had been on the low end of everything I had watched him carry for three months. He looked at me, and then he went and got the dolly.
+Vili looked at her. He had been on the low end of everything I had watched him carry for three months. He looked at me before he went and got the dolly.
 
-They padded it. I helped where she pointed. They tipped it onto the dolly on its feet, slowly, Vili's hands under one end and Manny's under the other and Jo's flat against the face of it, guiding, and when it was on, Jo ran the two straps around it and cinched them. She did not look at her hands. Then she and Manny rolled it across the concrete, one at each end, with a hand flat on the top.
+They padded it. I helped where she pointed. They tipped it onto the dolly on its feet, slowly, Vili's hands under one end and Manny's under the other and Jo's flat against the face of it, guiding. When it was on, Jo ran the two straps around it and cinched them. She did not look at her hands. Then she and Manny rolled it across the concrete, one at each end, with a hand flat on the top.
 
 At the foot of the ramp she stopped it.
 
@@ -226,7 +230,7 @@ Nobody moved on two.
 
 “Three.”
 
-It came up off the driveway and onto the ramp, and the weight came down the ramp into my hands and my thighs, and I took it. It was more than I thought. I held it. Vili held it. Above us Jo and Manny had their hands flat on the top of it and were walking backward.
+It came up off the driveway and onto the ramp. The weight came down the ramp into my hands and my thighs. I took it. It was more than I thought. I held it. Vili held it. Above us Jo and Manny had their hands flat on the top of it and were walking backward.
 
 “Small steps,” I said. “Step.”
 
@@ -234,7 +238,7 @@ We stepped.
 
 “Step.”
 
-I called every step of it. There were eleven. I did not look at my feet. I looked at her. At the top she got it over the lip and into the box of the truck and rolled it to the wall with Manny, face to the wall, and they took it off the dolly and belted it to the rail twice and then a third time.
+I called every step of it. There were eleven. I did not look at my feet. I looked at her. At the top she got it over the lip and into the box of the truck and rolled it to the wall with Manny, face to the wall. They took it off the dolly and belted it to the rail twice and then a third time.
 
 I stood at the bottom of the ramp with my hands open. My arms were shaking. I could hear my pulse in my ears.
 
@@ -262,7 +266,7 @@ He went down the driveway and got in the cab. Manny was already asleep against t
 
 When I went back in she was in the front room.
 
-Nothing was left in it but the paneling and the globe lamp, hanging over a square of carpet darker than the rest, where the table had been since 1960. The sliders were open to the atrium, and the hot air came through them and did not move.
+Nothing was left in it but the paneling and the globe lamp, hanging over a square of carpet darker than the rest, where the table had been since 1960. The sliders were open to the atrium. The hot air came through them and did not move.
 
 She stood in the middle of the floor the way she had stood in every room. She had the clipboard against her leg.
 
@@ -276,7 +280,7 @@ Under my palm, under the cotton, there was something small and hard on the chain
 
 She held my hand there.
 
-Her heart was going hard. It was going harder than mine had been on the rock. I could feel it in the heel of my hand, fast and uneven. On the rock off Skyline she had told me to say it again when my heart was not going like that, and I had walked half a mile and said it across her hood.
+Her heart was going hard. It was going harder than mine had been on the rock. I could feel it in the heel of my hand, fast and uneven. On the rock off Skyline she had told me to say it again when my heart was not going like that. I had walked half a mile and said it across her hood.
 
 She did not wait for hers.
 
@@ -296,7 +300,7 @@ She kept my hand where it was. I left it there. I could feel the thing on the ch
 
 “I know. I read your letter.” She took a breath. “Three times.”
 
-Then she let go of my hand. I took it back slowly. She stepped back, one step, to where she could see my whole face, and her face went red from the collar up.
+Then she let go of my hand. I took it back slowly. She stepped back, one step, to where she could see my whole face. Her face went red from the collar up.
 
 “You didn't ask me,” she said.
 
@@ -316,7 +320,7 @@ Then she let go of my hand. I took it back slowly. She stepped back, one step, t
 
 “Denise was bringing a sheet cake.” Her mouth went tight. “It was mine. I'd have had it on my own.”
 
-I had a sentence ready. I had had it since August 12. *If I had asked you, you would have said no.* It was true. It was the whole of my case, and I had been making it to myself in the car for ten days.
+I had a sentence ready. I had had it since August 12. *If I had asked you, you would have said no.* It was true. It was the whole of my case. I had been making it to myself in the car for ten days.
 
 She said it before I could.
 
@@ -438,7 +442,7 @@ I thought of line seven. *Comfortable being looked after.*
 
 “Yes.”
 
-I would have signed it on the hood of her truck. It would have let me give her the house and let her give it back to me, a little at a time, and nobody's name would have been on the bottom of anything.
+I would have signed it on the hood of her truck. It would have let me give her the house and let her give it back to me, a little at a time, with nobody's name on the bottom of anything.
 
 “I tore it off the pad,” she said. “It's in my purse. I'm not giving it to you.”
 
@@ -462,7 +466,7 @@ I stood over her. She looked up at me.
 
 I lay down beside her, with my head by her head and my feet going the other way. There was nothing on my other side. Pancake was on my kitchen floor in Woodside with his head tipped over against Rita's knee.
 
-A plane went over, and the glass in the sliders hummed with it and stopped. Her breathing slowed.
+When a plane went over, the glass in the sliders hummed with it and stopped. Her breathing slowed.
 
 After a while her hand found mine on the carpet between us.
 
@@ -478,7 +482,7 @@ I knelt on the hearth. The top one was the Mother's Day box. It had gone out in 
 
 I opened it myself. I cut the tape with the key on the red yarn.
 
-Inside was a smaller box in good paper, and inside that was something white and smooth, about the size of a loaf of bread, with one round button on the top and a cord wrapped under it.
+Inside was a smaller box in good paper. Inside that was something white and smooth, about the size of a loaf of bread, with one round button on the top and a cord wrapped under it.
 
 I turned it over. I did not know what it was. Someone good at it had chosen it.
 
@@ -568,7 +572,7 @@ She sat back down.
 
 “Can I see the card?” she said.
 
-I gave it to her. The corners had gone soft. She turned it over to the back, where eight of my lines were in her capitals with a line through each one. She took the pencil from behind her ear and wrote *GOOD FAMILY* under ten, and drew the line through it.
+I gave it to her. The corners had gone soft. She turned it over to the back, where eight of my lines were in her capitals with a line through each one. She took the pencil from behind her ear and wrote *GOOD FAMILY* under ten and drew the line through it.
 
 She held on to the card.
 
@@ -600,7 +604,7 @@ Jo turned the card over in her hands.
 
 “I do not know. She never said. And I never asked her.”
 
-Jo looked at the back of the card. There were nine lines on it now, in her capitals, struck. Twelve was not one of them. She put the card back in my shirt pocket herself and pushed it down with two fingers, and she left her hand there on my chest and pressed once.
+Jo looked at the back of the card. There were nine lines on it now, in her capitals, struck. Twelve was not one of them. She put the card back in my shirt pocket herself and pushed it down with two fingers. She left her hand there on my chest and pressed once.
 
 ***
 
@@ -612,7 +616,7 @@ On the walk she stopped.
 
 “Walk me to my truck,” Jo said.
 
-I walked her to her truck. It was forty feet. Her father's name was on the door. She opened it and put the clipboard on the seat face up, and I read it upside down, because I cannot help it.
+I walked her to her truck. It was forty feet. Her father's name was on the door. She opened it and put the clipboard on the seat face up. I read it upside down, because I cannot help it.
 
 Under *GARAGE. LOCKED. OWNER SAYS EMPTY.* she had written in pencil that afternoon: *1 PIANO. OWNER CALLED IT.*
 

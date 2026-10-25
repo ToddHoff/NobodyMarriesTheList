@@ -2,9 +2,11 @@
 
 **Cal**
 
+~~6. Private. No social media~~
+
 Nineteen messages had gone to Jo Silveira in my name. On Friday night I read eighteen of them for the first time.
 
-On Wednesday, at 9:14 in the evening, Jo had quoted one to me across a table, and I had told her I noticed it recently. It was the one lie I had told her, and I had until seven on Saturday to make it true.
+When Jo quoted one to me across a table on Wednesday, at 9:14 in the evening, I told her I had noticed it recently. It was the one lie I had told her. I had until seven on Saturday to make it true.
 
 *Please tell Denise I have never been announced from a window before, and that I didn't mind it.*
 
@@ -14,7 +16,7 @@ I had not asked the sister her name. I had called her the sister in my head sinc
 
 *You know a house is empty when it starts answering your footsteps.*
 
-That was the one Jo had read to Vili. I had walked through my mother's house on three Saturdays, and I had not heard it answer anything.
+That was the one Jo had read to Vili. In three Saturdays of walking through my mother's house, I had not heard it answer anything.
 
 I read all eighteen at my kitchen counter with Pancake asleep across my feet. They were warm and exact. Under some of them were her answers, short, the first one *Next Saturday bring a lunch.* I read her answers more times than I read the messages.
 
@@ -40,7 +42,7 @@ Janice paused. It was the seventh time in seventeen years.
 
 I knew Janice was from Fresno. I had not known about the house. She had given that line to Jo with my name under it. In seventeen years I had not asked her where any of it came from.
 
-There was no message for Wednesday. Janice writes from what I tell her, and on Wednesday night I had not called her. On Thursday I called and told her about the dinner, as far as the taco truck. I did not tell her about the kiss.
+There was no message for Wednesday. Janice writes from what I tell her. On Wednesday night I had not called her. On Thursday I called and told her about the dinner, as far as the taco truck. I did not tell her about the kiss.
 
 If I had told Janice about the kiss, it would have gone to Jo that night at 9:14, in my name. It would have been better than anything I could say about it. I did not want to read it.
 
@@ -54,17 +56,17 @@ I put Pancake in the back yard and stood at the curb, where I could see down Rem
 
 I had kissed her fifty-seven hours earlier. I can give you the place, and what she had made me eat first. Since Wednesday I had gone back over it in four meetings and in the car. Mostly I went back over her hand flat on my chest, and that she had to tell me to come down.
 
-I had nothing prepared for seven o'clock on a Saturday in front of two men she pays. I had tried. On the walk with Pancake at five I had made up three things to say to her, and each of them sounded like Janice.
+I had nothing prepared for seven o'clock on a Saturday in front of two men she pays. I had tried. On the walk with Pancake at five I had made up three things to say to her, each of which sounded like Janice.
 
 I did not wait inside. I wanted to be the first thing Jo saw when she turned onto Remington.
 
 Her truck turned onto Remington at 6:59.
 
-She takes it past the driveway and backs it in. I had watched her do it on three Saturdays, and it took her one pass each time. My car was at the curb beside the driveway, where it had been on all three. It is the car I have owned for three years and hardly driven.
+She takes it past the driveway and backs it in. I had watched her do it on three Saturdays, one pass each time. My car was at the curb beside the driveway, where it had been on all three. It is the car I have owned for three years and hardly driven.
 
-This time I could see her face in the side mirror, and she was looking at me. Her hair was tied back and the pencil was behind her ear. She smiled. My watch tapped.
+This time I could see her face in the side mirror, looking at me. Her hair was tied back and the pencil was behind her ear. She smiled. My watch tapped.
 
-The truck kept coming. The back corner of it went into the front of my car, with more noise than I would have predicted, and the truck stopped all at once. In the mirror her head went back against the seat.
+The truck kept coming. The back corner of it went into the front of my car with more noise than I would have predicted. The truck stopped all at once. In the mirror her head went back against the seat.
 
 I went to the cab. I was there before I had decided to move. She had the door open and one boot on the step.
 
@@ -99,7 +101,7 @@ Nothing for you to do. Approve?
 
 I did not answer it. Jo was standing in front of me with her arms crossed. She was waiting for what I would say about the car.
 
-I could see the rest of it in how she stood. She was ready to be given a number and to write it down, and she was braced to hear what it would cost her. She had hit my car because she was looking at me in her mirror and smiling. I was not going to put a number on that.
+I could see the rest of it in how she stood. She was ready to be given a number and to write it down, braced to hear what it would cost her. She had hit my car because she was looking at me in her mirror and smiling. I was not going to put a number on that.
 
 “Good morning,” I said.
 
@@ -107,19 +109,19 @@ I could see the rest of it in how she stood. She was ready to be given a number 
 
 “I have three lunches.”
 
-She looked at me for four seconds. Then she wrote on her clipboard for most of a minute, and went into the house.
+She looked at me for four seconds. Then she wrote on her clipboard for most of a minute and went into the house.
 
 I had said three things to her that morning. The last one was a count of lunches. I did not know which of the three she was writing down.
 
 The job that day was the front room.
 
-I put blue on the couch and both end tables in under a minute. Vili and Manny took the couch out, and after that the room answered my boots. Janice was right about that. I had needed to be told.
+I put blue on the couch and both end tables in under a minute. Once Vili and Manny took the couch out, the room answered my boots. Janice was right about that. I had needed to be told.
 
 I stopped in the middle of the room. Then I took one more step, to test it. The room did it again. I had crossed that room every day until I was eighteen. I had never heard it do that.
 
 The table under the globe lamp I could not do. It sat with no tape on it, which is permitted.
 
-Jo worked across the room from me. She had her sleeves pushed up, and every time she reached for the top of a shelf her shirt came untucked at the back, and she tucked it in again without looking. By ten she had done that four times, and I had watched all four.
+Jo worked across the room from me. She worked with her sleeves pushed up, tucking her shirt in again without looking whenever a reach for the top of a shelf pulled it loose at the back. By ten she had done that four times. I had watched all four.
 
 It was two inches of her back above her belt, a second at a time. On Wednesday my hand had been on the side of her face and nowhere else. Each time she reached, I knew where else I wanted it.
 
@@ -143,7 +145,7 @@ The one who writes was Janice. I had known it since Friday night.
 
 There was a sugar bowl on the table. It has been on that table since before I could see over it.
 
-She picked it up and weighed it in her hand before she took the lid off. Then she tipped it out over the lid of a box. About an inch of sugar came out, and after that it was gravel.
+She picked it up and weighed it in her hand before she took the lid off. Then she tipped it out over the lid of a box. About an inch of sugar came out before it turned to gravel.
 
 It was the gray gravel from the atrium. I had walked across it on my way in.
 
@@ -175,7 +177,7 @@ She had been watching through the glass while I was out. She could have been loo
 
 The recipe tin was on the shelf behind the table, with four cookbooks. It was a green tin box, the size for three-by-five cards, with a hinged lid.
 
-Jo fans everything she finds. I had watched her fan a stack of packing slips with her thumb. She kept the tin shut. She stood with it in both hands for eleven seconds, and whatever she was looking at, it was not the tin.
+Jo fans everything she finds. I had watched her fan a stack of packing slips with her thumb. She kept the tin shut. She stood with it in both hands for eleven seconds, looking at something that was not the tin.
 
 “Green,” she said.
 
@@ -191,11 +193,11 @@ She tore the tape with her teeth and pressed it down on the lid with her thumb.
 
 She set it on the table beside the sugar bowl and went out to the truck.
 
-I did not ask. On the first Saturday she had seen me stop at the kitchen floor, and she had not asked me.
+I did not ask. On the first Saturday she had seen me stop at the kitchen floor and had not asked me why.
 
-I opened it while she was gone. The cards were in my mother's hand, in blue ballpoint. In the top corner of each one she had written how many it served. On the older cards the number was 2. It had a line through it, and a 1 beside it.
+I opened it while she was gone. The cards were in my mother's hand, in blue ballpoint. In the top corner of each one she had written how many it served. On the older cards the number was 2. It had a line through it and a 1 beside it.
 
-I left that house in 2003. I looked for a date on the corrections, and there was not one.
+I left that house in 2003. I looked for a date on the corrections. There was not one.
 
 On the newer cards my mother had written 1 from the start, in the same blue ballpoint. I did the arithmetic from 2003, because it was the only date I had. It came to twenty-two years.
 
@@ -205,7 +207,7 @@ Jo was gone four minutes. When she came back she asked me whether the lamp was g
 
 ***
 
-At eleven she called lunch, and I followed her out to the bench in the atrium. It is a short bench. On May 16 her knee had been twelve inches from mine. That morning it was against it, and neither of us moved.
+When she called lunch at eleven, I followed her out to the bench in the atrium. It is a short bench. On May 16 her knee had been twelve inches from mine. That morning it was against it. Neither of us moved.
 
 I sat very still, so that nothing I did would make her move it.
 
@@ -223,7 +225,7 @@ I opened my lunch. It was a sandwich with the crusts cut off, an apple in eight 
 
 I did not know where the bread was kept in my own kitchen. I would look on Friday night.
 
-She had her sandwich in one hand and her phone in the other, and she was typing with her thumb.
+She had her sandwich in one hand and her phone in the other, typing with her thumb.
 
 “What is that?”
 
@@ -249,7 +251,7 @@ Under it was what she had written so far.
 
 “That is line six,” I said. “Private. No social media.”
 
-She put the sandwich down and held out her hand. I gave her the card. She took the pencil from behind her ear and wrote *PRIVATE. NO SOCIAL MEDIA.* under the other four, and then she stopped with the point on it.
+She put the sandwich down and held out her hand. I gave her the card. She took the pencil from behind her ear and wrote *PRIVATE. NO SOCIAL MEDIA.* under the other four, then stopped with the point on it.
 
 “Is this one funny?”
 
@@ -263,7 +265,7 @@ She put the sandwich down and held out her hand. I gave her the card. She took t
 
 “I moved her to another school. Then I wrote line six.”
 
-I had not told that to anyone who was not paid to hear it. I told it to her on a bench in my mother's atrium with her knee against mine, and it took less time than I had always assumed it would.
+I had not told that to anyone who was not paid to hear it. I told it to her on a bench in my mother's atrium with her knee against mine. It took less time than I had always assumed it would.
 
 When I finished, her knee was where it had been.
 
@@ -299,9 +301,9 @@ She picked the clipboard up off the bench.
 
 “I do not have a number.”
 
-She turned the clipboard around. Under the found sheet there was a form, and it was filled in. The time written at the top was 7:04.
+She turned the clipboard around. Under the found sheet there was a form, already filled in. The time written at the top was 7:04.
 
-“Sign by the X. It says you were parked and I backed into you. My carrier pays your shop. It's over a thousand dollars, so I've got ten days to file it with the DMV, and I'm filing Monday.”
+“Sign by the X. It says you were parked and I backed into you. My carrier pays your shop. It's over a thousand dollars, so I've got ten days to file it with the DMV. I'm filing Monday.”
 
 “You have carried that since 7:04.”
 
@@ -311,10 +313,10 @@ She turned the clipboard around. Under the found sheet there was a form, and it 
 
 “I worked that out around ten.”
 
-I can have a fender replaced without anyone signing anything. She was holding out a pen, and it was the first one I had ever seen her with. Her fingers were on the clipboard next to mine, and they had pencil on them.
+I can have a fender replaced without anyone signing anything. She was holding out a pen, the first one I had ever seen her with. Her fingers were on the clipboard next to mine, with pencil on them.
 
 I signed by the X.
 
-I took out my phone. The request from 7:00 was still on the screen, and I declined it.
+I took out my phone. The request from 7:00 was still on the screen. I declined it.
 
 She tore off the bottom copy and gave it to me.

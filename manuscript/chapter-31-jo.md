@@ -30,7 +30,7 @@ I got up and washed them. She stood behind me with a little white box from See's
 
 I turned around. She opened the box.
 
-My glass was in it, on a square of cotton, wrapped in copper wire. The wire went around it four times and came up into a loop at the top, with a thin chain through the loop. The wrap was lumpy. It was tight. I pushed the glass with my thumb, and it didn't move.
+My glass was in it, on a square of cotton, wrapped in copper wire. The wire went around it four times and came up into a loop at the top, with a thin chain through the loop. The wrap was lumpy. It was tight. When I pushed the glass with my thumb, it didn't move.
 
 “You took it off my sill.”
 
@@ -144,7 +144,7 @@ On Monday after lunch a gray Volvo wagon came in through my gate and parked in t
 
 It had been washed that morning. Nothing on it had ever been dinged. On the hill behind it, in white letters taller than a house, it said SOUTH SAN FRANCISCO THE INDUSTRIAL CITY.
 
-I was on the dock by myself pulling pads for Tuesday. Pads come off the shelf in twelves and go on the truck in twelves, and you check every one for tears before it goes, because a torn pad on a dresser is a claim. I had three dozen across the dock in stacks. My shoulders were warm from it. It was the first hour since Wednesday I hadn't thought about my bank.
+I was on the dock by myself pulling pads for Tuesday. Pads come off the shelf in twelves and go on the truck in twelves. You check every one for tears before it goes, because a torn pad on a dresser is a claim. I had three dozen across the dock in stacks. My shoulders were warm from it. It was the first hour since Wednesday I hadn't thought about my bank.
 
 The forty-eight from that Thursday were on the second shelf. Thirds, then half. Every edge lined up. I took a dozen off the top. Not one of them had a tear.
 
@@ -166,7 +166,7 @@ Denise was at her desk with the payroll tote, pretending.
 
 “Eat again.”
 
-Denise looked at Stephanie, and at me. She took her purse and went out slow, and left the door open an inch. I shut it.
+Denise looked at Stephanie, then at me. She took her purse and went out slow, leaving the door open an inch. I shut it.
 
 Stephanie didn't sit. I didn't either. My desk was between us with the week's work orders on it.
 
@@ -178,7 +178,7 @@ I waited.
 
 The glass was under my shirt. I kept my hands on the desk.
 
-“I was married to him for five years,” she said. “I've watched the rest since. There have been eleven. Around the second month there's a weekend in Napa. Around the fourth there's something very large. Then she writes him a thank-you. Every one of them did. Somebody in his office answers it, and that's the end. Nobody fights. He's on to the next thing on his calendar.”
+“I was married to him for five years,” she said. “I've watched the rest since. There have been eleven. Around the second month there's a weekend in Napa. Around the fourth there's something very large. Then she writes him a thank-you. Every one of them did. Somebody in his office answers it. That's the end. Nobody fights. He's on to the next thing on his calendar.”
 
 Every answer I'd had for him since the pads started with thank you. I hadn't sent one.
 
@@ -198,7 +198,7 @@ She took a manila envelope out of her bag and set it on my desk. She squared it 
 
 “And if it doesn't end,” she said. “When I married him, nobody asked me to sign anything. There was nothing to sign. He's known you three months. He paid off your house. The next thing he pays for is a ring.”
 
-At *ring* my stomach went over the hill. I didn't want it doing that for a word out of her mouth. I put my hand flat on the envelope to keep it still.
+At *ring* my hand moved on the desk. I didn't want it doing that for a word out of her mouth. I put it flat on the envelope to keep it still.
 
 I opened the envelope. It was forty pages, stapled at the corner, with tabs. PREMARITAL AGREEMENT across the top, and his name, and a blank where mine went.
 
@@ -206,15 +206,15 @@ I opened the envelope. It was forty pages, stapled at the corner, with tabs. PRE
 
 I read it standing up.
 
-I read every contract that crosses this desk. You read the parts in capitals first, and then you go back for the rest. She stood on the other side of the desk the whole time with her bag on her arm. She didn't look at her phone once. I've had clients who couldn't stand still for one box.
+I read every contract that crosses this desk. You read the parts in capitals first, then go back for the rest. She stood on the other side of the desk the whole time with her bag on her arm. She didn't look at her phone once. I've had clients who couldn't stand still for one box.
 
-Everything he had before the wedding was his. So was everything he made after it. If it ended there was no support, and on page eleven I WAIVED it, in capitals. If he died I got nothing, and a trust with Abby's name on it stayed whole. I looked for Owen. He wasn't in it anywhere. He didn't need to be. He's mine.
+Everything he had before the wedding was his. So was everything he made after it. If it ended there was no support. On page eleven I WAIVED it, in capitals. If he died I got nothing, while a trust with Abby's name on it stayed whole. I looked for Owen. He wasn't in it anywhere. He didn't need to be. He's mine.
 
 It was the Millbrae wife's morning, written up by the other side. A woman who married that man would walk out with what she walked in with. I'd been planning on that since I was seven.
 
 Schedule A was his. Four pages. Recall Technologies, a number of shares with more commas in it than I wanted to read twice. A house in Woodside. A house on Maui. A trust holding a house on West Remington Drive in Sunnyvale. I'd emptied most of that one.
 
-Schedule B was one page. It said *Separate Property of* and my name, and under it one line, blank.
+Schedule B was one page. It said *Separate Property of* and my name, with one line under it, blank.
 
 “That's for you to fill in,” Stephanie said.
 
@@ -396,7 +396,7 @@ I didn't say anything.
 
 I looked down at my phone. I didn't pick it up.
 
-If I called him, I didn't know which word would come out first. On the rock I'd had one in my mouth. In his office I'd had it again, behind all the rest, and I'd shut my mouth on it.
+If I called him, I didn't know which word would come out first. On the rock I'd had one in my mouth. In his office I'd had it again, behind all the rest, and shut my mouth on it.
 
 Dawn poured. Half a cup.
 

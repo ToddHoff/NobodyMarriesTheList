@@ -2,6 +2,8 @@
 
 **Jo**
 
+~~7. Comfortable being looked after~~
+
 On Sunday afternoon, with Owen's backpack by the front door for his father's four o'clock, I opened the drawer by the stove.
 
 Cal's letter was in the drawer, with the bank's check under it. They'd been on my counter since Wednesday night. Owen came home Thursday. Every morning before he was up I put them in the drawer. Every night after his door shut I put them back by the coffee maker and read the letter again.

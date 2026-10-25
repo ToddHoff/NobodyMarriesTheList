@@ -4,7 +4,7 @@
 
 I drove the meat loaf to Sunnyvale on the passenger seat with the belt across it.
 
-It was my mother's meat loaf. The card was in the green tin, in her blue ballpoint, MEAT LOAF across the top and the oven at 350 for one hour. In the corner she had written how many it served. The 2 had a line through it, and there was a 1 beside it.
+It was my mother's meat loaf. The card was in the green tin, in her blue ballpoint, MEAT LOAF across the top and the oven at 350 for one hour. In the corner she had written how many it served. The 2 had a line through it and a 1 beside it.
 
 I made it for two.
 
@@ -66,7 +66,7 @@ She ate the first bite and chewed it for a while.
 
 “Then the card's dry.”
 
-She ate the rest of the slice. She held her plate out for another, and I gave it to her.
+She ate the rest of the slice and held her plate out for another.
 
 “Abby is coming in seventeen days,” I said.
 
@@ -138,7 +138,7 @@ I did not take either one.
 
 “Yes.”
 
-She looked at the closet, and at the hall floor. She had been on her feet since before six that morning. It was 7:48.
+She looked at the closet and the hall floor. She had been on her feet since before six that morning. It was 7:48.
 
 “Okay,” she said, and sat down on the slab with her back against the bathroom door frame and the clipboard on her knees.
 
@@ -176,7 +176,7 @@ My mother had carried every one of these in from the porch herself. She would no
 
 I did not need to look up where I had been on those days. Most of them I had spent on a plane.
 
-Jo called every item out loud. I said green or blue, and she wrote it down and read it back. It took two hours and four minutes. Pancake came and lay down across the hall with his chin on Jo's boot. She let him.
+Jo called every item out loud. Each time I said green or blue, she wrote it down and read it back. It took two hours and four minutes. Pancake came and lay down across the hall with his chin on Jo's boot. She let him.
 
 Everything went blue except one wrap.
 
@@ -194,13 +194,13 @@ I took them down one at a time and set them on the slab in a row. There were fou
 
 I opened 2012.
 
-There were two white envelopes in it. On the front of each my mother had written *Calvin, house*, and under that the month. *Nov 2012. Dec 2012.*
+There were two white envelopes in it. On the front of each my mother had written *Calvin, house*, with the month under that. *Nov 2012. Dec 2012.*
 
 I opened November. Inside were thirty twenty-dollar bills, a ten and two ones. It was six hundred and twelve dollars.
 
 I did not need to count the others. I counted them anyway. The 2013 shoebox had twelve envelopes, one for every month, and so did every box after it through 2024. The 2025 box had ten. The last envelope said *Oct 2025.*
 
-My mother died on October 8. The payment would have been due on the first. Two days before she died she left me a voicemail. Remy's summary of it said to call when I had a minute, and that it was not urgent. I had never played it.
+My mother died on October 8. The payment would have been due on the first. Two days before she died she left me a voicemail. Remy's summary of it said it was not urgent, to call when I had a minute. I had never played it.
 
 I opened October 2025 too. It was the same, thirty twenties, a ten and two ones. I counted it twice.
 
@@ -222,7 +222,7 @@ I knew how many envelopes there were, and what was in each one, and the month sh
 
 Jo looked at me for a long time. Then she looked down at the clipboard and wrote it out in her square capitals, the number of envelopes and the number of dollars, and turned the board around and held it out with her pencil.
 
-She knew what the envelopes were. I could see it in her face. She had known since I opened November, and maybe since she saw the years on the boxes. She did not tell me. I had watched her decide not to tell me something before, in June, with the recipe tin in both hands. It looked the same.
+She knew what the envelopes were. I could see it in her face. She had known since I opened November, maybe since she saw the years on the boxes. She did not tell me. I had watched her decide not to tell me something before, in June, with the recipe tin in both hands. It looked the same.
 
 I signed the found sheet under her line. It was called, seen and signed for. It went green.
 

@@ -4,7 +4,7 @@
 
 On Monday morning, before it was light, I drove under Cal's face with my headlights on.
 
-The billboard is a quarter mile before the Oyster Point exit. They keep it lit all night. Forty-eight feet of gray shirt and CALL YOUR MOTHER, and nobody on 101 to read it but me and a bread truck.
+The billboard is a quarter mile before the Oyster Point exit. They keep it lit all night. Forty-eight feet of gray shirt and CALL YOUR MOTHER, with nobody on 101 to read it but me and a bread truck.
 
 It was my mother's birthday. She'd have been seventy.
 
@@ -32,7 +32,7 @@ He was standing at the top of the gangway with his hands in his jacket pockets, 
 
 I laughed out loud in the empty lot.
 
-He'd shaved. At four in the morning, to go out on a boat, he'd shaved. I could smell it from where I stood. My stomach went over the hill.
+He'd shaved. At four in the morning, to go out on a boat, he'd shaved. I could smell it from where I stood. I wanted to put my face where he'd shaved.
 
 I looked at his feet. Boat shoes, brown leather and white soles, without a mark on either one.
 
@@ -64,7 +64,7 @@ Cal went to meet him. I stayed by my truck.
 
 I'd known Cal would come up with something. In the car last night, when I told him about the boat, he'd had the look he gets right before he sends for a taco truck. I'd have bet money he'd ask me. He'd walked right past me and asked the man who owns the boat. I liked him for it more than I wanted to, at five in the morning, in front of my father.
 
-My father looked at him for a while. Then he looked over at me, and back at Cal.
+My father looked at him for a while. Then he looked over at me and back at Cal.
 
 “No,” he said.
 
@@ -98,7 +98,7 @@ I laughed. My father didn't. He held the life jacket out until Cal put it on. Th
 
 “Jib,” he said.
 
-The jib lives in a bag in the front cabin. It's bigger than the boat looks like it can carry, and it goes onto the wire at the bow with bronze clips, one at a time, from the bottom up. My father can't kneel up there anymore. That was the reason he gave. He could have put me on the bow and kept the tiller himself. He wanted a look at Cal.
+The jib lives in a bag in the front cabin. It's bigger than the boat looks like it can carry. It goes onto the wire at the bow with bronze clips, one at a time, from the bottom up. My father can't kneel up there anymore. That was the reason he gave. He could have put me on the bow and kept the tiller himself. He wanted a look at Cal.
 
 Cal took the bag forward and knelt on the deck by the wire. I got the flashlight out of the locker and went up after him and held it.
 
@@ -128,7 +128,7 @@ Outside the breakwater the wind came over the hills out of the west at fourteen 
 
 Cal was still at the mast with both hands on the jib halyard when the first wave came over the bow. It went down his collar and came out of his sleeves. He didn't let go of the line.
 
-The jib went up. My father turned us north, and the boat leaned over and took off.
+The jib went up. When my father turned us north, the boat leaned over and took off.
 
 Cal came back to the cockpit wet from his hair to the 2014 shoes. They squeaked.
 
@@ -144,7 +144,7 @@ His teeth were going. He kept his mouth shut so we wouldn't hear them. Above the
 
 The sun came up somewhere behind the overcast. We never saw it. The gray over us got lighter. The water went from black to the gray of his mother's slab. Behind us the first planes were going up off SFO, one every couple of minutes. We went north past Sierra Point and Candlestick and Hunters Point.
 
-I had the jib sheets. On this boat I'm crew. My father calls it, and I pull when he says.
+I had the jib sheets. On this boat I'm crew. My father calls it. I pull when he says.
 
 He steered and gave Cal the names of things. Port. Starboard. Sheet. Halyard. Cal said every one back once, like a new man on my crew saying back an address. Every question he asked my father was about the boat.
 
@@ -154,9 +154,9 @@ Cal had turned around on the high side to look at the city. The yellow sleeves h
 
 Past the Ferry Building the wind went soft under the city. My father started the engine again and sent Cal forward to bring the jib down. Alcatraz went by on the right, a mile off. Gulls stood on every flat place on it, over rocks streaked white like the floor of an attic the pigeons have had for a year.
 
-Past Alcatraz there was nothing in front of us but the bridge. It gets bigger the whole way in. You think you're close, and then it gets bigger again. Cal had quit saying the names of things back.
+Past Alcatraz there was nothing in front of us but the bridge. It gets bigger the whole way in. Just when you think you're close, it gets bigger again. Cal had quit saying the names of things back.
 
-From the water it doesn't sit on anything. I move weight for a living. That's what gets me every year. Two towers stand up out of the bay seven hundred and forty-six feet, and the road hangs between them off two cables, four thousand two hundred feet of it. I looked that up the first year, when I was twelve. Under the overcast the orange was the only color anywhere. The water was gray, the sky was gray, the Marin hills were gray-brown, and the bridge looked lit from inside, like running lights on a truck at five in the morning.
+From the water it doesn't sit on anything. I move weight for a living. That's what gets me every year. Two towers stand up out of the bay seven hundred and forty-six feet. The road hangs between them off two cables, four thousand two hundred feet of it. I looked that up the first year, when I was twelve. Under the overcast the orange was the only color anywhere. The water was gray, the sky was gray, the Marin hills were gray-brown. The bridge looked lit from inside, like running lights on a truck at five in the morning.
 
 Slack water at the Golden Gate was 7:44. My father had us under the middle of the bridge right on it, with the main up and the engine turning slow. He's done it that way every year since 1994.
 
@@ -172,17 +172,17 @@ I kept my hand on the winch and watched the water go by. Every year until 2019 m
 
 The year she died he didn't say ten words to anybody from the funeral in February to her birthday. He came to the yard at five-thirty, drove whatever was on the calendar and went home and sat in this boat at the dock till dark. Denise talked for both of them. I ran three trucks and didn't ask him for anything. I'd seen him go quiet once before, the winter I was eight, in a chair in our front room. That time he didn't get up till spring.
 
-On her birthday I was on this dock before five without being asked, and I took the sheets like always. Under the bridge he took his cap off for the first time. Coming back in under it, he said she'd have been sick right there. It was the first thing he'd said to me since February.
+On her birthday I was on this dock before five without being asked and took the sheets like always. Under the bridge he took his cap off for the first time. Coming back in under it, he said she'd have been sick right there. It was the first thing he'd said to me since February.
 
 All morning I'd been afraid of what a man who didn't know any of that would do right here. Say something nice. Ask me.
 
-We came out the other side into the ocean. The first swell came in under us, long and slow, nothing like the bay, and the boat went up and came down. Out past the headlands the gray water went on until the overcast came down to meet it. Behind us the towers stood up over everything.
+We came out the other side into the ocean. The first swell came in under us, long and slow, nothing like the bay, lifting the boat and setting it down. Out past the headlands the gray water went on until the overcast came down to meet it. Behind us the towers stood up over everything.
 
 My father put his cap back on.
 
 “Coming around,” he said.
 
-My father said “Jib,” and Cal went to the mast and put it back up. With the wind behind us the boat went quiet, and the cold let go some. The flood had turned under us and was carrying us home.
+My father said “Jib,” and Cal went to the mast and put it back up. With the wind behind us the boat went quiet. The cold let go some. The flood had turned under us and was carrying us home.
 
 My father had the jib sheet cleated and the tiller under his arm. He didn't need me.
 
@@ -196,11 +196,11 @@ I've had the sheets on this boat since I was twelve. I'd left them with a man wi
 
 My father didn't call me back.
 
-South of the Bay Bridge the wind came up past twenty in the gusts. My father had Cal take the jib down, and we came the rest of the way on the main. By the time we motored in past the breakwater it was going on eleven. The overcast had lifted some.
+South of the Bay Bridge the wind came up past twenty in the gusts. My father had Cal take the jib down, so we came the rest of the way on the main. By the time we motored in past the breakwater it was going on eleven. The overcast had lifted some.
 
 “Bow line,” my father said. “Forward cleat.”
 
-Cal stepped off onto the dock with the bow line when he was told. He put it on the first cleat he came to, at the back corner of the slip. A gust took the bow and pushed it out, and the whole boat swung. I went off the stern with my line and got a turn on before it hit anything.
+Cal stepped off onto the dock with the bow line when he was told. He put it on the first cleat he came to, at the back corner of the slip. A gust took the bow and pushed it out, swinging the whole boat. I went off the stern with my line and got a turn on before it hit anything.
 
 “Forward cleat,” my father said.
 
@@ -212,7 +212,7 @@ My father pointed with his chin. Cal moved the line and tied it off. My father l
 
 “Hm,” my father said.
 
-Getting off the boat took my father longer than getting on. The tide had come up, and the gangway wasn't so steep. He went up it facing front, slow, with Cal one step behind him carrying the cooler, not touching him. At the top my father turned around.
+Getting off the boat took my father longer than getting on. With the tide up, the gangway wasn't as steep. He went up it facing front, slow, with Cal one step behind him carrying the cooler, not touching him. At the top my father turned around.
 
 “Six o'clock,” he said to Cal. “My house. Jo knows where.”
 
@@ -258,7 +258,7 @@ Kevin would be there. He brings Owen every year and stays for cake. My sister wo
 
 My father's house is the one I grew up in, up the hill in South San Francisco. His kitchen table has had the same oilcloth on it since Denise was in high school.
 
-Cal's car was at the curb that evening long before six. My father had linguiça and chicken on the grill in the yard, and Cal stood next to him and held the platter and was told when. Denise came next with the sweet bread and the cake box and her earrings in. She looked at Cal at the grill with our father, and then at me.
+Cal's car was at the curb that evening long before six. My father had linguiça and chicken on the grill in the yard, with Cal next to him holding the platter and being told when. Denise came next with the sweet bread and the cake box and her earrings in. She looked at Cal at the grill with our father, then at me.
 
 “He's holding Dad's PLATTER,” she said, and went in with the cake.
 

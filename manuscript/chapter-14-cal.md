@@ -2,9 +2,11 @@
 
 **Cal**
 
+~~5. College degree, minimum~~
+
 On Wednesday morning at 7:50 I took Jo Silveira's name off Janice's list.
 
-It is a list in Remy of the people Janice writes to for me. There were forty-one names on it. Hers had gone on May 16. I took it off, and the list said forty.
+It is a list in Remy of the people Janice writes to for me. There were forty-one names on it. Hers had gone on May 16. When I took it off, the list said forty.
 
 I had decided at 5:10, on the walk, while Pancake was at the fence post he inspects every morning. The night before, in the back of her truck, she had told me that anything I had to say before Saturday I was to type myself. I could not do that while her name was on a list for somebody else to write to.
 
@@ -30,11 +32,11 @@ At 9:14 that night I looked at my phone. There was nothing on it to approve. I l
 
 For a month something had gone to her at 9:14 with my name on it. Tonight nothing was going to go unless I wrote it.
 
-I wrote to her myself, at my kitchen counter, with Pancake asleep on my feet. In forty minutes I wrote eleven versions. Four of them sounded like Janice. Six of them could have gone to my board, and one of those began *I want to address Tuesday.* The eleventh said that it was on me and that I would fix it, which is what I said about the cruise and what I said on Tuesday, and I still did not have a how. I deleted all eleven.
+I wrote to her myself, at my kitchen counter, with Pancake asleep on my feet. In forty minutes I wrote eleven versions. Four of them sounded like Janice. Six of them could have gone to my board, including one that began *I want to address Tuesday.* The eleventh said that it was on me and that I would fix it, which is what I said about the cruise and what I said on Tuesday. I still did not have a how. I deleted all eleven.
 
 I stopped trying to say anything about Tuesday and went back to what was mine. In the truck on Tuesday the sandwich had been first on my list. It had been the wrong sandwich. I still owed her half a linguiça.
 
-The twelfth was four words, and it was true.
+The twelfth was four words, every one of them true.
 
 *I still owe linguica.*
 
@@ -42,11 +44,11 @@ I sent it at 10:02. At 10:04 it said Read. She did not answer.
 
 I sat at the counter with my phone face up beside my hand until 11:40. At eleven Pancake got off my feet and went to his own bed. I wanted anything at all back from her. One word would have done.
 
-On Thursday I looked at the thread thirty-one times. I know the number because I asked Remy how many times I had opened it, and it told me. It still said Read 10:04. I did not send a second one.
+On Thursday I looked at the thread thirty-one times. I know the number because Remy told me, when I asked how many times I had opened it. It still said Read 10:04. I did not send a second one.
 
 She had told me to type it myself. She had not said how often. A second message would only have asked her why she had not answered the first. For a month she had answered messages Janice wrote. I was not going to ask her to answer mine.
 
-On Thursday night I numbered my shirts. Owen had said they should be numbered, one to forty, so that I would wear them evenly, and his mother had said to do it myself. I laid them on the bed in the order they hung and wrote each number on the label inside the collar.
+On Thursday night I numbered my shirts. Owen's idea was to number them one to forty, so that I would wear them evenly. His mother's was that I do it myself. I laid them on the bed in the order they hung and wrote each number on the label inside the collar.
 
 I used a black marker. The collars were not all the same. The shirts at the front of the rail had gone soft at the neck. The ones at the back were still stiff. Since 2015 I had been wearing whichever one my hand found first. Owen had worked that out without seeing my closet.
 
@@ -68,7 +70,7 @@ She came in and looked at my phone, which was face up on the bed beside the shir
 
 “What did you send her?”
 
-I turned the phone so she could read it. She read it, and then she looked at me for some time.
+I turned the phone so she could read it. She read it and looked at me for some time.
 
 “Did Janice write that?”
 
@@ -84,23 +86,23 @@ The shirts took fifty-two minutes. On Friday I wore number one. She did not answ
 
 ***
 
-On Saturday morning the car said fifty-four degrees on Remington at 6:41, and there was no sun. I parked across the street, where I have parked since June 6. I had on number two. The contract was with Silveira Moving, and it did not say which Silveira had to come.
+On Saturday morning the car said fifty-four degrees on Remington at 6:41, with no sun. I parked across the street, where I have parked since June 6. I had on number two. The contract was with Silveira Moving. It did not say which Silveira had to come.
 
 I had read it again on Friday night. If she sent Vili with the truck and stayed in San Bruno, the contract was kept. I had decided that if she did, I would say nothing about it to Vili. I would be on the same curb at seven the Saturday after.
 
 I had made my lunch at 5:35. I buttered both pieces of bread out to the edge, which I had been told to do, and put the tomato between them.
 
-Her truck turned onto Remington at 6:59. She was driving it herself, for the first time since my fender. She took it past the driveway and backed it in. It took one pass. I could see her face in the side mirror, and she did not look at me in it.
+Her truck turned onto Remington at 6:59. She was driving it herself, for the first time since my fender. She took it past the driveway and backed it in. It took one pass. I could see her face in the side mirror, not looking at me.
 
 My watch had tapped when her truck came around the corner. I had not looked at it. On June 6 she had smiled at me in that mirror and put the back corner of the truck into my front fender. The fender was still as she had left it.
 
-Vili and Manny got down, and Vili went around to the back and pulled the door up. The clipboard was on its hook inside, with the found sheet from Tuesday on top, facing out. My signature was at the bottom of it.
+Vili got down with Manny and went around to the back to pull the door up. The clipboard was on its hook inside, with the found sheet from Tuesday on top, facing out. My signature was at the bottom of it.
 
-Vili looked at the sheet, and at me, and then at the cab.
+Vili looked from the sheet to me to the cab.
 
 “What'd you do to her Tuesday?” he said.
 
-“Her son asked me a question, and I answered it.”
+“Her son asked me a question. I answered it.”
 
 He whistled, two notes, and went for the runners.
 
@@ -118,7 +120,7 @@ I had been looking forward to having it checked.
 
 “Bedroom,” she said, and went in.
 
-I have sat across from a great many people who were angry with me. I know what it does to a face, and hers was not doing it. She was being careful. She kept four feet between us all morning, and when the four feet closed, she found something on the other side of the room. Vili spent the morning in the doorway, laying runners he had already laid. I believe she asked him to.
+I have sat across from a great many people who were angry with me. I know what it does to a face. Hers was not doing it. She was being careful. She kept four feet between us all morning. Whenever the four feet closed, she found something on the other side of the room. Vili spent the morning in the doorway, laying runners he had already laid. I believe she asked him to.
 
 On a job she puts people where she wants them with one word, “Runners” or “Bedroom.” If I had been what she was angry at, she would have sent me to the truck.
 
@@ -126,9 +128,9 @@ Her hair was tied back tighter than usual. I looked at the back of her neck more
 
 A week before, in the hall, she had told me to bend down and pulled me the rest of the way by my shirt. My hand had been in that hair until the tie came half out. That was three days before she found out who wrote to her. I did not know whether I would be let that close again. When she turned around I looked at the dresser. My face was hot.
 
-The job that day was my mother's bedroom. It has a bed, a dresser with a mirror, a chair she put her clothes on, and a closet with two sliding doors. I put blue on the bed and the chair in the first ten minutes. By nine she had said twenty-two words to me, and every one of them was green, blue or a direction.
+The job that day was my mother's bedroom. It has a bed, a dresser with a mirror, a chair she put her clothes on, and a closet with two sliding doors. I put blue on the bed and the chair in the first ten minutes. By nine she had said twenty-two words to me, every one of them green, blue or a direction.
 
-At 9:40 she opened the top drawer of the dresser. It held nightgowns, folded in thirds. She took them out and laid them on the bed, and then she lifted the paper that lined the bottom of the drawer. I would not have known to do that. She lifts every liner.
+At 9:40 she opened the top drawer of the dresser. It held nightgowns, folded in thirds. She took them out and laid them on the bed before she lifted the paper that lined the bottom of the drawer. I would not have known to do that. She lifts every liner.
 
 There was a sheet of paper under it, folded in quarters.
 
@@ -140,7 +142,7 @@ It was a form from the Fremont Union High School District. The word at the top w
 
 My mother graduated from high school in 1972. She told me so when I was nine, the one time I asked.
 
-I read the form twice. Nobody in the room said anything. Pancake was at the back glass with his nose on the track, and I heard Manny's tape gun stop in the hall.
+I read the form twice. Nobody in the room said anything. Pancake was at the back glass with his nose on the track. In the hall, Manny's tape gun stopped.
 
 She was born in March 1954. In April 1970 she had been sixteen for about a month. A girl in Grade 10 that April would have graduated in 1972. She had given me the right year.
 
@@ -152,7 +154,7 @@ The creases in the form were soft. The paper had gone thin along them. She had k
 
 “Green.”
 
-She held out the roll. I tore it clean, which took me a month to learn, and I put the tape on the corner of the form.
+She held out the roll. I tore it clean, which took me a month to learn, and put the tape on the corner of the form.
 
 Then I took the card out of my shirt pocket and turned it to the side with her pencil on it.
 
@@ -170,7 +172,7 @@ Vili went out to the truck. Nobody had told him to.
 
 She waited.
 
-“She told me she graduated in 1972. She asked me what I got on every test from the second grade on, and she read every report card at the kitchen table before she signed it.” I was still holding the form. “I thought it was because she liked school.”
+“She told me she graduated in 1972. She asked me what I got on every test from the second grade on. She read every report card at the kitchen table before she signed it.” I was still holding the form. “I thought it was because she liked school.”
 
 Jo did not say anything for a while. She did not tell me what it meant.
 
@@ -186,7 +188,7 @@ She took her time with it.
 
 I had asked because I wanted to know, which is not my usual reason for a question. I wanted to ask her the rest of it. I did not. I did not want her to be sorry she had told me.
 
-She held out her hand. I gave her the card. She took the pencil from behind her ear and wrote *COLLEGE DEGREE, MINIMUM* under the other five, and she drew the line.
+She held out her hand. I gave her the card. She took the pencil from behind her ear and wrote *COLLEGE DEGREE, MINIMUM* under the other five and drew the line through it.
 
 “That's six,” she said.
 
@@ -220,7 +222,7 @@ Jo crouched and picked up the oldest pair. The tread was gone on the outside edg
 
 “She stood on the outside of her feet,” Jo said. “You can see it.”
 
-I crouched beside her. She was eighteen inches from me, and she did not move off.
+I crouched beside her. She was eighteen inches from me and did not move off.
 
 I could smell the cab of her truck on the sweatshirt. I did not know whether she had noticed how close she was. I did not move, in case she had not.
 
@@ -240,9 +242,9 @@ I took the oldest pair from her and put green on the left heel. She put blue on 
 
 ***
 
-At eleven she called lunch. I let Pancake in from the yard and went out to the bench in the atrium, and I sat on my end of it. I did not know whether she would come.
+At eleven she called lunch. I let Pancake in from the yard and went out to sit on my end of the bench in the atrium. I did not know whether she would come.
 
-She came. She sat on her end. Her knee was twelve inches from mine, which is where it was on May 16. On June 6 it had been against mine, and I wanted that back. I did not move.
+She came. She sat on her end. Her knee was twelve inches from mine, which is where it was on May 16. I wanted it back where it had been on June 6, against mine. I did not move.
 
 I opened my lunch. She looked at the bread.
 
@@ -252,7 +254,7 @@ I opened my lunch. She looked at the bread.
 
 I had been waiting since 5:35 for her to ask.
 
-She nodded and unwrapped her own. We ate without talking. The sky stayed white over the atrium. Pancake came out and stood in front of her, and then he leaned his whole side against her shin. She did not pet him. She did not move the leg.
+She nodded and unwrapped her own. We ate without talking. The sky stayed white over the atrium. Pancake came out, stood in front of her, and leaned his whole side against her shin. She did not pet him. She did not move the leg.
 
 I wanted to be where the dog was. I stayed on my end of the bench.
 
@@ -262,15 +264,15 @@ At 12:40 the bedroom was empty except for what was green. Jo turned the clipboar
 
 “Sign.”
 
-I signed under *Paper, folded, top drawer, under liner.* It was the second found sheet I had signed that week. She tore off the bottom copy and gave it to me, and I put it in my shirt pocket with the card.
+I signed under *Paper, folded, top drawer, under liner.* It was the second found sheet I had signed that week. She tore off the bottom copy and gave it to me. It went in my shirt pocket with the card.
 
-At the truck she stopped with her hand on the door, and I thought she would say something. She got in.
+At the truck she stopped with her hand on the door, long enough that I thought she would say something. She got in.
 
 I had stopped at the end of the front walk, because on Tuesday she had told me not to walk her to her truck. I could have said her name. She would have turned around and answered me. Then I would never have known what she had stopped to say.
 
 ***
 
-At 7:30 that night I did not call Janice. It was the first Saturday since May 16 that I had not. I put the form on my kitchen counter and read it again, and I sat with Pancake until it was dark.
+At 7:30 that night I did not call Janice. It was the first Saturday since May 16 that I had not. I put the form on my kitchen counter, read it again, and sat with Pancake until it was dark.
 
 There was nothing to call her for. Janice did not write to Jo now. I did not want the form in anybody's notes, Janice's included.
 

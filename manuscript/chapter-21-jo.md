@@ -2,9 +2,11 @@
 
 **Jo**
 
+~~8. No kids. Wants them~~
+
 On Thursday I packed a dead woman's kitchen in Westlake by myself, in fog so thick I'd driven over with my headlights on at seven in the morning. My nose was peeling from Maui. Every time I wiped it on my sleeve I was back on that lanai.
 
-Her son had flown in from Phoenix. He sat in the garage with the door up, on a folding chair, with his phone, and every hour he came in and asked if I needed anything. I've cleared a lot of houses for people's children. They'll go through their mother's closet and her jewelry and her desk with a box of tissues. They leave the kitchen to me.
+Her son had flown in from Phoenix. He sat in the garage with the door up, on a folding chair, with his phone, coming in every hour to ask if I needed anything. I've cleared a lot of houses for people's children. They'll go through their mother's closet and her jewelry and her desk with a box of tissues. They leave the kitchen to me.
 
 I built two dish packs on her counter and taped the bottoms in an H. Plates on edge, cups rim down, glasses in their own cells. I can do a kitchen like hers in five hours if nobody talks to me. Nobody did. The house was so quiet I heard the furnace come on twice before noon, in July.
 
@@ -126,7 +128,7 @@ His room was the hottest one in the house. The sun came straight through the bac
 
 He'd said green for the ribbons and nothing for the bed. I'd left it. When a client can't call something, I leave it in the room until he can. The bed was made with the corners tucked under tight. I've stripped a lot of beds. You can tell one somebody slept in from one somebody made. This one had been made, over and over. I could smell the dryer sheet from the door. I'd seen beds like it on Monday, on Maui, made every week for a man who didn't come.
 
-I sent Cal to take the ribbons down himself and wrap them, and I did the desk.
+I sent Cal to take the ribbons down himself and wrap them while I did the desk.
 
 You learn a lot about a person from a desk. I've packed a hundred boys' desks. There's gum stuck under the drawer, a note from a girl, a dead watch, something they'd die before they let their mother see. His had none of it. Mechanical pencils in a row, by lead size. Graph paper with the edges squared. A calculator with a label on the back in his mother's blue ballpoint, CALVIN B. A school calendar from 2003 with something written in every day through June. After June it was blank. I wrapped it and didn't read June.
 
@@ -136,9 +138,9 @@ Most days I like a room best when it's just me and the work. That afternoon it w
 
 ***
 
-By the middle of the afternoon the hall said ninety-seven, and I lay down on the floor.
+By the middle of the afternoon the hall said ninety-seven. I lay down on the floor.
 
-I'd told his daughter everybody does. She'd lain on this slab when she was little. It was the coolest thing in the house, and it came straight up through my shirt. I put my arms out. I hadn't been flat on a floor without a flashlight in my hand since I was seven, in an empty house in Millbrae.
+I'd told his daughter everybody does. She'd lain on this slab when she was little. It was the coolest thing in the house, cool enough to come straight up through my shirt. I put my arms out. I hadn't been flat on a floor without a flashlight in my hand since I was seven, in an empty house in Millbrae.
 
 Cal came out of his room with a ribbon in each hand and found me there. He stood over me for a while.
 
@@ -156,7 +158,7 @@ We lay there. A plane went over, high, going somewhere cold. I could hear Cal br
 
 “The red one from 1997 was second place,” he said. “A girl from the next street grew mold on eight kinds of bread. My design was better. Hers was disgusting. The judges were parents.”
 
-I laughed. I couldn't help it. It came up out of me flat on my back and went down the hall, and Pancake lifted his head to see what it was.
+I laughed. I couldn't help it. It came up out of me flat on my back and went down the hall. Pancake lifted his head to see what it was.
 
 “You're still mad.”
 
@@ -198,7 +200,7 @@ We ate on the bench in the atrium with the cooler between us. He took the second
 
 He let that go. He's polite.
 
-After that we worked. I told him how many boxes and what size, and he built them on the hall floor and taped every bottom in an H without my saying so. I packed his closet. He brought me boxes before I ran out and set each one down where I'd reach for it. Nobody had to call anything. We didn't talk much.
+After that we worked. Once I told him how many boxes and what size, he built them on the hall floor and taped every bottom in an H without my saying so. I packed his closet. He brought me boxes before I ran out and set each one down where I'd reach for it. Nobody had to call anything. We didn't talk much.
 
 By suppertime my back was gone from the floor and the hall and three days of making up. I sat down on the edge of his bed to write the count on my clipboard. Forty-one boxes, his room and the hall. I'd lie back for a minute. It had been made long enough. I'd unmake it a little.
 
@@ -206,7 +208,7 @@ I don't remember putting the clipboard down.
 
 ***
 
-I woke up cold. That's how I knew I'd slept. The house had given up the heat all at once, the way glass does, and the night was coming in every slider I'd opened. Somebody had pulled the bedspread up over me from the other side.
+I woke up cold. That's how I knew I'd slept. The house had given up the heat all at once, the way glass does. The night was coming in every slider I'd opened. Somebody had pulled the bedspread up over me from the other side.
 
 It was dark. The light from the hall came in at an angle. Cal was sitting on the floor by the desk with his back against the wall and his knees up. Pancake was asleep against his leg.
 
@@ -254,7 +256,7 @@ He'd heard me say something about him to my sister that I hadn't said to him. I 
 
 “Why?”
 
-He didn't answer right away. Pancake moved his head on Cal's knee, and Cal put his hand on it.
+He didn't answer right away. When Pancake moved his head on Cal's knee, Cal put his hand on it.
 
 “Abby was four when her mother and I divorced,” he said. “After that I had her every other weekend.”
 
@@ -316,17 +318,17 @@ He did.
 
 It was a twin bed. There was no way to be in it except on top of each other. It took his weight with a sound like a screen door. I laughed. He laughed too, low, with his forehead on my collarbone. I'd been sweating since seven in the morning. I knew what I smelled like. He didn't care. He put his face in my neck and breathed in.
 
-He took my boots off. He got down off the bed to do it, on his knees on his mother's floor, and he worked the laces loose one eyelet at a time. I let him. Nobody's taken my boots off for me since I was small enough to be carried in from a car. He set them side by side under the desk with the laces tucked in, the way I keep them.
+He took my boots off. He got down off the bed to do it, kneeling on his mother's floor to work the laces loose one eyelet at a time. I let him. Nobody's taken my boots off for me since I was small enough to be carried in from a car. He set them side by side under the desk with the laces tucked in, the way I keep them.
 
 He didn't say anything at all for a long time. His watch was face down on the desk.
 
-So I didn't run it either. I'd run it last time, all of it. I'd liked that fine. This time I let him take as long as he took. It was a long time. His hands were careful, and then they weren't. My shirt went somewhere. His went on the floor with the card in the pocket. The air through the slider was cool on my skin where his mouth had just been. Every time I noticed it, he put his mouth back. He got my jeans off. When he was inside me he went still and looked at me for a long time. I was the one who couldn't wait.
+So I didn't run it either. I'd run it last time, all of it. I'd liked that fine. This time I let him take as long as he took. It was a long time. His hands were careful until they weren't. My shirt went somewhere. His went on the floor with the card in the pocket. The air through the slider was cool on my skin where his mouth had just been. Every time I noticed it, he put his mouth back. He got my jeans off. When he was inside me he went still and looked at me for a long time. I was the one who couldn't wait.
 
 I kept count at first. I always do. What he'd given me, what I'd give back, how to even it. Somewhere in there I lost count. I didn't go back for it.
 
-The bed hit the wall. The empty shelf over it rattled where the ribbons had been. His elbow found the wall twice, and the second time he said my name into my hair, just my name. When it came for me it came up from my feet. I held on to his back with both hands, the way I'd wanted to since Thursday in the fog. I didn't let go.
+The bed hit the wall. The empty shelf over it rattled where the ribbons had been. His elbow found the wall twice. The second time he said my name into my hair, just my name. When it came for me it came up from my feet. I held on to his back with both hands, the way I'd wanted to since Thursday in the fog. I didn't let go.
 
-After, we lay the only way that bed allowed, him on his back with his feet past the end and me mostly on top of him. Pancake came in and looked at us and lay down across the doorway. The night came in the slider. Down the block a dog barked twice and quit, and Pancake lifted his head and put it down again.
+After, we lay the only way that bed allowed, him on his back with his feet past the end and me mostly on top of him. Pancake came in and looked at us and lay down across the doorway. The night came in the slider. When a dog down the block barked twice and quit, Pancake lifted his head and put it down again.
 
 “I have decided about the bed,” Cal said, at the ceiling.
 

@@ -63,6 +63,15 @@ for (const f of files) {
     if (!n) throw new Error('no narrator in ' + f);
     i++;
     children.push(new Paragraph({ style: 'VellumElementSubtitle', children: [new TextRun(n[1])] }));
+    // in a chapter where Jo strikes a line of the list, that line comes next, struck: "~~1. 5'8″ or taller~~".
+    // Vellum drops strikethrough in a chapter subtitle, so it opens the chapter as a one-line Written Note
+    // (body text keeps the strike, as on The List page; the drop cap still lands on the first paragraph)
+    while (lines[i].trim() === '') i++;
+    if (/^~~[^~]+~~$/.test(lines[i].trim())) {
+      children.push(new Paragraph({ style: 'VellumWrittenNote', children: runsFromInline(lines[i].trim()) }));
+      stats.struck = (stats.struck || 0) + 1;
+      i++;
+    }
     stats.chapters++;
   }
 

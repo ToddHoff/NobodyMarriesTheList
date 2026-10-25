@@ -44,7 +44,7 @@ I had approved the other one in a car.
 
 On Wednesday at 6:24 in the morning, three minutes after she told me *I sign it* and hung up, Remy had put a second item on my screen. *Confidentiality agreement for Jo Silveira, prepared from your three prior agreements. Approve?* I was still hearing her say it. I said approve. It was one of three hundred and six things I approved that day. I did not open it.
 
-At 2:05 this afternoon, after her truck went down the ramp, I opened it and read all fourteen pages. When my two were done I asked Remy for the three it was made from, and I read those. I had approved every page of them too. I wrote three letters on my own paper, one to each woman who had signed one, Ms. Holcomb first. Their addresses were in the notice lines. Each letter said she was released from every term and owed me nothing under it. I signed them and put the stamps on myself. I mailed them on the way to San Carlos.
+At 2:05 this afternoon, after her truck went down the ramp, I opened it and read all fourteen pages. When my two were done I asked Remy for the three it was made from and read those. I had approved every page of them too. I wrote three letters on my own paper, one to each woman who had signed one, Ms. Holcomb first. Their addresses were in the notice lines. Each letter said she was released from every term and owed me nothing under it. I signed them and put the stamps on myself. I mailed them on the way to San Carlos.
 
 I had not told Jo about the letters. They were owed to three other people.
 
@@ -72,7 +72,7 @@ Section five was where I had copied her people onto my side. *Jo Silveira will s
 
 “Good.”
 
-She held out the pencil. I drew the line through *family members* in mine. My line was not as straight. She wrote her initials beside hers in square capitals, JS, and I wrote CB beside mine. There was a gray smear of pencil along the side of her hand where it had dragged across the paper. I wanted to put my mouth there.
+She held out the pencil. I drew the line through *family members* in mine. My line was not as straight. She wrote her initials beside hers in square capitals, JS. I wrote CB beside mine. There was a gray smear of pencil along the side of her hand where it had dragged across the paper. I wanted to put my mouth there.
 
 Then she crossed out *employees, agents* in her sentence and wrote THE COMPANY PAGE above it.
 
@@ -132,7 +132,7 @@ It folds in half and has shoulder straps. It weighs ten pounds. I had the burger
 
 The trail to the rock is a quarter mile, uphill, in the shade. She walked ahead of me with the pad on her back. I had walked it alone thirty-eight times. In 2009, when the company was nine people, I came up here on Saturdays and climbed by myself. I had not been back.
 
-The trail goes up through black oaks and madrones. A madrone sheds its bark every summer. The old bark comes off in thin red curls, and the trunk under it is green and cool, like the inside of a wrist. Jo put her hand flat on one as she went by. Then she stopped and put her hand on the next one, and left it there a while.
+The trail goes up through black oaks and madrones. A madrone sheds its bark every summer. The old bark comes off in thin red curls, leaving the trunk under it green and cool, like the inside of a wrist. Jo put her hand flat on one as she went by. Then she stopped and put her hand on the next one, and left it there a while.
 
 Castle Rock is a sandstone block the size of a house, set in the trees. Its whole face is full of holes. Rain soaks into the stone and dissolves what holds the grains together. The inside crumbles out from behind a hard skin. The holes are called tafoni. Some are the size of a fist. Some go back far enough for two people to sit in. The late sun came through the trees onto it in pieces. Every hole was full of shadow.
 
@@ -218,7 +218,7 @@ It took me a second.
 
 “The ribbons,” she said. “You told me about the mold bread.”
 
-“The blue one from 1995 was a coin sorter,” I said. “I was in the fourth grade. I drew it on graph paper first. It was a plywood ramp with four holes cut in it, smallest at the top. A dime is seven-tenths of an inch. A penny is three-quarters. The nickel is next, and the quarter is at the bottom. Every coin rolls down until it finds a hole it fits. Under each hole there was a cup.”
+“The blue one from 1995 was a coin sorter,” I said. “I was in the fourth grade. I drew it on graph paper first. It was a plywood ramp with four holes cut in it, smallest at the top. A dime is seven-tenths of an inch. A penny is three-quarters. The nickel is next. The quarter is at the bottom. Every coin rolls down until it finds a hole it fits. Under each hole there was a cup.”
 
 “Did it work?”
 
@@ -248,9 +248,9 @@ The sun went down behind the ridges to the west at 8:18. The sandstone under us 
 
 I have a word for most things. Since May I had been trying to find the one for this and file it. I had tried *test condition*, and *anomaly*, and *the evening I did not want to end*. None of them held. At 12:31 that morning I had sat down at her table. I had read three hundred and twelve reviews to find nine people. I would have read three thousand.
 
-I had nothing written down. I bring a card to everything that matters, and I run what is on it until I know where each line will land. Everything I have said that mattered since 2009 I said first to Janice, or to a room, or to the mirror in a hotel bathroom. The only card I had on that rock was in my shirt pocket, and it was hers. Seven of my lines were struck through on the back of it in her pencil.
+I had nothing written down. I bring a card to everything that matters and run what is on it until I know where each line will land. Everything I have said that mattered since 2009 I said first to Janice, or to a room, or to the mirror in a hotel bathroom. The only card I had on that rock was in my shirt pocket. It was hers. Seven of my lines were struck through on the back of it in her pencil.
 
-I could not run this one. She might laugh into her hand, as she had at the falls. She might say nothing at all, and get up, and drive me home down Skyline, and I would sit beside her for forty minutes with it said. In May Remy had told me how long my relationships last. It was four point one months. It was twelve weeks to the day since the Pied Piper. My pulse was in my neck. I put my hand flat on the rock beside her. It was still warm.
+I could not run this one. She might laugh into her hand, as she had at the falls. She might say nothing at all, get up and drive me home down Skyline. I would sit beside her for forty minutes with it said. In May Remy had told me how long my relationships last. It was four point one months. It was twelve weeks to the day since the Pied Piper. My pulse was in my neck. I put my hand flat on the rock beside her. It was still warm.
 
 At 8:19 I tried the plain word. It held.
 

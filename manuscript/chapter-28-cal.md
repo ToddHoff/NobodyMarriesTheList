@@ -12,7 +12,7 @@ The last thing in it was what I had sent on Friday night. *Understood. We will b
 
 It was clear and cool. The moon was over the oaks to the south, most of it, bright enough to put the post's shadow on the gravel. The air smelled of dry grass and the bay trees. Two deer stood in the field across the road and watched us.
 
-On the rock she had told me to say it again when my pulse was normal. At her hood my pulse had been normal for half a mile. I said it again, and she kissed me. At Ventana she put her hand on mine on the terrace in front of everybody. I turned mine over and waited. She passed me the bread. On Sunday morning on the deck I had it ready twice, over my coffee. Both times I drank the coffee.
+On the rock she had told me to say it again when my pulse was normal. At her hood my pulse had been normal for half a mile. When I said it again, she kissed me. At Ventana she put her hand on mine on the terrace in front of everybody. I turned mine over and waited. She passed me the bread. On Sunday morning on the deck I had it ready twice, over my coffee. Both times I drank the coffee.
 
 She had told me when to say it. I had said it when she told me to. What came after that, she had not said. I had nothing to work from.
 
@@ -178,13 +178,13 @@ He said it to the road.
 
 “You came, though.”
 
-The wind hit us at the water tank. It came over the ridge from the ocean, steady, cold enough to make my eyes run, and it had the fog in it. I could feel the wet on my face.
+The wind hit us at the water tank. It came over the ridge from the ocean, steady, cold enough to make my eyes run, with the fog in it. I could feel the wet on my face.
 
 At the top there was a granite post with the names of the mountains around the bay cut into it. West of it there was nothing but white.
 
-The fog lay on the ocean side of the ridge, level with our boots, a field of it going out to where the ocean should have been. The sun was low over it. The top of it was gold. In the wind it came up over the edge in pieces and went past us, wet and cold, and ten feet down the other side each piece came apart and was gone. I put my hand out into one. It came back wet.
+The fog lay on the ocean side of the ridge, level with our boots, a field of it going out to where the ocean should have been. The sun was low over it. The top of it was gold. In the wind it came up over the edge in pieces and went past us, wet and cold. Ten feet down the other side each piece came apart and was gone. I put my hand out into one. It came back wet.
 
-On the other side it was clear. The whole bay was below us, flat and silver in the evening light, from the airport out as far as I could see in both directions. The runways went out into it. To the southeast the San Mateo Bridge ran across it, low and long, with the sun on the cars. Past the water the East Bay hills were gold, and over them Mount Diablo stood up by itself. Far to the north, over the fog lying on the city, one more mountain stood up alone, blue, with the sun on its top.
+On the other side it was clear. The whole bay was below us, flat and silver in the evening light, from the airport out as far as I could see in both directions. The runways went out into it. To the southeast the San Mateo Bridge ran across it, low and long, with the sun on the cars. Past the water the East Bay hills were gold, with Mount Diablo standing up by itself over them. Far to the north, over the fog lying on the city, one more mountain stood up alone, blue, with the sun on its top.
 
 “Tamalpais,” Owen said, reading the post.
 
@@ -338,7 +338,7 @@ She said both of them to the white truck, not to me. Behind her Frank had rolled
 
 “What is wrong?” I said.
 
-She looked at me then. Her eyes were red at the rims from the wind. She had a pad over her shoulder, and her hair had come out of its tie on one side. I wanted to put it back.
+She looked at me then. Her eyes were red at the rims from the wind. She had a pad over her shoulder, her hair out of its tie on one side. I wanted to put it back.
 
 “I've got it,” she said.
 
@@ -360,11 +360,11 @@ I turned my back to it.
 
 “Thirds.”
 
-He laid his long side in a third of the way, and I laid mine over it.
+He laid his long side in a third of the way. I laid mine over it.
 
 “Walk it in.”
 
-I walked my end to him, and he took it out of my hands.
+When I walked my end to him, he took it out of my hands.
 
 “Again.”
 
@@ -384,7 +384,7 @@ At 10:02 that night I typed it myself.
 
 *Your father and I folded forty-eight pads.*
 
-I sent it. I sat at my counter with the phone face up and Pancake on my feet. Every few minutes the screen went dark, and I touched it awake again. At 11:40 it still said Delivered.
+I sent it. I sat at my counter with the phone face up and Pancake on my feet. Every time the screen went dark, I touched it awake again. At 11:40 it still said Delivered.
 
 ***
 
@@ -428,13 +428,13 @@ I had a board call at eleven and two people at one. I did both. Nobody on the ca
 
 Between them I sat with it.
 
-In July her last payment had been November 2036, when she would be fifty-five. On Sunday I had found *skip Aug* under it, which moved it to December. A transmission was four months of her nineteen hundreds. Hillsborough had taken another two and a half. On Sunday on a deck over the canyons she had started to stack our plates, and I had put my hand over hers. Her father was driving her loads on his knees so that she would not have to ask anyone for a driver.
+In July her last payment had been November 2036, when she would be fifty-five. On Sunday I had found *skip Aug* under it, which moved it to December. A transmission was four months of her nineteen hundreds. Hillsborough had taken another two and a half. On Sunday on a deck over the canyons she had started to stack our plates until I put my hand over hers. Her father was driving her loads on his knees so that she would not have to ask anyone for a driver.
 
 In June, in my mother's back yard, Owen asked me nine questions. Question six was whether I take days off. He told me his mother had not had one since he was born. He told me she would take one when the house was paid. He told me that in November she had fallen asleep on her kitchen floor with the sponge in her hand. He had put the blanket on her and gone to bed. In Hawaii she took three. I was there for all of them.
 
 On Wednesday Owen told me she would go up Sweeney Ridge when the house was paid. She went up it anyway, for one evening, because he told her I wanted to see it. One evening was what Owen could get her. I could get her the rest of them.
 
-On July 18 at her table she told me she would have a party in her driveway when it was paid, and she would not invite the bank. She would be fifty-five. Owen would be nineteen. She could have it in August. She would be forty-four. Owen would be nine.
+On July 18 at her table she told me she would have a party in her driveway when it was paid. She would not invite the bank. She would be fifty-five. Owen would be nineteen. She could have it in August. She would be forty-four. Owen would be nine.
 
 In 2012 I had paid off my mother's house from the back of a car, between two meetings. Janice sent the wire. For thirteen years after that my mother put six hundred and twelve dollars in a shoebox on the first of every month. I had counted them ten days before. She was stubborn. Jo was stubborn too. I knew Jo's payment to the cent. I had run it in my head at her table before she could show me the spreadsheet. I had told her I loved her, on a rock and across the hood of her truck. In 2012 I had wanted my mother to stop making a payment. I wanted Jo to have her party in August.
 
@@ -452,7 +452,7 @@ At 3:12 I confirmed the payment.
 
 At 3:30 Janice knocked twice and came in. She put a sheet of her own notepaper on my desk.
 
-It was written by hand, in blue ink. *Calvin. My last day will be Friday, August 28. Janice Louie.* She had dated it at the top, 8/7/26, and crossed the seven.
+It was written by hand, in blue ink. *Calvin. My last day will be Friday, August 28. Janice Louie.* She had dated it at the top, 8/7/26, with the seven crossed.
 
 She had picked the twenty-eighth. Every dial in her office sits on an even number.
 

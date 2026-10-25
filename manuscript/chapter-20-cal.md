@@ -4,7 +4,7 @@
 
 At 4:58 on Thursday morning I turned my watch face up. It had been face in since the Saturday before, when Jo turned it over in her bed. The watch had my board meeting at nine.
 
-Since Saturday night I had not known the time without asking someone. On Maui I asked Owen. He told me to the minute, and then he told me how many minutes it was until we could go back in the water. On the Big Island the time was whatever the volcano was doing. I would have predicted that not knowing would bother me. I had gone two whole days without wanting to know.
+Since Saturday night I had not known the time without asking someone. On Maui I asked Owen. He told me to the minute, then how many minutes it was until we could go back in the water. On the Big Island the time was whatever the volcano was doing. I would have predicted that not knowing would bother me. I had gone two whole days without wanting to know.
 
 Pancake was waiting at the door. Rita had walked him for three days. He took me to the end of the road and back at a pace that made his position on that clear.
 
@@ -38,11 +38,11 @@ Abby has told Janice things first since she was twelve. Janice tells me what she
 
 At nine I sat at the end of a table with eight people who wanted to talk about the quarter. Nobody asked about the volcano. On the second slide I found I was tapping the table with one finger. It was the song. Owen had played it from somewhere over the ocean until the fog. *Pancake. Make no mistake.* Our general counsel was looking at my finger. I put my hand flat on the table and kept it there.
 
-Somewhere in the revenue slides I was back in the water on Maui with my arms out, and Owen was telling me not to do anything. I had done it. I had lain on top of the Pacific Ocean for a minute and a half and done nothing at all. It held me up. I did not know where to put that in a board meeting. I kept my hand flat until the quarter was over.
+Somewhere in the revenue slides I was back in the water on Maui with my arms out, Owen telling me not to do anything. I had done it. I had lain on top of the Pacific Ocean for a minute and a half and done nothing at all. It held me up. I did not know where to put that in a board meeting. I kept my hand flat until the quarter was over.
 
 ***
 
-I had last seen her at 9:40 on Wednesday night, at the private terminal at SFO, with Owen asleep on my shoulder. She took her own bag and his and would not let me carry either one. She let me carry Owen to her truck. I put him in the back seat and did his belt, and she watched me do it with her keys in her hand. Then she said, “Thursday's a workday,” and drove home to San Bruno. I stood beside the plane with nothing in my hands until the woman who looked after the cabin asked if I needed anything.
+I had last seen her at 9:40 on Wednesday night, at the private terminal at SFO, with Owen asleep on my shoulder. She took her own bag and his and would not let me carry either one. She let me carry Owen to her truck. I put him in the back seat and did his belt while she watched me do it with her keys in her hand. Then she said, “Thursday's a workday,” and drove home to San Bruno. I stood beside the plane with nothing in my hands until the woman who looked after the cabin asked if I needed anything.
 
 Jo did not write on Thursday. I had not expected her to. She had three days of work to make up and two trucks out.
 
@@ -92,7 +92,7 @@ Jo looked at the water.
 
 “At my father's. Owen's showing him the volcano videos. My father's watched them six times. He still hasn't said what he thinks.”
 
-Her nose was peeling. It had been in the sun on Maui for two days. She had on the gray crew shirt and the boots, and her hair was tied back tight. On Tuesday night it had been loose in the wind at the rim. She had put her hand flat on my back and left it there. I felt it through the sweatshirt for three hours. Now she was on a job. On a job she talks in colors and directions. She looks at you for as long as a color takes. I wanted to put my mouth on the peeling place anyway.
+Her nose was peeling. It had been in the sun on Maui for two days. She had on the gray crew shirt and the boots, her hair tied back tight. On Tuesday night it had been loose in the wind at the rim. She had put her hand flat on my back and left it there. I felt it through the sweatshirt for three hours. Now she was on a job. On a job she talks in colors and directions. She looks at you for as long as a color takes. I wanted to put my mouth on the peeling place anyway.
 
 “Green or blue?” she said, in the door of my old room.
 
@@ -194,7 +194,7 @@ She told it better than it was. I had not known she would tell it at all.
 
 Jo did not answer right away.
 
-“It didn't go,” she said. “All afternoon. The scientist said maybe tomorrow, and we were flying home tomorrow. Owen quit talking.”
+“It didn't go,” she said. “All afternoon. The scientist said maybe tomorrow. We were flying home tomorrow. Owen quit talking.”
 
 “Like Kevin.”
 
@@ -218,7 +218,7 @@ I had sat down at the rim because I could not think of anything to buy. In June 
 
 I wanted to go out through the screen and sit down on the bench between them. I wanted to tell her I had not known what else to do. I stayed where I was, with Pancake on my feet. If I went out there she would stop talking. I wanted to hear the rest of it more than I wanted to be seen.
 
-“Then it went,” Jo said. “You see it, and you count to nine before you hear it. Fourteen hundred feet. Two of them. I had my hand on my chest like a lady in church. I didn't know I'd put it there.”
+“Then it went,” Jo said. “You see it first. You count to nine before you hear it. Fourteen hundred feet. Two of them. I had my hand on my chest like a lady in church. I didn't know I'd put it there.”
 
 “You slept,” Denise said. “I can see it on you.”
 
@@ -288,7 +288,7 @@ She looked at me for some time. She has her sister's eyes. Hers move more.
 
 At 11:48 that morning I sat in my car across the street with the engine off and called Dawn Pruitt. She had called me twice since May. I had not called her. For eight years Janice had made my appointments with her.
 
-She picked up on the second ring. I heard a door close behind her, and the street noise went away.
+She picked up on the second ring. When a door closed behind her, the street noise went away.
 
 “Cal.”
 
@@ -318,9 +318,9 @@ She had pulled them before I asked. I have sat across tables from people like th
 
 “Read them to me,” I said.
 
-“The first one said generous. Then lovely. Busy. Generous. Very generous. Kind. The last one said generous, and then she said, he sends the most beautiful things.”
+“The first one said generous. Then lovely. Busy. Generous. Very generous. Kind. The last one said generous. Then she said, he sends the most beautiful things.”
 
-I counted while she read. Three of them had said generous, and a fourth very generous. Not one of them had said anything I could not have put on a slide.
+I counted while she read. Three of them had said generous, a fourth very generous. Not one of them had said anything I could not have put on a slide.
 
 “None of them were unkind,” I said.
 
@@ -334,7 +334,7 @@ I counted while she read. Three of them had said generous, and a fourth very gen
 
 “She means she never met him. She met the packages.”
 
-The car was hot. I had left the windows up. Across the street Vili had put the lamps on the truck and gone back in, and the front door of my mother's house stood open on the atrium.
+The car was hot. I had left the windows up. Across the street Vili had put the lamps on the truck and gone back in, leaving the front door of my mother's house open on the atrium.
 
 I went down the seven. I could not see their faces. I could see the inn in Napa, and the boxes. Remy had chosen the boxes. I had approved them in about a second each. Each of the seven had written to thank me for them. I had approved the replies.
 
@@ -398,7 +398,7 @@ She let the tape run back into the case. It went in with a snap.
 
 “I heard all of it from the milk.”
 
-She looked at the frames instead of me. Her face was still red at the top of her collar, and there was sweat at her hairline. The hall was the hottest place in the house. It was three feet wide. I was close enough to see the peeling place on her nose and the freckles under it that had not been there two weeks ago.
+She looked at the frames instead of me. Her face was still red at the top of her collar, with sweat at her hairline. The hall was the hottest place in the house. It was three feet wide. I was close enough to see the peeling place on her nose and the freckles under it that had not been there two weeks ago.
 
 “Then you heard me say you threw up.”
 
@@ -424,7 +424,7 @@ Vili came through the far end of the hall with the dolly, looked at the two of u
 
 ***
 
-Abby's car pulled in at 12:05, where Denise's had been. She came up the walk in shorts and sandals with her sunglasses on her head, and she stopped when she saw Jo in the doorway with the clipboard.
+Abby's car pulled in at 12:05, where Denise's had been. She came up the walk in shorts and sandals with her sunglasses on her head and stopped when she saw Jo in the doorway with the clipboard.
 
 “You're Jo,” she said.
 
@@ -438,7 +438,7 @@ Abby looked at her for a second. Then she smiled with her whole face. I had not 
 
 They were in the atrium for ten minutes. Abby told Jo she moves into her dorm at Cal Poly on the eighteenth of August, for architecture. I had it as September. It was on my refrigerator. I had not read it. It was twenty-four days. I had been counting on September without knowing I was counting on anything.
 
-She wanted to know about the house. Jo has moved more Eichlers than Abby had been inside. Jo showed her where the posts carry the roof and where the beams run out past the glass. She told her the heat was hot water in copper pipes in the slab, and not to let anybody drill the floor.
+She wanted to know about the house. Jo has moved more Eichlers than Abby had been inside. Jo showed her where the posts carry the roof and where the beams run out past the glass. She told her the heat was hot water in copper pipes in the slab, so never to let anybody drill the floor.
 
 “Grandma said the floor was warm in winter,” Abby said. “I used to lie on it.”
 
@@ -478,7 +478,7 @@ Pancake came down the hall at the sound, the way he comes to anything that falls
 
 He stayed.
 
-A week ago I found the scar on the back of her calf. She got down on her knees on the floor eighteen inches from my dog, with her back half to him so that she could see the grout. She tore off a length of green tape and wrapped it around her fingers sticky side out, and she went over the floor with it, square by square, lifting the slivers out of the grout so he would not cut a foot. When the tape was full she folded it on itself and tore another. She did not look up at me.
+A week ago I found the scar on the back of her calf. She got down on her knees on the floor eighteen inches from my dog, with her back half to him so that she could see the grout. She tore off a length of green tape, wrapped it around her fingers sticky side out and went over the floor with it, square by square, lifting the slivers out of the grout so he would not cut a foot. When the tape was full she folded it on itself and tore another. She did not look up at me.
 
 I did not say anything. If I had, she would have had to answer me.
 

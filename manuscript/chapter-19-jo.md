@@ -76,7 +76,7 @@ He could have said it was for Owen. It was true enough. I'd have had nothing to 
 
 He'd just read the statement. He knew the month.
 
-I took two days when my mother died, and I take her birthday. I don't count those.
+I don't count the two days I took when my mother died, or the one I take every year on her birthday.
 
 “He's nine,” I said. “He tells the dentist I don't floss.”
 
@@ -138,7 +138,7 @@ The plane had eight seats and a woman whose whole job was the three of us. Owen 
 
 Coming in over Maui, the ocean under us changed color. It went from the dark blue we'd had since San Francisco to a green I'd only ever seen in the fish tank at a dentist's office, so clear that the reef showed through it in brown and gold patches, with a white line of surf drawn around the edge of everything. Owen and I had our foreheads on the same window.
 
-Then a mountain filled it. It rose straight from the water, green at the bottom and rust red above the green, with a cloud sitting on its top, and it kept going up after I thought it had to stop.
+Then a mountain filled it. It rose straight from the water, green at the bottom and rust red above the green, with a cloud sitting on its top. It kept going up after I thought it had to stop.
 
 “That is Haleakalā,” Cal said. “It is ten thousand and twenty-three feet.”
 
@@ -162,7 +162,7 @@ A wind came off the water through the gap, warm and salty, and lifted my hair of
 
 Owen touches a doorframe twice going into any house. There was no frame. He touched the stone twice.
 
-The floor was koa, a gold wood with the grain running through it in waves. The boards were a foot wide and twenty feet long. Each board was most of a tree. The living room ran sixty feet. On the ocean side it had no wall. The doors were pocket doors, twelve feet high. Every one of them was slid back into the wall. The room went straight out onto a stone terrace. The terrace went out to a lawn. The lawn went down to a strip of white sand, and the sand went into water so clear I could see the rocks on the bottom from the house. Past the rocks the water turned blue, then a blue so dark it was nearly purple. Out in the purple a little island lay in a half circle, like a bangle somebody had taken off and left on a dresser. Behind it was a big brown island with nothing on it at all.
+The floor was koa, a gold wood with the grain running through it in waves. The boards were a foot wide and twenty feet long. Each board was most of a tree. The living room ran sixty feet. On the ocean side it had no wall. The doors were pocket doors, twelve feet high. Every one of them was slid back into the wall. The room went straight out onto a stone terrace. The terrace went out to a lawn. The lawn went down to a strip of white sand. The sand went into water so clear I could see the rocks on the bottom from the house. Past the rocks the water turned blue, then a blue so dark it was nearly purple. Out in the purple a little island lay in a half circle, like a bangle somebody had taken off and left on a dresser. Behind it was a big brown island with nothing on it at all.
 
 My bag slid off my shoulder onto the koa. I didn't check the floor for a scratch.
 
@@ -200,7 +200,7 @@ Out on the lanai a bed hung from the beams on four ropes, facing the water, made
 
 “Nobody's been in it,” Gil said.
 
-The pool had no far edge. The water ran to a stone lip and went over, and past the lip was the ocean, so from the house it looked like one water.
+The pool had no far edge. The water ran to a stone lip and went over. Past the lip was the ocean, so from the house it looked like one water.
 
 “Where's it go?” I said.
 
@@ -300,7 +300,7 @@ Owen came up next to me, pulled his snorkel out and said a word. It was the one 
 
 “That's the state fish,” he said. “I practiced.”
 
-Past the reef the sand went down in a long slope, and then there wasn't any bottom. There was only blue, going darker the farther I looked, with the sun coming down into it in long bright ladders that swayed. I hung over the drop and breathed through the tube. For a while I forgot I had two trucks in Burlingame.
+Past the reef the sand went down in a long slope until there wasn't any bottom. There was only blue, going darker the farther I looked, with the sun coming down into it in long bright ladders that swayed. I hung over the drop and breathed through the tube. For a while I forgot I had two trucks in Burlingame.
 
 Owen grabbed my arm.
 
@@ -342,11 +342,11 @@ Cal sat back on his heels and looked at what was left.
 
 “It makes a new one every time,” Cal said.
 
-I went and stood in the water up to my knees for a while and looked at the little island instead of him. My stomach had gone over the hill again.
+I went and stood in the water up to my knees for a while and looked at the little island instead of him.
 
 ***
 
-The sun went down far to the right of the little island, behind a long flat island way out. The sea between us and the sun turned gold, then the color of the inside of a peach, and the far island went black. Owen had read on the plane about a green flash, a green spark right as the sun goes under. He watched for it with his whole body.
+The sun went down far to the right of the little island, behind a long flat island way out. The sea between us and the sun turned gold, then the color of the inside of a peach, while the far island went black. Owen had read on the plane about a green flash, a green spark right as the sun goes under. He watched for it with his whole body.
 
 It didn't come.
 
@@ -438,7 +438,7 @@ That was all. Nobody pushed back in a seat. Nothing roared. I've been in freight
 
 Inside it was one long room with windows down both sides and a big curved one around the back. One window on each side opened. Owen had his open before the pilot finished telling us we could, and put his whole head out. I held his belt. I'd have held it if he were thirty.
 
-Then I put my own face out beside his. The air was warm and wet and smelled like rain on hot ground. Under us the forest went by close enough to pick out single trees, and here and there a top had gone red with flowers, like spatter off a roller. I had one hand on my son's belt and nothing else in the world to carry.
+Then I put my own face out beside his. The air was warm and wet and smelled like rain on hot ground. Under us the forest went by close enough to pick out single trees, here and there a top gone red with flowers, like spatter off a roller. I had one hand on my son's belt and nothing else in the world to carry.
 
 It was quiet. The engines were out on the sides and behind, not under us. You can't talk on an airplane. Here you could talk in your regular voice. With the window open you could hear a dog barking in Hilo, a thousand feet down.
 
@@ -486,7 +486,7 @@ My face went hot at a thousand feet.
 
 ***
 
-Then we went up the mountain toward the top, over black ground and green ground and black again. The steam came first, out of cracks in the ground in long white rows. Then the ground fell away under us all at once. We were over the crater. Heat came in Owen's window like opening the back of the truck at three o'clock in August, and the whole airship rose a little on it, the long room all at once, like my father's boat lifting on a wake.
+Then we went up the mountain toward the top, over black ground and green ground and black again. The steam came first, out of cracks in the ground in long white rows. Then the ground fell away under us all at once. We were over the crater. Heat came in Owen's window like opening the back of the truck at three o'clock in August. The whole airship rose a little on it, the long room all at once, like my father's boat lifting on a wake.
 
 I measure everything by eye. I've done it since I was a kid in the cab with my father. I couldn't put a number on that hole. It went on for miles. The walls were cliffs, gray and tan, with layers in them. The floor was black and shining, like a parking lot after rain. Down in one end of it were two black hills, like the piles at the transfer station.
 
@@ -494,7 +494,7 @@ I measure everything by eye. I've done it since I was a kid in the cab with my f
 
 The north one was red at the top.
 
-It was the first red I'd seen. In daylight, in the sun, red. It sloshed up in the top of that hill, and a little ran over the lip and down the side, slow as pancake batter off a spoon. Steam came off it where it ran. The cabin smelled like a match right after you strike it.
+It was the first red I'd seen. In daylight, in the sun, red. It sloshed up in the top of that hill until a little ran over the lip and down the side, slow as pancake batter off a spoon. Steam came off it where it ran. The cabin smelled like a match right after you strike it.
 
 “She's been spilling over since four this morning,” Dr. Okamura said.
 
@@ -510,7 +510,7 @@ Owen had both hands flat on the glass. “Is it going?”
 
 Dr. Okamura looked at him like he'd handed her something.
 
-About then the wind came across the top of the mountain, and the cabin swung with it, side to side, slow. Cal went gray. He sat down on the bench at the back with his eyes shut. It was the best seat on the airship, with the big curved window all around it.
+About then the wind came across the top of the mountain and swung the cabin with it, side to side, slow. Cal went gray. He sat down on the bench at the back with his eyes shut. It was the best seat on the airship, with the big curved window all around it.
 
 “Are you okay?” I said.
 
@@ -536,7 +536,7 @@ I stayed on the bench with him. He'd had the zeppelin put on a ship and sent acr
 
 We landed late that morning. After lunch Dr. Okamura drove us up to the top in her own truck, which had a cracked windshield and a dashboard full of rocks. She took us out to a place on the rim with a rope across it and a ranger who knew her name. From there the crater lay out in front of us. The two hills were down at the far end of the floor, a couple of miles off. The north one was still spilling.
 
-Every few minutes it did something I didn't have a word for. The red would rise up inside the top of it, and a roar would come up with it, louder and louder, like a truck with a hole in the muffler going up a grade. Then it would stop dead. The red would drop out of sight. Then it would come back up and spill a little more.
+Every few minutes it did something I didn't have a word for. The red would rise up inside the top of it, bringing a roar up with it, louder and louder, like a truck with a hole in the muffler going up a grade. Then it would stop dead. The red would drop out of sight. Then it would come back up and spill a little more.
 
 “Gas pistoning,” Dr. Okamura said. “She's clearing her throat.”
 
@@ -572,7 +572,7 @@ I looked at my watch eleven times. He didn't look at his once. He'd worn it face
 
 I'd figured he'd turn it back the minute he got to his car. He hadn't.
 
-The sun went down behind the big mountain to the west. The cliffs went pink and then gray. Down the rim, people were coming out from the parking lot in jackets, a few at a time, and lining up along the rope. Half a moon was already up over the crater, very white. The red in the north vent got brighter as the sky got darker, and the steam over it lit up orange from underneath.
+The sun went down behind the big mountain to the west. The cliffs went pink and then gray. Down the rim, people were coming out from the parking lot in jackets, a few at a time, and lining up along the rope. Half a moon was already up over the crater, very white. The red in the north vent got brighter as the sky got darker, until the steam over it glowed from underneath.
 
 Then the north vent cleared its throat. It didn't stop.
 
@@ -674,7 +674,7 @@ Cal came in out of the water a while later with his hair flat to his head.
 
 He was in swim trunks. There was nowhere to put a card.
 
-Before we left I walked it one more time. I always walk a house at the end. There was sand in the hall. There were wet towels on the rail by the pool, and a sandwich wrapper on the counter, and a dent in the hanging bed where somebody had slept on it, and the sand by the water was smooth where the circle had been. It looked like a house somebody had been to.
+Before we left I walked it one more time. I always walk a house at the end. There was sand in the hall. There were wet towels on the rail by the pool, and a sandwich wrapper on the counter, and a dent in the hanging bed where somebody had slept on it. The sand by the water was smooth where the circle had been. It looked like a house somebody had been to.
 
 I went to strip the beds. Gil stopped me in the hall.
 

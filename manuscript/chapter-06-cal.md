@@ -7,18 +7,18 @@ At 9:07 that Saturday night, Remy asked me to approve a message.
 ```
 REMY · 9:07 PM
 Draft to J. Silveira, from Janice.
-"Thank you for today. You read three
-labels this morning that I would..."
+"Thank you for today. At eight you
+read three labels I would..."
 Approve?
 ```
 
 I opened it and read all of it, which I do not usually do.
 
-At 7:30 I had given Janice eleven minutes on the day, with times. I had told her about the labels, the dog and the half sandwich. I had told her that I have never been able to determine why Pancake leans on people.
+At 7:30 I had given Janice eleven minutes on the day, with times. I had told her about the labels, the dog and the half sandwich. I had told her that Pancake has never said why he leans on people.
 
 Janice had an answer for that. It was in the draft, after a semicolon. *He leans on the people he intends to keep.*
 
-It was a better message than I would have sent. It was warmer than I am, and it had my facts in it. That has been true of every message Janice has written for me since 2009. I approve about three hundred things a day, and I stopped reading them in 2019.
+It was a better message than I would have sent: warmer than I am, with my facts in it. That has been true of every message Janice has written for me since 2009. Since 2019 I have approved about three hundred things a day without reading them.
 
 I tested Janice's sentence. At lunch I had told Jo what Pancake does and that I did not know why. By 9:07 Janice had a why. It failed on the senator, because Pancake had no intention of keeping the senator. On Jo the result was not in. One failure and one open case is not a result I would approve at work. I wanted it to be true of her.
 
@@ -32,9 +32,9 @@ Her answer came at 9:21.
 
 “Janice has signed off,” Remy said. “Draft a reply?”
 
-I had already sent one. I typed it with my thumbs in nine seconds, and it contained the one word I have been told not to use.
+I had already sent one. I typed it with my thumbs in nine seconds, including the one word I have been told not to use.
 
-She did not answer it. I looked at the phone for eleven minutes, and my watch reported twice.
+She did not answer it. For eleven minutes I looked at the phone, while my watch reported twice.
 
 I read her five words as a spec. There was a day and an item. There was no end time. On the bench she had told me I was done at eleven. I had stayed until the door came down on the truck. Her crew eats at eleven. If I brought a lunch, I would be there at eleven to eat it. She was telling me to stay. I looked for another reading for some time and did not find one.
 
@@ -60,17 +60,17 @@ I did not ask what they were.
 
 Nothing in that plan had ever come back to me as a problem. I had no reason to read it on a Saturday night. I was still watching the phone for her.
 
-There was one thing I did not hand to anyone. I owed her half a sandwich. I had been told on a bench what my job was on Saturdays, and I decided that the debt came under it.
+There was one item I kept off the plan. I owed her half a sandwich. On the bench she had said, “Saturdays, you bring your own.” I read that to include debts.
 
 ***
 
-On Monday I called the number on the door of her truck. I had read it once, on Minna Street, and kept it. I dialed it myself. A person answered, which I had not prepared for.
+On Monday I called the number on the door of her truck. I had read it once, on Minna Street. I read everything with a number on it. I dialed it myself. A person answered, which I had not prepared for.
 
 “Silveira Moving.”
 
 “This is Cal Brennan. I would like to bring Ms. Silveira something at her yard. I am calling to ask when.”
 
-There was a silence, and then the sound of a hand going over a telephone.
+There was a silence, then the sound of a hand going over a telephone.
 
 “Tuesday,” the woman said. “Eleven-thirty. She'll be on the dock. Don't tell her I said.”
 
@@ -86,15 +86,15 @@ On Tuesday I moved a product review. I had not moved one before.
 
 On October 6, at 2:14 in the afternoon, I was in one. I did not come out of it. Remy took my mother's call. I did not think of that when I moved this one. I thought of it at a red light in San Jose and sat through the green.
 
-I walked Pancake at five in the morning, and I was in San Jose by ten. There is a neighborhood there called Little Portugal. I did not ask Remy for the best bakery in it. I drove down the street until I found a door with nine people over seventy waiting outside. I stood behind them for fourteen minutes. Farther along, the white towers of a church stood up over the roofs. The people in line were all speaking Portuguese at once. Inside, the air was warm and smelled of yeast and burnt sugar. The case ran the length of the room. Most of it was round loaves of sweet bread with shining tops. The custard tarts at the end were scorched black in spots, every one of them. The woman behind the counter called every customer *querida* or *querido*. When it was my turn she called me *querido* too. I wanted her to say it again.
+I walked Pancake at five in the morning and was in San Jose by ten. There is a neighborhood there called Little Portugal. I did not ask Remy for the best bakery in it. I drove down the street until I found a door with nine people over seventy waiting outside. I stood behind them for fourteen minutes. Farther along, the white towers of a church stood up over the roofs. The people in line were all speaking Portuguese at once. Inside, the air was warm and smelled of yeast and burnt sugar. The case ran the length of the room. Most of it was round loaves of sweet bread with shining tops. The custard tarts at the end were scorched black in spots, every one of them. The woman behind the counter called every customer *querida* or *querido*. When it was my turn she called me *querido* too. I wanted her to say it again.
 
-At the counter I asked for sausage and egg on a sweet roll. I may have pointed. I paid with my phone, because I do not carry a wallet, and I drove north with a paper bag on the passenger seat. The car had 1,100 miles on it. I have owned it for three years.
+At the counter I asked for sausage and egg on a sweet roll. I may have pointed. I paid with my phone, because I do not carry a wallet. I drove north with a paper bag on the passenger seat of a car I have owned for three years and driven 1,100 miles.
 
 I had one sentence ready for when I handed her the bag. I worked on it from the bakery north and said it out loud twice in the car. At the bar I had waited most of an hour to see her smile a second time. I wanted it sooner this time.
 
-Her yard is at the end of a street of warehouses, under the hill. The hill says SOUTH SAN FRANCISCO THE INDUSTRIAL CITY in white letters, and that morning I could read every one.
+Her yard is at the end of a street of warehouses, under the hill. That morning I could read every white letter on it: SOUTH SAN FRANCISCO THE INDUSTRIAL CITY.
 
-She was on the loading dock with her back to me, pulling a strap tight across a stack of pads. She put her whole weight into it. Her hair was coming out of its tie, and the pencil was behind her ear.
+She was on the loading dock with her back to me, pulling a strap tight across a stack of pads. She put her whole weight into it. Her hair was coming out of its tie, the pencil behind her ear.
 
 *Heart rate 101.* I let it report. I had decided the data was useful.
 
@@ -102,7 +102,7 @@ I had seen her three times. Each time there had been a reason on paper. Dawn arr
 
 “He CALLED,” someone shouted from the office window. That was the sister.
 
-Jo turned around. She saw me, and then the bag, and she did not come down off the dock.
+Jo turned around. She saw me, then the bag. She did not come down off the dock.
 
 “You called,” she said.
 
@@ -144,7 +144,7 @@ She unwrapped it on the edge of the dock and lifted the top of the roll.
 
 “I said sausage. I may have pointed.”
 
-“You pointed at a pork cutlet.” She took a bite. She chewed, and looked at the hill. “It's wrong.”
+“You pointed at a pork cutlet.” She took a bite. She chewed, looking at the hill. “It's wrong.”
 
 “I can go back.”
 
@@ -152,7 +152,7 @@ She unwrapped it on the edge of the dock and lifted the top of the roll.
 
 “Is wrong a problem?”
 
-“The flowers were right. The text was right.” She took another bite. “I'm eating, Cal.”
+“The flowers were right. The text was right. You don't have to be right all the time.” She took another bite. “I'm eating, Cal.”
 
 I watched her eat the bifana standing up, all of it. I did not think about the product review. She wiped her hands on her jeans.
 
@@ -172,15 +172,15 @@ She looked at my left hand.
 
 “Let me see.”
 
-It was a Tuesday, in her yard, in front of her father, and she took my hand and turned it over. The cut was a thin line. She pressed beside it once with her own thumb, checking, and my watch tapped my other wrist. *Heart rate 108.*
+On a Tuesday, in her yard, in front of her father, she took my hand and turned it over. The cut was a thin line. When she pressed beside it once with her own thumb, checking, my watch tapped my other wrist. *Heart rate 108.*
 
 “You'll live,” she said.
 
-She let go sooner than she had on Saturday. I noticed, and I think she meant me to.
+She let go sooner than she had on Saturday. I noticed, which I think she meant me to.
 
 I had kept her green tape on that thumb until it came off in the shower on Monday morning. I did not tell her that.
 
-There was an old man in a kitchen chair on the dock, in the shade of the door. Somebody had carried that chair out for him once, and nobody had carried it back. He had a tide book the size of a deck of cards open on his knee, and he had been watching me over it since the gate.
+There was an old man in a kitchen chair on the dock, in the shade of the door. Somebody had carried that chair out for him once. Nobody had carried it back. Over a tide book the size of a deck of cards, open on his knee, he had been watching me since the gate.
 
 “Jo. Who's this?”
 
@@ -198,7 +198,7 @@ He looked at me for a while. I am looked at a good deal, usually by people decid
 
 “Didn't ask that.”
 
-“I know what you asked.”
+“Can't tell yet.”
 
 My first one on Saturday took a minute and ten seconds and was not square. I had not seen her check the others. She could only know they were square if she had turned them over when I was not looking.
 
@@ -212,7 +212,7 @@ He turned to me. “Those your boots?”
 
 The boots were Janice's work. The blisters were mine, one on each heel.
 
-He pointed the tide book at a ramp lying along the edge of the dock. It was aluminum, fourteen feet long, and it belonged in a slot under the white truck.
+He pointed the tide book at a ramp lying along the edge of the dock. It was fourteen feet of aluminum that belonged in a slot under the white truck.
 
 “That's been in my way since Thursday,” he said.
 
@@ -224,7 +224,7 @@ Jo looked at me. I went to the middle of the ramp and took hold of it there.
 
 “Not there,” she said. “That's not how you carry one. You take an end. Palms up.”
 
-I took an end, and she took the other. It was heavier than its dimensions suggested. I have lifted more than that in a gym four mornings a week for ten years. I have never had to walk anywhere with it.
+I took one end and she took the other. It was heavier than its dimensions suggested. I have lifted more than that in a gym four mornings a week for ten years. I have never had to walk anywhere with it.
 
 “On three,” she said. “I say three. You don't.”
 
@@ -236,7 +236,7 @@ I lifted on two.
 
 “Put it down.”
 
-We put it down. We did it again, on three, and walked it twenty feet with her going backward and telling me where the truck was. I slid my end into the slot. It took about a minute, and I was more pleased than the task warranted.
+We put it down. We did it again, on three, and walked it twenty feet with her going backward and telling me where the truck was. I slid my end into the slot. I was more pleased with that minute than the task warranted.
 
 The old man had watched all of it.
 
@@ -256,9 +256,9 @@ The big man from Saturday had come out of the warehouse with a hand truck. That 
 
 “One.”
 
-“There's eleven of us.”
+“There's seven of us.”
 
-“On Saturday he tried to buy lunch for everybody, and I told him to put his phone away.”
+“When he tried to buy lunch for everybody on Saturday, I told him to put his phone away.”
 
 Vili gave her a look I knew from my own board.
 
@@ -266,9 +266,9 @@ Vili gave her a look I knew from my own board.
 
 “Go eat, Vili.”
 
-He went, and he took his time going.
+He went, taking his time.
 
-I had brought one sandwich into a yard where eleven people worked. I had not thought about the other ten until Vili said the number. I had been thinking about the half I owed, and about her. I had not gotten any further than that. Vili had. He wanted to know what I was doing in her yard on a Tuesday. The wrapper was all he had to go on.
+I had brought one sandwich into a yard where seven people worked. I had not thought about the other six until Vili said the number. I had been thinking about the half I owed, and about her. I had not gotten any further than that. Vili had. He wanted to know what I was doing in her yard on a Tuesday. The wrapper was all he had to go on.
 
 She walked me toward my car and stopped short of it, at the fender of the white truck.
 
@@ -278,11 +278,11 @@ I knew the name. She was the daughter of the widow in Daly City, the one with th
 
 “Her mother got an envelope. Alaska, fourteen days, a balcony, two tickets, paid in full. No name on it.”
 
-“Yes.”
+“The Inside Passage,” I said. “The balcony is for the glaciers.”
 
-“That was you.”
+“I told one person about that coat.”
 
-“Yes.”
+“I left my name off it so that she would not have to write to thank me.”
 
 “I never told you her name.”
 
@@ -306,11 +306,21 @@ She took that in and set it to one side. I could see her decide to come back for
 
 “Who does she think sent it?”
 
-“Her husband. She thinks he booked it before he died, and it took this long to come. She has told everybody at the new place. Forty-one years he said they couldn't afford it, and he got her the cruise after all.”
+“Her husband. She thinks he booked it before he died and it took this long to come. She has told everybody at the new place. Forty-one years he said they couldn't afford it. He got her the cruise after all.”
 
-I had not specified that outcome.
+On the night we met she had told me about the bank envelope in his coat, thirty-one hundred dollars. I could not leave it alone. I sent a second envelope to the same woman, with no name on it. Mrs. Bautista had put the two together.
 
-Every item Jo had listed was in my request. On the night we met she had told me about the envelope in the coat. I could not leave it alone. I sent a second envelope to the same woman, with no name on it. Mrs. Bautista had put the two together.
+“What is the harm in her thinking he sent it?” I said. “She is happy.”
+
+“Sure. Rowena says she thanks him for it every night. Out loud, in his chair.”
+
+“Did she want to go?”
+
+“With him. That was the whole trip.”
+
+“I sent two tickets, so that she would not have to go alone.”
+
+“You sent her his.”
 
 “Rowena wants to send it back.”
 
@@ -326,7 +336,7 @@ Every item Jo had listed was in my request. On the night we met she had told me 
 
 “Explain what? That it wasn't him?”
 
-I ran it. I ran four versions. Every fix made it worse, and I do not often meet a problem with that property.
+I ran it. I ran four versions. Every fix made it worse, a property I do not often meet in a problem.
 
 In the first version she heard from a stranger at my office that it was not him. In the second she heard it from Rowena. In the third the cruise was canceled after she had told everybody at the new place that it was coming. In the fourth a card went out with my name on it. From then on the cruise was from a man she had never met.
 
@@ -338,7 +348,7 @@ In the first version she heard from a stranger at my office that it was not him.
 
 “Six.”
 
-She was not smiling this time. Then she was, a little, at one corner. I had been in her yard for twenty-six minutes. I had been wrong three times, and my watch had reported four. I did not want to go.
+She was not smiling this time. Then she was, a little, at one corner. I had been in her yard for twenty-six minutes. I had been wrong three times. My watch had reported four. I did not want to go.
 
 I opened the car door.
 
@@ -356,4 +366,4 @@ She looked at me for three seconds. I counted. She took the pencil from behind h
 
 “Joanna Marie,” the sister said from the window.
 
-“Saturday,” Jo said. “Seven. Bring two lunches. Vili eats.”
+“Saturday,” Jo said. “Seven. Bring two lunches. One's for Vili.”

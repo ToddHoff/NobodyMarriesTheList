@@ -10,7 +10,7 @@ I lay still. Her hand was heavier than it is when she means it. She was asleep. 
 
 Pancake shifted his weight and looked at me harder.
 
-Her hand changed. It got lighter, and then it was her hand again.
+Her hand changed. It got lighter until it was her hand again.
 
 “Dog,” she said into my back.
 
@@ -18,7 +18,7 @@ Her hand changed. It got lighter, and then it was her hand again.
 
 “Go.”
 
-She took her hand back. I got up, and she rolled into the place I had been and pulled the bedspread over her head.
+She took her hand back. When I got up, she rolled into the place I had been and pulled the bedspread over her head.
 
 My shirt from Saturday was on the floor with the card in the pocket. I put it on. I put the watch in my pants pocket without turning it over.
 
@@ -30,7 +30,7 @@ Abby's party was at five, at X's house in Menlo Park. Abby was leaving in twenty
 
 I had meant to ask Jo to come. There had not been a minute on Saturday when she was not on a job, except the ones after eight. I had not used those for asking.
 
-When we got back she was sitting on the front step in her crew shirt from Saturday, with her boots laced and the cooler beside her and her phone in her hand. She had found the last plum. She held it up to me. I shook my head, and she ate it.
+When we got back she was sitting on the front step in her crew shirt from Saturday, with her boots laced and the cooler beside her and her phone in her hand. She had found the last plum. She held it up to me. I shook my head. She ate it.
 
 “My father's bringing Owen home at noon,” she said. “Kevin gets him at four.”
 
@@ -280,7 +280,7 @@ At seven Stephanie cut the cake. It was green and gold, with CAL POLY on top in 
 
 “Green goes with you,” Jo said.
 
-Abby laughed out loud. Her friends looked at her, and at Jo. Abby did not explain it.
+Abby laughed out loud. Her friends looked from her to Jo. Abby did not explain it.
 
 Jo was standing beside me with her shoulder against my arm, laughing. The girl from the front door had her phone on the two of us. She was not taking it for Abby. Abby was at the other end of the table with the knife.
 
@@ -328,7 +328,7 @@ I heard my voice while I said it. It was the one I use on a stage, warm and low,
 
 She took her plate and went. The card stayed where she had squared it.
 
-Jo kept my hand and looked out at the lawn. On the lawn Stephanie was fixing the back of Abby's collar for the picture. Jo watched her do it, and then she looked up at the oaks.
+Jo kept my hand and looked out at the lawn. On the lawn Stephanie was fixing the back of Abby's collar for the picture. Jo watched her do it, then looked up at the oaks.
 
 My throat had shut. I kept my face toward the lawn. My watch was on the counter in Woodside. If I had been wearing it, it would have been tapping.
 

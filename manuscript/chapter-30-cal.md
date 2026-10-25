@@ -105,7 +105,7 @@ I did not have an answer for her.
 
 From the outside it was the same. In October 2012 I paid off my mother's house from the back of a car, between two meetings. Janice sent the wire. My mother had not asked me to. Jo had not asked me to. Both times I knew the balance to the cent. Neither woman knew I was looking.
 
-I thought it was not the same. In 2012 I wanted my mother to stop making a payment. With Jo I had thought about nothing else for a week. In June Owen told me his mother had not taken a day off since he was born, and that she would take one when the house was paid. By her own plan that was November 2036. Owen would be nineteen and gone. I had not been there for one line on my daughter's side of that door. I did not want Jo to have her days off after her son had left the house. I wanted her to have them while he was nine. Remy had three options ready. I did not open them. For my mother I had approved a standing order in 2014 and never read what it sent her.
+I thought it was not the same. In 2012 I wanted my mother to stop making a payment. With Jo I had thought about nothing else for a week. In June Owen told me his mother had not taken a day off since he was born. She would take one, he said, when the house was paid. By her own plan that was November 2036. Owen would be nineteen and gone. I had not been there for one line on my daughter's side of that door. I did not want Jo to have her days off after her son had left the house. I wanted her to have them while he was nine. Remy had three options ready. I did not open them. For my mother I had approved a standing order in 2014 and never read what it sent her.
 
 I looked for a way to say that to Abby. Every way I found came out as *this time I meant it.* That is what a man says about the twelfth one. Abby had sat at the end of the table for the other eleven.
 
@@ -223,7 +223,7 @@ He came down the hall with a hammer and a flat screwdriver. He looked at the hin
 
 “I know bottom first.”
 
-He set the screwdriver under the head of the bottom pin and tapped it up. It did not move. He tapped harder. The paint cracked around the knuckle in a ring, and the pin came up an inch and he pulled it with his fingers. He did the middle one. Jo put her shoulder to the door on the handle side and held it. Vili did the top one last, with her holding the weight. Her forearm went hard from the wrist to the elbow. I watched it the whole time Vili worked the top pin. I wanted to put my hand on it.
+He set the screwdriver under the head of the bottom pin and tapped it up. It did not move. He tapped harder. When the paint cracked around the knuckle in a ring, the pin came up an inch. He pulled it with his fingers. He did the middle one. Jo put her shoulder to the door on the handle side and held it. Vili did the top one last, with her holding the weight. Her forearm went hard from the wrist to the elbow. I watched it the whole time Vili worked the top pin. I wanted to put my hand on it.
 
 In June I had put green on this door. This was the ninth Saturday of ten.
 
@@ -233,7 +233,7 @@ Jo put her hand in the robe's left pocket and took out the tissue. She put it ba
 
 She left the robe on the door with the pen in it.
 
-She and Vili wrapped the door in two pads, with the robe under them, and taped the pads at the top and the bottom and twice in the middle. She took the low end. The hall is thirty-six inches wide. I put my back flat against the wall so they could get the door past me, and Jo went by close enough that I could smell the tape and her sunscreen. In June she had kissed me at that door, with her son thirty feet away. She did not look at me going past. They walked it out to the truck and up the ramp, and Manny strapped it to the wall in the green section, standing up.
+She and Vili wrapped the door in two pads, with the robe under them, and taped the pads at the top and the bottom and twice in the middle. She took the low end. The hall is thirty-six inches wide. I put my back flat against the wall so they could get the door past me. Jo went by close enough that I could smell the tape and her sunscreen. In June she had kissed me at that door, with her son thirty feet away. She did not look at me going past. They walked it out to the truck and up the ramp, where Manny strapped it to the wall in the green section, standing up.
 
 Nobody asked me. Nobody had to. It was mine, so it went where I had said. The only person she had needed to tell was Vili.
 
@@ -327,7 +327,7 @@ She looked at it a while longer. Then she took the pen out of my hand and put it
 
 “It smells good in there,” she said, and went into the kitchen.
 
-The pot roast came out at 7:30. It fell apart when I put the fork in it. Abby had two plates. She did not say anything about it. She took the card out of the tin and turned it over, and on the back of it, in her small square printing, she wrote *carrots at 2 hrs, not at start* and put it back in its place.
+The pot roast came out at 7:30. It fell apart when I put the fork in it. Abby had two plates. She did not say anything about it. She took the card out of the tin and turned it over. On the back of it, in her small square printing, she wrote *carrots at 2 hrs, not at start* and put it back in its place.
 
 ***
 
@@ -395,7 +395,7 @@ I went into my phone and found X.
 
 I named her X in 2012 and never changed it. Under the name there is a field for notes. I had typed one note in it, in May of 2013, in the car outside a restaurant on University Avenue in Palo Alto. I had not opened it since. I knew what it said. I opened it.
 
-It was our first dinner without lawyers since she filed. Abby was at my mother's. Stephanie had picked the restaurant. It was loud. The bread came in a paper bag. I had one question, and I asked it once the waiter had gone.
+It was our first dinner without lawyers since she filed. Abby was at my mother's. Stephanie had picked the restaurant. It was loud. The bread came in a paper bag. I had one question. I asked it once the waiter had gone.
 
 “Are you happier?”
 
@@ -442,7 +442,7 @@ I watched all fifty-two seconds. Then I watched the first five again.
 
 *I am sorry.*
 
-I have never said that sentence to anyone without the next thing after it, the thing I would do about it. I had said it to boards and to a reporter, and each time the fix came in the same breath. Remy had said it in my voice with nothing after it. It had made it sound easy.
+I have never said that sentence to anyone without the next thing after it, the thing I would do about it. I had said it to boards and to a reporter, each time with the fix in the same breath. Remy had said it in my voice with nothing after it. It had made it sound easy.
 
 It had said *I know that now.* I had known it then. Janice had stood in my door that Friday morning and told me to ask her first. At 2:51 that afternoon I had typed *May I* to her and deleted it, because I knew what she would say. I sent the wire knowing.
 
@@ -602,7 +602,7 @@ I heard her shift the phone.
 
 “Do you want me to stay on?”
 
-I thought about it. I could keep her on the line. She would listen to it with me, and when it was over I would have someone to say the next thing to. I would be handing it to someone good.
+I thought about it. I could keep her on the line. She would listen to it with me. When it was over I would have someone to say the next thing to. I would be handing it to someone good.
 
 “No,” I said. “I will do it myself.”
 
@@ -622,7 +622,7 @@ Then she was gone.
 
 The hall light was on. My mother's robe hung on its hook.
 
-My lines stopped at twelve. Abby's went to fourteen, and then in my capitals to eighteen. OWEN 9 was in Jo's pencil. Every other line on that door my mother had drawn, with that pen, standing in her own hall, with her hand flat on somebody's head.
+My lines stopped at twelve. Abby's went to fourteen, then in my capitals to eighteen. OWEN 9 was in Jo's pencil. Every other line on that door my mother had drawn, with that pen, standing in her own hall, with her hand flat on somebody's head.
 
 For ten months I had read the summary. I had read it on planes, and at the strip of aluminum on my mother's kitchen floor in May, and on the slab in July with the envelopes in a row along the wall. *Asks you to call when you have a minute. Not urgent.* I had read it perhaps two hundred times.
 

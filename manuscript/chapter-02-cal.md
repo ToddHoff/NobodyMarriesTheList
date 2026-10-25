@@ -2,21 +2,21 @@
 
 **Cal**
 
-I have turned my phone face down on a table once in my life. I can give you the time. It was 8:45 on a Thursday night in May.
+~~2. Age 30 to 36~~
 
-I cannot give you the reason. I have looked for it.
+I have turned my phone face down on a table once in my life. It was 8:45 on a Thursday night in May. I wanted another forty-five minutes of her.
 
-The forty-five minutes is not rudeness. It is a test condition. Same bar, same table, same order, same length. By minute forty I know. At forty-five Remy sends the car and a nine o'clock that does not exist, and nobody's feelings are hurt, because nobody is told.
+The forty-five minutes is not rudeness. It is a test condition. Same bar, same table, same order, same length. By minute forty I know. At forty-five Remy sends the car and a nine o'clock that does not exist, which hurts nobody, because nobody is told.
 
-Remy wrote the list too. A woman at the bar that night had called it she. About half of our users do, and the other half say he. I built it, and I call it it.
+Remy wrote the list too. A woman at the bar that night had called it she. Our users split about evenly between she and he. I built it, so I call it it.
 
 In April I asked it to read fourteen years of my history and describe the woman I would choose. It took nine seconds and came back with twelve lines. I read them. They were right. I approved them.
 
 The woman across from me fit none that I could see.
 
-She was beautiful. The list never used the word. It asked for tall and thirty-six and well dressed, and I had assumed those added up to it. She had dark hair tied back for work and coming loose from it, brown eyes that went straight at whatever she was looking at, and a wide mouth that had not decided yet whether I was funny. She had been in the sun. She wore no makeup that I could find, and I looked.
+She was beautiful. The list never used the word. It asked for tall and thirty-six and well dressed, which I had assumed added up to it. She had dark hair tied back for work and coming loose from it, brown eyes that went straight at whatever she was looking at, and a wide mouth that had not decided yet whether I was funny. She had been in the sun. She wore no makeup that I could find. I looked.
 
-She had tucked a carpenter's pencil behind her ear without noticing she had done it, and she was eating my shrimp.
+Without noticing, she had tucked a carpenter's pencil behind her ear. She was eating my shrimp.
 
 “How old was I supposed to be?” she said.
 
@@ -40,7 +40,7 @@ I did not have an answer. Remy does not show its work unless you ask. I had not 
 
 Thirty-six was five years under me. Thirty was eleven years under me and twelve over my daughter.
 
-She slid the card back with two lines on it, both dead. She was forty-four. There was gray coming in over her left ear that she had done nothing about, and there were lines at the corners of her eyes from years of looking at things in full sun. On a billboard we take those out first. When she smiled, I looked at them more than at anything else in the bar. I had specified against all of it. Sitting there, I could not have told you what I had against it.
+She slid the card back with two lines on it, both crossed out. She was forty-four. She had gray coming in over her left ear that she had done nothing about and lines at the corners of her eyes from years of looking at things in full sun. On a billboard we take those out first. When she smiled, I looked at them more than at anything else in the bar. I had specified against all of it. Sitting there, I could not have told you what I had against it.
 
 My watch tapped my wrist. *Heart rate 104. No workout detected.*
 
@@ -56,7 +56,7 @@ At 8:31 she had corrected my card in pencil. She had been right about every line
 
 She looked at me for a second before she answered.
 
-Then she told me. A two-bedroom in Daly City, forty-one years in it, going down to 640 square feet near a daughter in Elk Grove. The recliner was 38 inches wide and needed two feet behind it. It would fit if the widow gave up her dresser. The daughter wanted the chair gone.
+Then she told me. A two-bedroom in Daly City, hers for forty-one years, going down to 640 square feet near a daughter in Elk Grove. The recliner was 38 inches wide and needed two feet behind it. It would fit if the widow gave up her dresser. The daughter wanted the chair gone.
 
 “The daughter signs the check,” I said.
 
@@ -84,9 +84,9 @@ She frowned at me. It was the first time that night she had not followed somethi
 
 “Back to who? It was hers.”
 
-I ran it anyway. I cannot not. A dead man's coat. An envelope nobody living knew about. No camera, and a crew that works for her. The odds that anyone ever asks her about that money are zero. I know a great many people, several of them on my board, and I could not name five who would have skipped the calculation.
+I ran it anyway. I cannot not. A dead man's coat. An envelope nobody living knew about. No camera, and a crew that works for her. The odds that anyone ever asks her about that money are zero. Of the great many people I know, several of them on my board, I could not name five who would have skipped the calculation.
 
-She had not skipped it. It had never loaded.
+She had not skipped it. She had never run it.
 
 My watch tapped me again. I took it off and put it in my pocket.
 
@@ -100,7 +100,7 @@ It had done it twice. I could guess the number without it.
 
 “I don't take anything home from a job. Not a pencil.” She touched the one behind her ear. “This one's mine.”
 
-She had put a second twenty on the table by then, and later a third. I have a tab at that bar that my assistant settles by the quarter. Jo Silveira paid cash for every round and left the change every time.
+By then she had put a second twenty on the table. A third came later. I have a tab at that bar that my assistant settles by the quarter. Jo Silveira paid cash for every round and left the change every time.
 
 “What do the others do?” she said. “At minute forty-five.”
 
@@ -116,11 +116,11 @@ She had put a second twenty on the table by then, and later a third. I have a ta
 
 “You have a dog?”
 
-“His name is Pancake. He is a cream golden retriever, and he is eleven. My daughter named him when she was seven, over my objection.”
+“His name is Pancake. He is a cream golden retriever. Eleven. My daughter named him when she was seven, over my objection.”
 
 I did not tell her that he can no longer manage the last three steps to my door, or that I carry him up them every night. I have not told anyone that.
 
-“I'm not good with dogs,” Jo said. “I got bit on a job when I was twenty-six. I'd want him on the other side of a railing from me, and I'd tell you so.”
+“I'm not good with dogs,” Jo said. “I got bit on a job when I was twenty-six. Keep him behind a railing.”
 
 I waited for the rest of it. I had heard the rest at minute thirty-one.
 
@@ -154,7 +154,7 @@ I had nothing in fourteen years to file that under.
 
 She did not say anything kind. I was grateful. People say kind things to me and then I have to do something with them.
 
-“I can tell you what's in it,” she said. “I've never seen it, and I can tell you. A drawer of bread ties and rubber bands. Every card that ever came with your name on it. And one dish.”
+“I can tell you what's in it,” she said. “I don't need to see it. A drawer of bread ties and rubber bands. Every card that ever came with your name on it. And one dish.”
 
 “There is a dish.”
 
@@ -176,13 +176,13 @@ I looked at the card. I squared it to the edge of the table. She watched me do i
 
 “Is that an invitation?”
 
-“It's a job. I don't date, and this wasn't one. Somebody has to go through that house, and whoever does, you're in the room for it.”
+“It's a job. I don't date, so this wasn't one. Whoever goes through that house, you're in the room for it.”
 
 “Noted.”
 
 “Three,” she said.
 
-She was smiling when she said it. I had been waiting most of an hour to see that again, and I had not known I was waiting.
+She was smiling when she said it. I had been waiting since minute thirty-eight to see that again.
 
 “The daughter who named the dog,” she said. “How old is she now?”
 
@@ -196,11 +196,11 @@ I had said that sentence four times that week, once in a board meeting. At that 
 
 She pulled the napkin out from under her beer and passed it across. She did not look away and she did not look harder. She waited until I had used it.
 
-The four times before, somebody had said congratulations. I had said thank you, and we had gone on to the next thing. Jo had asked about the girl who named the dog. Abby was seven when she named him. From seven to eighteen was eleven years. I could have told Jo what the company did in every one of them.
+The four times before, somebody had said congratulations. Each time I had said thank you and gone on to the next thing. Jo had asked about the girl who named the dog.
 
 “What does she want to build?”
 
-I opened my mouth. My daughter spent four months drawing a portfolio, and I had not seen a page of it.
+I opened my mouth. My daughter had spent four months drawing a portfolio.
 
 “I do not know.”
 
@@ -218,9 +218,9 @@ She did the subtraction faster than I would have liked. “You were twenty-three
 
 “You were a kid yourself.”
 
-“I was married, and I had a company with four people in it. I thought I was behind.”
+“I was married and had a company with four people in it. I thought I was behind.”
 
-“I was thirty-five when I had mine,” she said. “I had three trucks by then, and I kept meaning to get to it.”
+“I was thirty-five when I had mine,” she said. “I had three trucks first.”
 
 “That averages to twenty-nine.”
 
@@ -242,7 +242,7 @@ I took it. “Janice.”
 
 “I am having a drink.”
 
-There was a pause. Janice has worked for me for seventeen years, and I have heard her pause perhaps four times.
+There was a pause. In the seventeen years Janice has worked for me, I have heard her pause perhaps four times.
 
 “A second drink?”
 
@@ -274,21 +274,21 @@ Jo was looking at the phone. “Is that who crosses her sevens?”
 
 The bar closed at eleven. I had not known that. I had never been in it past 8:45.
 
-She stood up before I did. She had a six a.m. load in Pacifica, she said, and she put the pencil in her purse and was halfway to the door while I was still finding my jacket. I did not want her to go. I noted it, which she would have counted.
+She stood up before I did. She had a six a.m. load in Pacifica, she said. By the time I found my jacket, the pencil was in her purse and she was halfway to the door. I did not want her to go. I noted it, which she would have counted.
 
-The truck was on Minna Street in a yellow zone, white, with a steel rack over the bed. The door said SILVEIRA MOVING & ESTATE, and under that SOUTH SAN FRANCISCO SINCE 1987, a license number and a telephone number.
+The truck was on Minna Street in a yellow zone, white, with a steel rack over the bed. The door said SILVEIRA MOVING & ESTATE. Under that: SOUTH SAN FRANCISCO SINCE 1987, a license number and a telephone number.
 
 “That is your name,” I said.
 
 “It's my father's. He handed me the keys and the work.”
 
-She got her keys out. We were standing closer than the table had let us. The top of her head came to my collarbone. I knew how tall she was to the quarter inch, because I had put my hand on her hair to find out, and I could still feel it in my palm.
+She got her keys out. We were standing closer than the table had let us. The top of her head came to my collarbone. I knew how tall she was to the quarter inch because I had put my hand on her hair to find out. I could still feel her hair in my palm.
 
 I wanted to put my hand back where it had been. I put it in my pocket instead, on the watch.
 
 “I am supposed to ask you to text when you are home.”
 
-“I sent my sister your name before I walked in, and where I'd be.”
+“Before I walked in, I sent my sister your name and where I'd be.”
 
 “Why did you?”
 
@@ -304,7 +304,7 @@ It was a sound procedure. I had come with a car at minute forty-five and a call 
 
 “I bet you can.” She opened the door of the truck. “Call my office about the house. The number's right there.”
 
-She put out her hand. The cut on her thumb had a strip of green tape over it now. I held on longer than I had the first time, and this time I knew I was doing it.
+She put out her hand. The cut on her thumb had a strip of green tape over it now. I held on longer than a handshake takes. I meant to.
 
 “Good night, Cal,” she said.
 
@@ -326,7 +326,7 @@ Pending: 3 introductions (D. Pruitt).
 Confirm?
 ```
 
-I read the fourth line twice. Remy has fourteen years of me. It has every dinner, every flight, every night I slept under five hours. It had gone looking for another evening like this one and come back with nothing.
+I read the fourth line twice. Remy has fourteen years of my calendar. In all of it there was no other night like this one.
 
 “Cancel the introductions,” I said.
 
@@ -348,10 +348,8 @@ I had asked for the first opening because it was the soonest I could see her aga
 
 I took her card out of my shirt pocket. There were two lines on the back in carpenter's pencil, both struck. I tried the second one with my thumb. It stayed.
 
-The phone rang. It was Janice.
-
-“Well?” she said.
+I called Dawn Pruitt at midnight. I got her machine.
 
 The reservoir was going by on the right, flat and black.
 
-“Eleven of the twelve are wrong,” I said. “When is she free?”
+“Eleven of the twelve are wrong,” I said. “She says the house is a job. I would like to take her to dinner.”

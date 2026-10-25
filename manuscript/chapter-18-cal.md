@@ -194,7 +194,7 @@ The bed was empty beside me. I could smell coffee. My watch was still turned aro
 
 My shirt was on the chair by her boots, folded in thirds and then in half, the way she folds a furniture pad. I put it on and went down the hall.
 
-She was at the kitchen table in a gray crew shirt with SILVEIRA across the shoulders and, as far as I could see, nothing else. She had the reading glasses on, and a pen, and her checkbook open. I stood in her kitchen doorway and wanted her again.
+She was at the kitchen table in a gray crew shirt with SILVEIRA across the shoulders and, as far as I could see, nothing else. She had the reading glasses on, a pen in her hand and her checkbook open. I stood in her kitchen doorway and wanted her again.
 
 She looked at me over the glasses.
 

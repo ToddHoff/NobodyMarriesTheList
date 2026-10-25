@@ -10,15 +10,15 @@ He'd texted me from his father's the night before, after he was supposed to be a
 
 Northeast from my driveway is the yard, three miles off, under the hill with the sign on it. For once there was no fog. There was nothing on the ridge behind the house and nothing on the hill. The sky was black all the way down to the streetlights. It was fifty-seven degrees. I had Cal's fleece on over my T-shirt, the one I'd never given back, zipped to my chin with the sleeves down past my knuckles. The motion light next door came on every time I moved my feet.
 
-I gave it four minutes. A plane came in low over the bay with its lights going, and I watched it all the way down behind the houses, which wasn't what he meant. I gave it four more, because at seven he'd want to know how long I'd looked. Then I held my phone up to take him a picture of the sky, so he'd have proof.
+I gave it four minutes. I watched a plane come in low over the bay with its lights going, all the way down behind the houses, which wasn't what he meant. I gave it four more, because at seven he'd want to know how long I'd looked. Then I held my phone up to take him a picture of the sky, so he'd have proof.
 
 One went right through it.
 
-It came out of nothing over the yard and went the whole way across, over my roof toward the ridge, one long white stroke, faster than anything coming into SFO. It was a box cutter going down the tape on a box. It didn't blink, and it didn't make a sound. At the very end it went green, for about as long as it takes to say green, and then the sky closed up behind it.
+It came out of nothing over the yard and went the whole way across, over my roof toward the ridge, one long white stroke, faster than anything coming into SFO. It was a box cutter going down the tape on a box. It didn't blink or make a sound. At the very end it went green, for about as long as it takes to say green, before the sky closed up behind it.
 
 “There,” I said out loud, to nobody, in my socks.
 
-On the screen it was a long white line going up from the hill with the sign on it, and the top of it was green. I sent it to Owen. *Saw one.* He'd be asleep till seven.
+On the screen it was a long white line going up from the hill with the sign on it, green at the top. I sent it to Owen. *Saw one.* He'd be asleep till seven.
 
 Cal would be up. He walks his dog down to his gate at five.
 
@@ -28,7 +28,7 @@ I stood out there another minute in case it did it again. Then I went in. I'd se
 
 ***
 
-Wednesday mornings before the yard I do my own bills, at my counter, with the light over the stove on and nothing else. The statement for September hadn't come. It comes by the eleventh, every month since 2023, and Tuesday's mail had been a pizza coupon and the calendar from Kevin's school, which he sends me every August. I don't mail a check late on account of the mail. I turned the old statement face up for the loan number. It had been face down by the coffee maker since Sunday the second.
+Wednesday mornings before the yard I do my own bills, at my counter, with the light over the stove on and nothing else. The statement for September hadn't come. It comes by the eleventh, every month since 2023. Tuesday's mail had been a pizza coupon and the calendar from Kevin's school, which he sends me every August. I don't mail a check late on account of the mail. I turned the old statement face up for the loan number. It had been face down by the coffee maker since Sunday the second.
 
 I wrote the date on the check and the bank's name, and left the amount blank.
 
@@ -50,7 +50,7 @@ The refrigerator came on behind me. It was the only sound in the house.
 
 I logged out and logged back in. It still said zero.
 
-When I bring the heavy end of a dresser down a flight of stairs and it touches the floor, my back lets go a second after my hands do. I was sitting at my own counter with my phone, and my back let go anyway.
+When I bring the heavy end of a dresser down a flight of stairs and it touches the floor, my back lets go a second after my hands do. I was sitting at my own counter with my phone. My back let go anyway.
 
 I was seven the first time I felt that. My father had the one truck then. He took me along on a Saturday in the spring to a one-story in Millbrae with orange shag carpet and green drapes. All morning a man sat in a car at the curb with the engine off. Nobody went out to him but the son, who was about sixteen and carried his own boxes out to the trunk. My father put me on the kitchen floor with newspaper and the everyday glasses. The wife walked him through the house and put her hand on everything that was hers. She talked the whole time. She never looked at me.
 
@@ -122,11 +122,11 @@ She read me the rest off her screen. A letter saying the loan was paid, in about
 
 “Well, congratulations again on paying off your home.”
 
-I'd been going to make this call in 2036. Some girl in a headset was going to tell me congratulations, and I was going to laugh at her. Then I was going to hang up and go stand in my driveway.
+I'd been going to make this call in 2036. Some girl in a headset was going to tell me congratulations. I was going to laugh at her. Then I was going to hang up and go stand in my driveway.
 
 I put the phone face down on the counter. I still had his fleece on. I took it off and hung it over the back of a kitchen chair.
 
-I keep the house on a spreadsheet. I made it in October 2023, at this counter, the night the notary came and I signed for the refinance. It has a line for every payment from December 2023 to November 2036. One column says what I'll owe the bank after each payment. The next one is where I type the date the check clears, and the last one is for notes. Every month I check the bank's number against mine, and they come out within a few cents.
+I keep the house on a spreadsheet. I made it in October 2023, at this counter, the night the notary came and I signed for the refinance. It has a line for every payment from December 2023 to November 2036. One column says what I'll owe the bank after each payment. The next one is where I type the date the check clears. The last one is for notes. Every month the bank's number and mine come out within a few cents of each other.
 
 Thirty-three lines had a date in them. Thirty-two of them had the nineteen hundred on top.
 
@@ -134,7 +134,7 @@ I'd sat down this morning to put a zero in the extra for September and add a lin
 
 I scrolled to the bottom. There are a hundred and fifty-six lines. Two weeks ago I'd written that number on a found sheet in his mother's hall, in my capitals, with a number of dollars under it.
 
-On the last line, in the column where I keep notes, I'd typed *55*. I typed it in 2023. In November 2036 I'll be fifty-five, and Owen will be nineteen.
+On the last line, in the column where I keep notes, I'd typed *55*. I typed it in 2023. In November 2036 I'll be fifty-five. Owen will be nineteen.
 
 Every line from September down to that one had been mine. I knew what each one was going to cost me and which month I'd feel it. I'd have typed the last date in myself, at this counter, on a weeknight, with the dishes done.
 
@@ -206,7 +206,7 @@ It was my second Westlake house since Maui. This one was pink. Every house on th
 
 The fog was down on the roofs, same as July.
 
-The daughter was at the kitchen table with the found sheet when we came up. Sharon. She was in her sixties, up from Bakersfield, and she'd been sleeping on an air mattress in her old room for a week. Her father bought the house new in 1951 and died in it in June, at ninety-six. She hadn't labeled a thing.
+The daughter was at the kitchen table with the found sheet when we came up. Sharon. She was in her sixties, up from Bakersfield, a week into sleeping on an air mattress in her old room. Her father bought the house new in 1951 and died in it in June, at ninety-six. She hadn't labeled a thing.
 
 I put Vili and Manny on the bedrooms and did the hall myself.
 
@@ -216,7 +216,7 @@ The whole time I was in that closet, I was at my counter in the dark, looking at
 
 The pictures came last. There were eleven of them up the hall wall, every one dead level. I took them down one at a time, called each one, and wrapped it.
 
-The ninth was a five-by-seven in a dime-store frame. A man in a short-sleeved shirt stood in the driveway of this house, holding a sheet of paper over a barbecue with a pair of tongs. The paper was on fire. The garage door was up behind him. The whole street was out on the sidewalk in lawn chairs with highballs, and a girl of about twelve stood by the barbecue with both hands over her mouth.
+The ninth was a five-by-seven in a dime-store frame. A man in a short-sleeved shirt stood in the driveway of this house, holding a sheet of paper over a barbecue with a pair of tongs. The paper was on fire. The garage door was up behind him. The whole street was out on the sidewalk in lawn chairs with highballs. A girl of about twelve stood by the barbecue with both hands over her mouth.
 
 “Picture, hall, framed,” I said. “Man with a barbecue.”
 
@@ -224,7 +224,7 @@ Sharon came down the hall and looked at it over my arm.
 
 “That's the mortgage,” she said. “Nineteen seventy-one. Twenty years, and he paid it to the month. Mom made him do it on a Saturday so the street could come.” She put her finger on the glass over the girl. “That's me.”
 
-I looked at him a while. He had his feet set wide, like the low man on a ramp, and he was grinning at the fire with his whole face. He'd made two hundred and forty payments to get to that barbecue.
+I looked at him a while. He had his feet set wide, like the low man on a ramp, grinning at the fire with his whole face. He'd made two hundred and forty payments to get to that barbecue.
 
 I've found three or four of those over the years. Every one of them was in a driveway.
 
@@ -254,19 +254,19 @@ I carried the lamps down the stairs and out to the ramp myself. My father took t
 
 “One.”
 
-By the middle of the afternoon Vili had the last of the blue on the truck, and Sharon had her green in four boxes by the front door with the picture on top. I walked the house, every room, garage last. In the front room I stood in the brighter square on the carpet where her father's couch had been, and listened. All I could hear was Rochelle telling me congratulations. I gave Sharon back her keys at the curb.
+By the middle of the afternoon Vili had the last of the blue on the truck, Sharon her green in four boxes by the front door with the picture on top. I walked the house, every room, garage last. In the front room I stood in the brighter square on the carpet where her father's couch had been, and listened. All I could hear was Rochelle telling me congratulations. I gave Sharon back her keys at the curb.
 
 ***
 
 I parked on level two of his garage with five minutes to spare, nose out, where I'd parked twice before. I took the clipboard and my tape and got on his elevator with pad fuzz all down the front of my shirt.
 
-His floor is sixty desks with nothing between them, and I had to walk the length of it. Every head came up. I knew most of them had seen the picture from Abby's party. Somebody by the stairs turned her phone over on her desk when I went by.
+His floor is sixty desks with nothing between them. I had to walk the length of it. Every head came up. I knew most of them had seen the picture from Abby's party. Somebody by the stairs turned her phone over on her desk when I went by.
 
 Janice's door was open at the far end.
 
-In June there had been fourteen file cabinets in her office, a desk and two chairs, and I'd counted the cabinets out loud for her. The cabinets were still there. The rest of the room was in boxes, lids on, three high along the wall, every one labeled on both ends in her printing with a year, 2009 through 2026. She'd crossed the seven on 2017. Every box was packed right. Books flat. Nothing over forty pounds. Somebody had taught her.
+In June her office had held fourteen file cabinets, a desk and two chairs. I'd counted the cabinets out loud for her. The cabinets were still there. The rest of the room was in boxes, lids on, three high along the wall, every one labeled on both ends in her printing with a year, 2009 through 2026. She'd crossed the seven on 2017. Every box was packed right. Books flat. Nothing over forty pounds. Somebody had taught her.
 
-Janice was at her desk with a tape gun. She put it down when she saw me and stood up. She's a small woman, and she stands with her weight on both feet.
+Janice was at her desk with a tape gun. She put it down when she saw me and stood up. She's a small woman who stands with her weight on both feet.
 
 “Ms. Silveira.”
 
@@ -292,7 +292,7 @@ I hooked my tape on the nearest cabinet and ran it across the carpet to his door
 
 I knew what was in them. She'd told me in June. A card for everybody he'd met since 2009, in her printing. Two of them were mine.
 
-I pulled the top drawer of the nearest one to see how full they ran. They were packed tight, on edge, with the tabs in her printing. You don't move a file cabinet full. The frame racks, and the drawers come open on the dolly. Every card would have to come out and go back in, in the same order, in his office, with him in the room. I wrote it down.
+I pulled the top drawer of the nearest one to see how full they ran. They were packed tight, on edge, with the tabs in her printing. You don't move a file cabinet full. The frame racks. The drawers come open on the dolly. Every card would have to come out and go back in, in the same order, in his office, with him in the room. I wrote it down.
 
 “I didn't send it,” Janice said.
 
@@ -353,7 +353,7 @@ The small type was the same as at the bottom of the agreement that came to my ya
 
 I'd never seen it. I'd struck eight of its lines in pencil on the back of his card, one at a time. Here they were in type, all twelve, with nothing through any of them.
 
-I didn't pick it up. I'd read line one before I knew what I was reading, and after that I couldn't stop.
+I didn't pick it up. I'd read line one before I knew what I was reading. After that I couldn't stop.
 
 Seven. *Comfortable being looked after.* In April I'd made up a bed in a one-bedroom by the freeway in Redwood City.
 
@@ -361,7 +361,7 @@ Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked 
 
 *I said I would fix it.* He'd said that to the water at Carmel, about his wife, with his ears red.
 
-Twelve. On the log at Carmel he'd asked me what I wanted, and I'd shut my mouth on it. In the margin beside it somebody had made a check in ink and written a date and one word. *5/4. Joanna.*
+Twelve. On the log at Carmel, when he asked me what I wanted, I'd shut my mouth on it. In the margin beside it somebody had made a check in ink and written a date and one word. *5/4. Joanna.*
 
 Nobody but Dawn Pruitt calls me plain Joanna. She's known me since I carried her mother's dresser. May fourth was three days before she sent me to that bar. He'd never told me that one either.
 
@@ -373,9 +373,9 @@ Janice knocked twice on his door and opened it.
 
 “Ms. Silveira needs your wall,” she said. Then she went out past me onto the floor and pulled her own door to behind her.
 
-He was already standing behind his desk. His sleeves were pushed up, and he looked like he'd been up since four. The corner of the card stuck up out of his shirt pocket.
+He was already standing behind his desk. He had his sleeves pushed up and looked like he'd been up since four. The corner of the card stuck up out of his shirt pocket.
 
-My stomach went over the hill. I wanted my hand flat on his chest, where I'd put it on the rock. I stayed by the door.
+I wanted my hand flat on his chest, where I'd put it on the rock. I stayed by the door.
 
 His office had a desk with nothing on it and a long blank wall across from the window. I went to the wall, hooked the tape on the corner and walked it out to the window frame.
 

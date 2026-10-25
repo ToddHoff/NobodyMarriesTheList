@@ -20,7 +20,7 @@ Then a picture.
 
 It was a stairwell, cinder block painted white, with a window at the top. A flat box was going up it, long, with a 7 circled on the end in black marker. A boy I didn't know had the top end. Cal had the bottom.
 
-He was in a gray T-shirt, wet down the middle of the back. He had the box on his palms, both of them up, under the bottom edge, the way you carry one. His knees were bent. His face was turned up the stairs at the kid, and his mouth was open on something.
+He was in a gray T-shirt, wet down the middle of the back. He had the box on his palms, both of them up, under the bottom edge, the way you carry one. His knees were bent. His face was turned up the stairs at the kid, his mouth open on something.
 
 He'd taken the low end.
 
@@ -138,7 +138,7 @@ Owen came out with his new backpack on both shoulders.
 
 “No.”
 
-He looked at me a second, and then at the ground. I put my hand on his back. He let it stay there.
+He looked at me a second, then at the ground. I put my hand on his back. He let it stay there.
 
 “Go get in,” I said.
 
@@ -222,11 +222,11 @@ He opened the driver's door. He looked up the street and down it again.
 
 “I'll take him tomorrow,” he said. “First day. You've got him at three.”
 
-He got in and pulled away, and Owen lifted one hand in the back window without looking up from his phone.
+He got in and pulled away. In the back window Owen lifted one hand without looking up from his phone.
 
 I stood at the gate until I couldn't hear the car.
 
-My hand on the latch was cold. Five weeks old. I'd had him on my shoulder in that hall with a roller in my other hand, and I'd been proud of it.
+My hand on the latch was cold. Five weeks old. I'd had him on my shoulder in that hall with a roller in my other hand. I'd been proud of it.
 
 *I did not ask you, because I knew what you would say.*
 
@@ -410,7 +410,7 @@ I picked up the pen. Then I put it down.
 
 “Check my numbers?” I said.
 
-I'd never asked her that. She puts things in front of me, and I sign them.
+I'd never asked her that. She puts things in front of me. I sign them.
 
 Denise sat down hard. Her face did everything at once.
 
@@ -492,7 +492,7 @@ Denise pulled out the chair across from me and sat down. She pushed the calculat
 
 I'd had it in my mouth on that rock. I'd had it in the dark at Carmel, and in Janice's office with her tape gun going behind me. Every time, I shut my mouth on it. I'd told myself I was waiting to be sure. I wasn't waiting. If I never said it, there was nothing he could buy with it. Not a truck. Not a sandwich.
 
-Now there was a house, and if I said it, it would sound like the house.
+Now there was a house. If I said it, it would sound like the house.
 
 “Did you love him before he paid it?” Denise said.
 
@@ -530,4 +530,4 @@ At home I put his letter on my counter, face up, next to the bank's check. I did
 
 Saturday was the last one on Remington. I had three days.
 
-I took the glass out from under my shirt and held it in my fist, and I left the letter there, with the light over the stove on, and went to bed.
+I took the glass out from under my shirt and held it in my fist. I left the letter there, with the light over the stove on, and went to bed.

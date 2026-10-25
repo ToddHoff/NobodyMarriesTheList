@@ -2,11 +2,11 @@
 
 **Jo**
 
-When we came out after the twelfth course there was a taco truck in the parking lot with its window up and every light on, and it had come for one customer.
+When we came out after the twelfth course there was a taco truck in the parking lot with its window up and every light on. It had come for one customer.
 
 I had not said tacos. Neither had he.
 
-It said TACOS ARREOLA down the side. The driver had backed it in across four spaces at the far end of the lot, which is how I would have done it, and he had a generator going. People were coming out of the club in good jackets and walking the long way around it.
+It said TACOS ARREOLA down the side. The driver had backed it in across four spaces at the far end of the lot, which is how I would have done it, with a generator going. People were coming out of the club in good jackets and walking the long way around it.
 
 Cal stopped on the walk and read the side of the truck.
 
@@ -14,7 +14,7 @@ Cal stopped on the walk and read the side of the truck.
 
 “You didn't know?”
 
-“I asked for food you could eat without a fork. It came back with an amount, and I confirmed the amount.”
+“I asked for food you could eat without a fork. It came back with an amount. I confirmed the amount.”
 
 “You didn't read what you were buying.”
 
@@ -38,7 +38,7 @@ The man in it had an apron on and a towel over his shoulder. He looked at the dr
 
 “Nothing. It's paid till eleven.”
 
-I bill a truck and a driver by the hour. I knew about what two hours of that man's night had cost, and I knew I was not going to see the number.
+I bill a truck and a driver by the hour. I knew about what two hours of that man's night had cost, a number I was never going to see.
 
 I had it to within forty dollars. I wanted it on paper, in my hand, where I could pay it.
 
@@ -72,7 +72,7 @@ We stood at the window while he cooked. It was the first heat I had been near al
 
 “I got two hundred pounds.”
 
-“Three hundred. They're bolted to the slab, and the dentist never knows where the bolts are.”
+“Three hundred. They're bolted to the slab. The dentist never knows where.”
 
 “How many were there?”
 
@@ -88,7 +88,7 @@ He stood on that for a while.
 
 “And then I put on a dress.”
 
-My neck went hot, and I watched the man turn the tortillas.
+My neck went hot, so I watched the man turn the tortillas.
 
 I'd stood at my closet before I left and taken the dress off once and put it back on. At the door he had looked at it long enough that I raised my eyebrows at him. Then he didn't say a word about it through twelve courses. I had decided that meant he didn't think much of it.
 
@@ -116,13 +116,13 @@ He took four steps on that one.
 
 “I wanted to walk you to it.”
 
-He was looking straight ahead when he said it, with a paper plate in each hand. His ears were red under the lot light. My face went warm, and I looked at the asphalt until it quit.
+He was looking straight ahead when he said it, with a paper plate in each hand. His ears were red under the lot light. My face went warm. I looked at the asphalt until it quit.
 
 At the bar he had squared that card to the edge of the table every time I said something he had no answer for. At dinner he'd squared his knife. I took it for manners. The card had been in his car since before I sat down. When he told me what Dawn asked him, he hadn't had anything to read it off.
 
 My truck was at the other end of the lot, nose out. We sat on the curb behind it with the plates on our knees. I have eaten a great many lunches on a curb. I had not done it in a dress.
 
-I ate two before I looked up. He was holding his plate level with both hands, and he hadn't touched the one on it.
+I ate two before I looked up. He was holding his plate level with both hands, the one on it untouched.
 
 “Eat that.”
 
@@ -144,7 +144,7 @@ He picked it up and bit into it.
 
 “You were right both times.”
 
-I ate the other two. They were hot and they dripped, and I leaned out over my knees to keep them off the dress. He had his elbows on his knees, and he watched me eat them.
+I ate the other two. They were hot and they dripped, so I leaned out over my knees to keep them off the dress. He watched me eat them with his elbows on his knees.
 
 On a job I eat away from the crew. Nobody watches me do it. I had grease running down to my wrist. I could feel him looking. I didn't sit up. I wanted him to keep looking.
 
@@ -152,17 +152,17 @@ On a job I eat away from the crew. Nobody watches me do it. I had grease running
 
 “Yes.”
 
-I got up and opened the cab. I keep a bag of clean rags behind the seat, next to the shirt. I gave him one and took one, and we stood there wiping our hands like two guys at the end of a job.
+I got up and opened the cab. I keep a bag of clean rags behind the seat, next to the shirt. I gave him one and took one. We stood there wiping our hands like two guys at the end of a job.
 
-That was when I saw it. I was up on the curb and he was down on the asphalt, and I was looking straight at his collarbone. Down on the asphalt with him, that's where the top of my head goes.
+That was when I saw it. With me up on the curb and him down on the asphalt, I was looking straight at his collarbone. Down on the asphalt with him, that's where the top of my head goes.
 
-He saw it too. He looked at my sandals and then at the curb, and I watched him add.
+He saw it too. He looked at my sandals and then at the curb. I watched him add.
 
 “You are sixty-eight and a half inches,” he said.
 
-“Sixty-eight. That curb's five and a half. They've paved this lot twice, and you lose some curb every time.”
+“Sixty-eight. That curb's five and a half. They've paved this lot twice. You lose some curb every time.”
 
-He looked at the curb again, and then he took my number.
+He looked at the curb again before he took my number.
 
 “That is five foot eight,” he said.
 
@@ -178,13 +178,13 @@ He stayed where he was, down on the asphalt, with my rag in his hand.
 
 “I noticed.”
 
-“This is a different question, and I would like to ask it.”
+“This is a different question. I would like to ask it.”
 
 “Then ask it.”
 
 “May I kiss you?”
 
-My stomach went over the hill. I have been asked a lot of things at the back of a truck. Whether it will fit. Whether I can come back Thursday. Nobody had ever asked me that one.
+He didn't lean in. He stood there and waited for an answer. I have been asked a lot of things at the back of a truck. Whether it will fit. Whether I can come back Thursday. Nobody had ever asked me that one.
 
 If I said no, he would take it. He had taken one on his mother's wet lawn at seven in the morning and offered to get back in his car. He'd kept to it longer than I had. He'd hand me back my rag and walk me around to my door. Owen was at his father's till Sunday. My crew was asleep.
 
@@ -192,7 +192,7 @@ If I said no, he would take it. He had taken one on his mother's wet lawn at sev
 
 He held still. He is good at it.
 
-I put my hand flat on his chest, where I had put it in the hallway. That time I had told myself I was making room. This time I went up on my toes, on a curb, and I was still six inches short of his mouth.
+I put my hand flat on his chest, where I had put it in the hallway. In the hallway I had told myself I was making room. Up on my toes on a curb, I was still six inches short of his mouth.
 
 He was holding still. I had told him to.
 
@@ -212,7 +212,7 @@ His heart was going under my palm. His watch buzzed, close to my ear.
 
 “I said keep it.”
 
-I came down off my toes. I didn't want to. That was reason eight not to like him, and it was the last one I counted.
+I came down off my toes. I didn't want to. That was reason eight not to like him, the last one I counted.
 
 I had other things I could have said. I didn't want to stand on a curb and hear myself say them.
 
@@ -222,13 +222,13 @@ I had other things I could have said. I didn't want to stand on a curb and hear 
 
 “Three.”
 
-I went around to the driver's side and got in. He was still at the curb in my mirror when I made the turn. He had my rag, and I didn't go back for it.
+I went around to the driver's side and got in. He was still at the curb in my mirror when I made the turn. He had my rag. I didn't go back for it.
 
-On the way out I passed the taco truck. Three people in aprons were at the window, and one of them was the kid who had brought the bread.
+On the way out I passed the taco truck. Three people in aprons were at the window, one of them the kid who had brought the bread.
 
 ***
 
-It is forty-five minutes home at that hour. I took 17 to 85 to 280 with the windows down, because the cab smelled like a taco truck and so did I. The truck made its noise on the grades, and I turned the radio up over it.
+It is forty-five minutes home at that hour. I took 17 to 85 to 280 with the windows down, because the cab smelled like a taco truck and so did I. When the truck made its noise on the grades, I turned the radio up over it.
 
 At the last light before the freeway I could still feel where his hand had been on the side of my face. I put my own hand there. The man in the next car saw me do it.
 
@@ -236,17 +236,17 @@ On Saturday morning I'd be in his mother's house at seven with a clipboard, sayi
 
 I had gone to that dinner to find the piano. I went back through the night for it, one room at a time.
 
-There was a taco truck, and he had asked me before he sent for it. He'd paid for it without reading what it was, and I had laughed.
+There was a taco truck he'd asked me about before he sent for it. He'd paid for it without reading what it was. I had laughed.
 
 I went through it twice. There wasn't a piano in it.
 
 That should have settled it. I have cleared two hundred houses. Twice I've walked one and called it clean. Both times I was back the next morning for what I'd missed.
 
-The reservoir went by on my left, flat and black. By my exit I had quit looking, and I had not texted my sister.
+The reservoir went by on my left, flat and black. By my exit I had quit looking and still hadn't texted my sister.
 
 Her car was in my driveway.
 
-She was at my kitchen table with the payroll in front of her and my coffee maker on. It was an hour past my bedtime. She had moved my mortgage statement off the table to make room, and put it on the counter where it lives.
+She was at my kitchen table with the payroll in front of her and my coffee maker on. It was an hour past my bedtime. She had moved my mortgage statement off the table to the counter where it lives.
 
 “You didn't text,” Denise said. “I had Vili's number up. I had my thumb on it.”
 
@@ -292,7 +292,7 @@ She looked at me for a while. She has been looking at me like that since she cou
 
 “Your neck says he did.”
 
-“I kissed him. He asked if he could, and I told him to hold still.”
+“I kissed him. He asked if he could. I told him to hold still.”
 
 “You told him to HOLD STILL.”
 
@@ -316,7 +316,7 @@ It was.
 
 “He remembers everything. He writes it to me.”
 
-“Vili says you read him one in the truck. I do your taxes, and Vili gets read to.”
+“Vili says you read him one in the truck. I do your taxes. Vili gets read to.”
 
 “Vili talks.”
 
@@ -326,7 +326,7 @@ I don't hand my phone to people. I handed it to her and signed the next check.
 
 I knew what she'd find. I had read every one of them at my counter, most of them twice, and the one about the footsteps until I had it by heart. I hadn't shown my sister any of them. I knew what her face would do.
 
-She went up through them from the bottom. Twice she said “Oh.” Once she looked at me over the top of the phone, and I looked at the payroll.
+She went up through them from the bottom. Twice she said “Oh.” Once she looked at me over the top of the phone. I looked at the payroll.
 
 “Is this why Dad has a cushion on that chair?”
 

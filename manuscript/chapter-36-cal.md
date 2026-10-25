@@ -2,6 +2,8 @@
 
 **Cal**
 
+~~11. Doesn't need to work. Free to travel~~
+
 At 10:34 on Tuesday morning, September 15, I walked to the front of the stage in the Civic Auditorium in San Francisco and let four thousand people wait for me.
 
 The Civic holds eight and a half thousand. We had set it for four, with the floor in rows and the balcony closed past the third row, so it would look full on the stream. The stream had one million three hundred thousand people on it. In December 1968 Douglas Engelbart sat at a console on a stage in this building for ninety minutes and showed a thousand engineers a mouse. I read the transcript of it when I was nineteen. I had asked for this room every fall since we were big enough to fill it.

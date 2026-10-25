@@ -20,7 +20,7 @@ Accepted: open slot.
 
 I hadn't booked it.
 
-I had gotten home late the night before. I didn't text him that I was in, because I didn't have his number. I texted Denise one word, HOME, and she sent back a row of question marks that I left alone.
+I had gotten home late the night before. I didn't text him that I was in, because I didn't have his number. To Denise I texted one word, HOME. I left her row of question marks alone.
 
 When he booked it, I was lying in the dark, not sleeping. I was thinking about a hand on the top of my head and telling myself I was thinking about Pacifica.
 
@@ -40,15 +40,15 @@ The fog was sitting on the hill behind the yard. On a clear morning you can read
 
 A florist's van came through the gate while the trucks were still warming up.
 
-In my business flowers mean a widow is saying thank you, and they come at two in the afternoon. These came before the sun did. Whoever ordered them knew what time movers start.
+In my business flowers come at two in the afternoon, from a widow saying thank you. These came before the sun did. Whoever ordered them knew what time movers start.
 
 They were sweet peas. It was a bunch the size you would buy for yourself, in brown paper, with no vase. The card was typed.
 
-*Thank you for the three hours. Sweet peas don't keep, so you won't have to. Cal*
+*Thank you for the three hours. Sweet peas do not keep. Cal*
 
-I read it in the yard with a clipboard under my arm. Then I read it again, because it was right, and I don't trust right. A hundred roses I could have sent back. A vase I'd have had to return. These I could stand in a coffee can on the dispatch desk and let die by Wednesday, and I would owe nobody anything.
+I read it in the yard with a clipboard under my arm. I read it again. It was right, which is the thing I don't trust. A hundred roses I could have sent back. A vase I'd have had to return. These would be dead by Wednesday, so I wouldn't owe him a thing.
 
-Somebody had thought that through. I felt it under my ribs, warm, and I told it to quit.
+Somebody had thought that through. I didn't want to like him for it.
 
 I put them in a coffee can.
 
@@ -72,7 +72,7 @@ Dawn Pruitt called before the first truck was out. She knows what time I'm up. S
 
 I said it fast. It's how I turn down a customer who wants a hundred off, before he gets a foot in the gap. I didn't want to hear what I'd say if I waited.
 
-I heard her pour. Dawn only drinks coffee hot, so she pours half a cup at a time, and over the phone you can count them.
+I heard her pour. Dawn only drinks coffee hot, so she pours half a cup at a time. You can count them over the phone.
 
 “Is that no to him?”
 
@@ -88,7 +88,7 @@ I heard her pour. Dawn only drinks coffee hot, so she pours half a cup at a time
 
 “All right.”
 
-She didn't push. She did divorces for fifteen years, and she knows when a witness is finished.
+She didn't push. After fifteen years of divorces, she knows when a witness is finished.
 
 “I'll tell him,” she said.
 
@@ -102,9 +102,9 @@ I heard her pour again.
 
 “It's a job, Dawn.”
 
-“I didn't say a word,” she said, and hung up.
+“I didn't say a word,” she said. I could hear her laughing as she hung up.
 
-I hadn't told her I liked him. In three hours across from a man with a list I wasn't on, my stomach had gone over the hill twice. A man like that sends a car. Then he sends things. Everything I have I pay for a month at a time. The only one I owe is the bank. I'd still be paying for his things after he'd gone back to his list.
+I hadn't told her I liked him. In three hours across from a man with a list I wasn't on, I'd turned his ears red twice. A man like that sends a car. Then he sends things. Everything I have I pay for a month at a time. The only one I owe is the bank. I'd still be paying for his things after he'd gone back to his list.
 
 I stood in my yard with a can of sweet peas and four hours of sleep and told myself that was the end of it.
 
@@ -146,11 +146,11 @@ She looked at the screen. She looked at me.
 
 ***
 
-I took the sixteen-footer, which is the truck I keep back for estimates and small jobs. It's forty minutes to Sunnyvale at that hour, and I spent them telling myself that an estimate is an estimate.
+I took the sixteen-footer, which is the truck I keep back for estimates and small jobs. I spent the forty minutes to Sunnyvale telling myself an estimate is an estimate.
 
-I know how those go at seven in the morning. A son in the driveway with a key in an envelope, who wants a number by lunch so he can be on a plane by dinner. He'd get the number anybody gets. Somewhere around Redwood City I caught myself working out what I'd say to him first. I made myself do dump fees instead.
+I know how those go at seven in the morning. A son in the driveway with a key in an envelope, who wants a number by lunch so he can be on a plane by dinner. Eleven billion dollars gets the same number as a two-bedroom in Daly City. Somewhere around Redwood City I caught myself working out what I'd say to him first. I made myself do dump fees instead.
 
-The house was on West Remington Drive, a wide street with old trees and a church on the corner. It was one of the low glass ones with a flat roof that they built out there sixty-some years ago. I have cleared four of them. There was a black car at the curb with a driver in it.
+The house was on West Remington Drive, a wide street with old trees and a church on the corner. It was one of the low glass ones with a flat roof that they built out there sixty-some years ago. I've cleared four of them. There was a black car at the curb with a driver in it.
 
 Cal Brennan was on the sidewalk in front of the house, with his back to it.
 
@@ -158,7 +158,7 @@ He had on the gray shirt. It could have been the same one or one of its brothers
 
 I have met a great many people at the curb of a dead parent's house. Most of them are looking at the house. He was looking at the street.
 
-In daylight he was worse. I had said no to Dawn an hour before, and nobody had told my pulse.
+In daylight he was worse. The sun found the gray over his ears and the front tooth that sits a little behind its neighbor. I'd said no to Dawn an hour before.
 
 “Your machine called my machine at midnight,” I said.
 
@@ -186,7 +186,7 @@ The car was at the curb behind him with its engine running. I could have had my 
 
 I had my arms crossed and nothing to push against.
 
-I had wanted him to argue. I found that out on his mother's wet lawn at seven in the morning, and I didn't care for it.
+I'd wanted him to argue. His mother's wet lawn at seven in the morning is a bad place to find that out.
 
 “Is that a real offer?” I said.
 
@@ -202,7 +202,7 @@ He'd get in the back of that car and be on 280 before I had the clipboard back i
 
 “The house still needs clearing,” I said. “That hasn't changed since last night. Tell him he can shut the engine off.”
 
-He raised one hand toward the car, and the engine stopped.
+He raised one hand toward the car. The engine stopped.
 
 “Thank you for the flowers,” I said.
 
@@ -226,7 +226,7 @@ I'd meant to say it once and be square.
 
 “Yes.”
 
-“Then what's kept it shut?”
+“What's kept it shut?”
 
 He looked down at his shoes. They had wet grass on them already.
 
@@ -254,7 +254,7 @@ He lowered the envelope.
 
 This time he looked at me when he said it. My throat went tight. I wanted that envelope out of his hand. Taking it was the one thing I couldn't do.
 
-“Then nobody goes in today,” I said. “You tell me what's in it, and I'll give you a rough number out here.”
+“Then nobody goes in today,” I said. “Tell me what's in it and I'll give you a rough number out here.”
 
 He put the envelope away.
 
@@ -262,7 +262,7 @@ He put the envelope away.
 
 I walked him to my truck and pulled the ramp. It was still wet from the fog on 101.
 
-I went up it. He came after me, and suede has no business on wet aluminum. His foot went out from under him on the second step, and I had him by the arm above the elbow before I'd decided to.
+I went up it. He came after me in suede, which has no business on wet aluminum. His foot went out from under him on the second step. I had him by the arm above the elbow before I'd decided to.
 
 There was more arm there than I expected from a man who types for a living. I let go late. He noticed.
 
@@ -290,9 +290,9 @@ He took the green roll out of my hand and turned it over. I think he was looking
 
 He'd gotten to that question on a truck ramp, before he'd set foot inside. Most people get to it in the kitchen, somewhere around the drawer of bread ties.
 
-“Sometimes it is. Then it all goes on the truck, and you watch it go.”
+“Sometimes it is. It all goes on the truck, with you watching.”
 
-He handed the roll back. Our fingers didn't touch, and I noticed that they hadn't.
+He handed the roll back without our fingers touching. I noticed.
 
 We went back down the ramp. I made him go first, so that if he fell he would fall on the street and not on me.
 
@@ -310,45 +310,65 @@ We went back down the ramp. I made him go first, so that if he fell he would fal
 
 I did the weeks in my head. From a Friday in May to the middle of September is about eighteen. Last night his eyes had filled over that girl. He'd blamed the horseradish. Now she was the deadline on a work order.
 
-“All right. There's a fast way and a slow way.” I held up one finger. “Fast, I send three guys and a truck. They walk in on a Monday with boxes, and by Wednesday night there's nothing in that house but carpet. You never set foot in it. I mail you a bill and a set of keys.”
+“All right. There's a fast way and a slow way.” I held up one finger. “Fast, I send three guys and a truck. They walk in on a Monday with boxes. By Wednesday night there's nothing in that house but carpet. You never set foot in it. I mail you a bill and a set of keys.”
 
 “How much is that?”
 
-“With the garage and the dump fees, about forty-five hundred.”
+“With the garage and the dump fees, about forty-five hundred. Was she a saver?”
 
-He nodded. It was nothing to him, and he had the sense not to say so.
+“A saver?”
 
-“I make better money that way,” I said. “I'm telling you so you know what I'm selling. I won't do it.”
+“A hoarder. Most people's mothers would rather be called a saver.”
 
-“Why will you not do it?”
+“I do not know.”
 
-“Because it's your mother's house, and you're who's left.”
+He'd said that about the garage too.
 
-“Then what is the slow way?”
+“If she was, add two thousand. That's a second truck and a lot more dump runs. Do you want it deep cleaned? Carpets, inside the cabinets, oven, everything.”
 
-“You're in the room. We go one room at a time, every drawer, every coat. You say keep, sell, give or go, and I do the carrying. I bring two guys and a truck. How much time have you got?”
+“What does that cost?”
+
+“Twelve hundred.”
+
+“I do not know what I will do with the house.”
+
+“Decide when it's empty.”
+
+He nodded. It was nothing to him, which he had the sense not to say.
+
+“The fast way's better money for me,” I said. “Three days and I've got my truck back. I'm telling you so you know what I'm selling. I'll do it fast if you want. I'd rather not.”
+
+“Why would you rather not?”
+
+“It's your mother's house. You're who's left. You should see what's in it before it goes.”
+
+He didn't answer right away. He looked down the street, where he'd been looking when I pulled up.
+
+“What is the slow way?”
+
+“You're in the room. We go one room at a time, every drawer, every coat. You say keep, sell, give or go. That's your whole job. I bring two guys and a truck. How much time do you have?”
 
 “I have Saturdays, seven to eleven. Everything else is booked through September.”
 
-“Four hours a week.” I did it in my head. “With you deciding, that's about a room a Saturday. Three bedrooms, two baths, a kitchen, a front room, a hall and a garage nobody has looked in. Call it ten Saturdays.”
+“Four hours a week.” I did it in my head. “That's about a room a Saturday. Three bedrooms, two baths, a kitchen, a front room, a hall and a garage nobody has looked in. Call it ten Saturdays.”
 
-“That is ten.”
+“That is nine rooms.”
 
-“You're looking at fifteen hundred a Saturday, with the truck and the dump runs. I'll walk the house first, with you in it, and then I'll write you a top price. It can come in under that. It can't go over.”
+“The garage gets two. Nobody's looked in it.”
 
-“That is fifteen thousand dollars against forty-five hundred.”
+“You're looking at fifteen hundred a Saturday, with the truck and the dump runs. Once I've walked the house with you in it, I'll write you a top price. It can come in under that. It can't go over.”
 
-“I know what it is,” I said.
+“That is fifteen thousand dollars against forty-five hundred. It is for the same house.”
 
-“It is for the same house.”
-
-“For the same house.”
+“You're not asking about the money,” I said.
 
 He didn't answer that. He looked at the house then, for the first time since I had pulled up.
 
 I watched him look. I'd been trying not to watch him all morning. He had one hand flat against his leg and kept it there. My own hand could still feel his arm above the elbow, where I'd caught him on the ramp.
 
-He was going to take the fast way. Anybody would. If he took the slow way I knew how that would go too. A man with a car at the curb has somebody for everything. He'd say yes on the sidewalk. On the first Saturday I'd get the woman who crosses her sevens.
+He hadn't said the fast way. Anybody would have by now. He'd stood on his mother's lawn and let me walk him through every drawer and every coat, like a man who wanted to hear it. That made me want to be the one who got him through that door.
+
+I knew how the slow way would go too. A man with a car at the curb has somebody for everything. He'd say yes on the sidewalk. On the first Saturday I'd get the woman who crosses her sevens.
 
 “One term,” I said. “Every Saturday, you are in that room. Seven to eleven. Nobody stands in for you. Not your assistant, not a lawyer, and not whatever booked this at midnight. If I pull up to that house and somebody else is in the driveway holding the key, I turn the truck around. The first one is a week from tomorrow, seven o'clock, and after that it's every”
 
@@ -356,4 +376,6 @@ He was going to take the fast way. Anybody would. If he took the slow way I knew
 
 “I'm not finished.”
 
-“I know. Yes.”
+“I know.”
+
+He said it to the front door.

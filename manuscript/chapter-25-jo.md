@@ -142,7 +142,7 @@ She went up the steps with her phone and her coffee and didn't stop reading till
 
 The house in Millbrae belonged to a man who'd died in May. His son had flown down from Spokane for the week to empty it. He'd told me on the phone that his father didn't have much. His father had a den with a fold-out couch and four file cabinets.
 
-My two guys had the bedrooms. The son sat at the kitchen table with the found sheet. I did the den by myself, every drawer, front to back, and brought him what I found one thing at a time. Bank envelopes in a tackle box. A Christmas card from 1994 with a twenty still in it. Thirty years of property tax bills, paid, in order, with the stubs stapled. He called them, and I wrote them down. I brought him a drawer of rubber bands somebody had saved for forty years. He looked at it a long time.
+My two guys had the bedrooms. The son sat at the kitchen table with the found sheet. I did the den by myself, every drawer, front to back, and brought him what I found one thing at a time. Bank envelopes in a tackle box. A Christmas card from 1994 with a twenty still in it. Thirty years of property tax bills, paid, in order, with the stubs stapled. He called each one while I wrote it down. I brought him a drawer of rubber bands somebody had saved for forty years. He looked at it a long time.
 
 “Blue,” he said.
 
@@ -256,7 +256,7 @@ He used the arrows.
 
 The dog went under the table and lay down on my feet. He was warm all the way through my socks. I left my feet where they were.
 
-He read on the laptop. I answered on my phone. He'd read one, say “No,” and go to the next, and I'd paste my sentence under it and sign it. Every so often he'd stop and read one twice.
+He read on the laptop. I answered on my phone. He'd read one, say “No,” and go to the next while I pasted my sentence under it and signed it. Every so often he'd stop and read one twice.
 
 “This one is a person,” he said.
 
@@ -392,7 +392,7 @@ He looked at the first page. Then he looked at the bottom of it, at the gray typ
 
 “No,” he said.
 
-He'd been caught. He stood there with it. I liked him for that. My stomach went over the hill, mad as I was.
+He'd been caught. He stood there with it. I liked him for that, mad as I was.
 
 “Page nine,” I said.
 
@@ -416,7 +416,7 @@ He kept his eyes on me.
 
 I put my hand on the pages. I'd had a speech ready since the on-ramp in South City. I left it in the truck.
 
-Every estimate I've ever written has two lines at the bottom, one for the customer and one for me, and nobody on my crew lifts a thing till both are signed. This had one.
+Every estimate I've ever written has two lines at the bottom, one for the customer and one for me. Nobody on my crew lifts a thing till both are signed. This had one.
 
 All the way down I'd thought I would tear it in half on this tailgate. Standing there, I wanted it fixed. A mom at camp had asked my son about me. A stranger had put his name over mine. His robot had my house and my yard and the night we met. It had put some other woman's name on page nine of me. If there was going to be paper, I wanted his name on it too, where it would cost him the same as me.
 
