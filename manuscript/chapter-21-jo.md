@@ -124,7 +124,7 @@ I wasn't going to bill him for the afternoon. I'd decided that on the floor. I d
 
 ***
 
-His room was the hottest one in the house. The sun came straight through the back glass onto the bed.
+His room was the hottest one in the house. The sun came straight through the back windows onto the bed.
 
 He'd said green for the ribbons and nothing for the bed. I'd left it. When a client can't call something, I leave it in the room until he can. The bed was made with the corners tucked under tight. I've stripped a lot of beds. You can tell one somebody slept in from one somebody made. This one had been made, over and over. I could smell the dryer sheet from the door. I'd seen beds like it on Monday, on Maui, made every week for a man who didn't come.
 
@@ -182,7 +182,7 @@ I turned my head on the slab and looked at him. He was looking at the ceiling. H
 
 “My mother said that,” he said. “She meant it as a complaint.”
 
-I didn't say anything to that. His mother's his business. I looked back up at the beams running out over the glass. His arm was an inch from mine on that cold floor. I could feel the heat coming off it. I didn't move mine. I lay there and wanted him, sweaty and red-eared on his mother's floor in the middle of a job. My whole body knew where his arm was. If I moved an inch I'd stop being on a job. I'd just told Vili we were behind.
+I didn't say anything to that. His mother's his business. I looked back up at the beams running out over the windows. His arm was an inch from mine on that cold floor. I could feel the heat coming off it. I didn't move mine. I lay there and wanted him, sweaty and red-eared on his mother's floor in the middle of a job. My whole body knew where his arm was. If I moved an inch I'd stop being on a job. I'd just told Vili we were behind.
 
 “I do not know what to do about the bed,” he said after a while.
 
@@ -190,7 +190,7 @@ I didn't say anything to that. His mother's his business. I looked back up at th
 
 ***
 
-When the sun went off the back glass, air started to come through the house. I opened every slider, the way his mother did.
+When the sun went off the back windows, air started to come through the house. I opened every slider, the way his mother did.
 
 We ate on the bench in the atrium with the cooler between us. He took the second sandwich without asking whose it was. He ate it in four bites with his elbows on his knees, like a man on my crew.
 
@@ -201,6 +201,20 @@ We ate on the bench in the atrium with the cooler between us. He took the second
 He let that go. He's polite.
 
 After that we worked. Once I told him how many boxes and what size, he built them on the hall floor and taped every bottom in an H without my saying so. I packed his closet. He brought me boxes before I ran out and set each one down where I'd reach for it. Nobody had to call anything. We didn't talk much.
+
+The top shelf was last. At the back, where people put the thing they mean to come back for, there was a box with the flaps tucked under. It rattled when I slid it out.
+
+Cross country, four seasons of medals on striped ribbons. Two little gold runners on plastic columns. A state science fair trophy, bigger than the rest, with a crack in the base somebody had glued. Flat on the bottom, a plaque: OUTSTANDING SENIOR, SCHOOL OF ENGINEERING, 2007.
+
+On Maui I'd decided his piano was money. Nobody hands you a box like that. You get up in the dark for it, for years.
+
+Kids never take it. I carried it out to the hall anyway.
+
+“Green or blue?”
+
+He looked in it without putting his hand in. “Blue.”
+
+He tore off the tape himself and went back to building boxes.
 
 By suppertime my back was gone from the floor and the hall and three days of making up. I sat down on the edge of his bed to write the count on my clipboard. Forty-one boxes, his room and the hall. I'd lie back for a minute. It had been made long enough. I'd unmake it a little.
 

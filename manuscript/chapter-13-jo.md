@@ -6,7 +6,7 @@ I sat in my truck in Cal Brennan's parking garage for forty minutes, reading his
 
 I have sent men home for sitting in a truck on my time.
 
-I got off his elevator, walked to my truck and shut the door. I waited to cry. I didn't. My face stayed hot.
+I got off his elevator, walked to my truck and shut the door. I waited to cry. I didn't. I wanted a dolly and a flight of stairs.
 
 Upstairs I had stood at the edge of his floor and watched him stop a thing that was going out to forty million phones on Thursday. He did it in one sentence, at the volume I use to tell Vili which truck. It was about the boxes he'd sent his mother. The last one was still on her hearth with no tape on it.
 
@@ -24,7 +24,7 @@ There were thirty-two. I went through them the way I go through a closet, every 
 
 “His.”
 
-*Please tell Denise I have never been announced from a window before, and that I didn't mind it.*
+*Tell Denise nobody has ever announced me from a window. I liked it.*
 
 “Hers.”
 
@@ -74,7 +74,7 @@ She said it the way I'd say every kitchen has a junk drawer. At my level I sign 
 
 “You did divorces for fifteen years,” I said.
 
-“I did.”
+“You know I did.”
 
 “The men who sent the most flowers. How did they do in a divorce?”
 
@@ -90,9 +90,9 @@ She said it the way I'd say every kitchen has a junk drawer. At my level I sign 
 
 Back then Dawn sent me one of those wives, out of a four-bedroom in Hillsborough. She packed her bracelets in a shoebox herself and wouldn't let the crew carry it to her car.
 
-I had bought a cushion because of one of those messages. I had read another one to Vili at a red light. I had turned my phone face down on my counter every night for a month, like I was sixteen. If Cal Brennan kept a spreadsheet, I'd been on it since May.
+My father sits on a cushion on the dock now because one of Cal's messages said he should. I had read another one to Vili at a red light. I had turned my phone face down on my counter every night for a month, like I was sixteen.
 
-“How did you tell which ones they were?” I said. “Before.”
+“How did you know which ones would bring a binder?” I said. “Before it got that far.”
 
 “You tell him no, and you watch what he does with it.” She poured again. “You told him no the first morning. I was on the phone with him at 6:20.”
 
@@ -176,7 +176,7 @@ He stood up when he saw me. He always does. He had his cuffs turned back, pad li
 
 “I said Saturday,” I said.
 
-“You did,” Cal said.
+“You did,” Cal said. “I came to fold pads.”
 
 I looked at the pads. They were folded in quarters, every edge lined up, like something a hotel would do.
 
@@ -272,7 +272,7 @@ That was all. I had seven, in the order he said them.
 
 “It's a short list,” I said.
 
-“Yes. It is all of it.”
+“I want to make it longer.”
 
 Seven. I have written longer found sheets for one coat. I read down the sheet while he stood there. Nothing on it had cost him more than a sandwich. The last line was my son's name. Owen would be home on Sunday. He'd want to know what the answer was. I wanted his signature under all seven.
 
@@ -290,11 +290,11 @@ I did not step back. Neither did he. My heart was going, but I was not going to 
 
 “You asked your phone who to marry.”
 
-“Yes.”
+“It knows me best.”
 
 “And it said five foot eight or taller.”
 
-“Yes.”
+“It was off by a curb.”
 
 I had stood on a curb in a dress for that line. I had made him get the number right.
 
@@ -306,8 +306,8 @@ On the first morning he'd offered to take the job to another company. I could ha
 
 “Saturday,” I said. “Seven. The contract's the same as it was.”
 
-“Yes.”
+“I will butter the bread. Both pieces.”
 
 “And if you've got something to say to me before then, you type it yourself. I don't care how short it is.”
 
-“Yes,” he said.
+“Understood.”

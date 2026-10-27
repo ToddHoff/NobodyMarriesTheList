@@ -8,7 +8,7 @@ On Thursday I had written to ask what time and what I should bring. She wrote ba
 
 I had thought about wine on the drive up. I had thought about flowers. In May Janice had sent her sweet peas in my name. In June Jo had found out who chose them. She writes what she means. When I got out of the car my hands went to my pockets for something to carry.
 
-It had been eighty-one degrees in Woodside when I left. On her street it was fifty-nine, with the fog coming over the ridge to the west. Her sixteen-footer was backed into the driveway. I had parked behind it at 5:44 and walked to the end of her street and back, twice.
+It had been eighty-one degrees in Woodside when I left. On her street it was fifty-nine, with the fog coming over the ridge to the west. Her pickup was in the driveway. I had parked behind it at 5:44 and walked to the end of her street and back, twice.
 
 A jet went over, climbing, low enough that I looked up to find it. A man across the street was watering his lawn. He did not look up.
 

@@ -438,7 +438,7 @@ Abby looked at her for a second. Then she smiled with her whole face. I had not 
 
 They were in the atrium for ten minutes. Abby told Jo she moves into her dorm at Cal Poly on the eighteenth of August, for architecture. I had it as September. It was on my refrigerator. I had not read it. It was twenty-four days. I had been counting on September without knowing I was counting on anything.
 
-She wanted to know about the house. Jo has moved more Eichlers than Abby had been inside. Jo showed her where the posts carry the roof and where the beams run out past the glass. She told her the heat was hot water in copper pipes in the slab, so never to let anybody drill the floor.
+She wanted to know about the house. Jo has moved more Eichlers than Abby had been inside. Jo showed her where the posts carry the roof and where the beams run out past the windows. She told her the heat was hot water in copper pipes in the slab, so never to let anybody drill the floor.
 
 “Grandma said the floor was warm in winter,” Abby said. “I used to lie on it.”
 

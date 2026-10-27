@@ -94,7 +94,7 @@ At 1:35 in the afternoon the rest of the green was in the truck: both tables and
 
 “Walk-through,” Jo said, and went into the house by herself.
 
-Last Saturday she had gone into the house by herself at the end and stayed nine minutes. I had not known what she did in there. I stood in the atrium where she had left me and watched her through the glass.
+Last Saturday she had gone into the house by herself at the end and stayed nine minutes. I had not known what she did in there. I stood in the atrium where she had left me and watched her through the window.
 
 I watched her go into the front room, where the three boxes were still on the hearth. She went into my mother's bedroom, and into mine, and into the hall bathroom, which had no door now. She opened every closet. She opened the oven. She ran her hand along the top of the refrigerator nook where the refrigerator had been.
 
@@ -596,6 +596,18 @@ She held on to the card.
 
 “Janice never knew. She would have asked me why.”
 
+“So why?”
+
+“In seventh grade a boy ahead of me in line had charged as far as the district allowed. The rule was a cheese sandwich and the tray went back. She gave him the tray.”
+
+“Good for her.”
+
+“The district sent a letter to the house. It said one more time and they would let her go. It sat on the kitchen table for a week. I read it every day after school.”
+
+“Did she stop?”
+
+“I never found out. In 2012 I had the money. If she was still doing it, the check covered her.”
+
 Jo turned the card over in her hands.
 
 “She was at the register on the last day of school,” I said. “Every year, until she retired.”
@@ -603,6 +615,20 @@ Jo turned the card over in her hands.
 “Did she know?”
 
 “I do not know. She never said. And I never asked her.”
+
+Jo turned the card over in her hands again. “You still owe me one,” she said. “From the sixth course.”
+
+I knew which one.
+
+“She had fifteen minutes at ten-thirty,” I said. “Any call she had to make, she made then, from the phone on the wall by the dish room. The doctor's office. The district, about her hours. Most of the fifteen minutes she was on hold.”
+
+She waited.
+
+“That was the first thing it ever did. It waited on hold for my mother.”
+
+“Did she use it?”
+
+“No. She told me she did not mind the music.”
 
 Jo looked at the back of the card. There were nine lines on it now, in her capitals, struck. Twelve was not one of them. She put the card back in my shirt pocket herself and pushed it down with two fingers. She left her hand there on my chest and pressed once.
 

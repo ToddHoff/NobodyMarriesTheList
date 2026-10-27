@@ -8,7 +8,7 @@ Nineteen messages had gone to Jo Silveira in my name. On Friday night I read eig
 
 When Jo quoted one to me across a table on Wednesday, at 9:14 in the evening, I told her I had noticed it recently. It was the one lie I had told her. I had until seven on Saturday to make it true.
 
-*Please tell Denise I have never been announced from a window before, and that I didn't mind it.*
+*Tell Denise nobody has ever announced me from a window. I liked it.*
 
 That one went on May 19, the Tuesday I took a sandwich to her yard. I learned the sister's name from it.
 
@@ -20,7 +20,7 @@ That was the one Jo had read to Vili. In three Saturdays of walking through my m
 
 I read all eighteen at my kitchen counter with Pancake asleep across my feet. They were warm and exact. Under some of them were her answers, short, the first one *Next Saturday bring a lunch.* I read her answers more times than I read the messages.
 
-Some of the messages I could account for. One said her father should have a cushion on his chair on the dock. I had seen that chair on the Tuesday I brought the sandwich. Afterward I told Janice it was a kitchen chair. The cushion was Janice's. Two of them I could not account for at all.
+The cushion was half mine. I had told Janice her father sits on a kitchen chair on the dock. Janice thought of the cushion. The footsteps were not mine at all. Neither was Denise.
 
 I called Janice at 10:52.
 
@@ -40,13 +40,33 @@ Janice paused. It was the seventh time in seventeen years.
 
 “It's supposed to be,” she said. “You have a seven o'clock,” and she hung up.
 
-I knew Janice was from Fresno. I had not known about the house. She had given that line to Jo with my name under it. In seventeen years I had not asked her where any of it came from.
+In her yard Jo had told me, next time, ask.
 
-There was no message for Wednesday. Janice writes from what I tell her. On Wednesday night I had not called her. On Thursday I called and told her about the dinner, as far as the taco truck. I did not tell her about the kiss.
+I called her back.
 
-If I had told Janice about the kiss, it would have gone to Jo that night at 9:14, in my name. It would have been better than anything I could say about it. I did not want to read it.
+“Calvin.”
 
-I did not tell Janice to stop the messages either. It would have taken one sentence. If they stopped in the week of the kiss, Jo would notice that before anything else. She would think she knew why. I could not tell her the real reason without telling her who had been writing to her.
+“What was your mother's name?”
+
+The line was quiet long enough that I thought she had gone.
+
+“Rose,” she said. “Go to bed, Calvin.”
+
+I had not called Janice on Wednesday night, so nothing went to Jo.
+
+On Thursday I told Janice about the dinner in order, the way she likes it. I stopped at the taco truck.
+
+“And then?” she said.
+
+“Then she drove home.”
+
+Janice let that go by. Whatever she wrote about the rest would have been better than anything I had. I did not want it better.
+
+“Shall I write to her tonight?”
+
+If the messages stopped the week I kissed her, Jo would want to know why. The answer had Janice in it.
+
+“Yes,” I said.
 
 ***
 
@@ -56,15 +76,13 @@ I put Pancake in the back yard and stood at the curb, where I could see down Rem
 
 I had kissed her fifty-seven hours earlier. I can give you the place, and what she had made me eat first. Since Wednesday I had gone back over it in four meetings and in the car. Mostly I went back over her hand flat on my chest, and that she had to tell me to come down.
 
-I had nothing prepared for seven o'clock on a Saturday in front of two men she pays. I had tried. On the walk with Pancake at five I had made up three things to say to her, each of which sounded like Janice.
-
-I did not wait inside. I wanted to be the first thing Jo saw when she turned onto Remington.
+I moved to the end of the driveway, where she would see me in her mirror before she saw the house.
 
 Her truck turned onto Remington at 6:59.
 
-She takes it past the driveway and backs it in. I had watched her do it on three Saturdays, one pass each time. My car was at the curb beside the driveway, where it had been on all three. It is the car I have owned for three years and hardly driven.
+She takes it past the driveway and backs it in. I had watched her do it on three Saturdays, one pass each time. My car was at the curb beside the driveway, where it had been every Saturday.
 
-This time I could see her face in the side mirror, looking at me. Her hair was tied back and the pencil was behind her ear. She smiled. My watch tapped.
+This time I could see her face in the side mirror, looking at me. Her hair was tied back and the pencil was behind her ear. She smiled.
 
 The truck kept coming. The back corner of it went into the front of my car with more noise than I would have predicted. The truck stopped all at once. In the mirror her head went back against the seat.
 
@@ -72,11 +90,15 @@ I went to the cab. I was there before I had decided to move. She had the door op
 
 “Are you hurt?” I said.
 
-“No.”
+“No.” She had it out before I finished asking. “How bad is your car?”
 
-I looked at her anyway, at her hands on the door and at her neck. My watch was buzzing against my wrist and did not stop.
+“It has 1,100 miles on it. It will not miss a headlight.”
 
-I wanted to put my hand on the back of her neck. On the first Saturday she had taken my wrist to look at a cut thumb. I did not know whether I was allowed the same. Vili and Manny were getting down from the cab. I kept my hands at my sides.
+I looked at her anyway. She would not look at me. She was looking past me at my car, at whatever she had done to it. I did not turn around. Her hand went to the back of her head and came away. She glanced at her fingers. So did I. There was nothing on them.
+
+I let go of the door frame. It had left a line across my palm.
+
+Her head had gone back against the seat. On the first Saturday she had taken my wrist and turned my cut thumb to the light. I wanted to check her the same way. I did not know whether I was allowed. Vili and Manny were getting down from the cab. I kept my hands at my sides.
 
 She came down past me and walked to the back of the truck. Vili came around the other side and whistled, two notes. She looked at the fender, and then at the headlight. Most of the headlight was in the street.
 
@@ -86,9 +108,9 @@ She came down past me and walked to the back of the truck. Vili came around the 
 
 “Runners, Vili.”
 
-He went for the runners. He was smiling at the driveway.
+He went for the runners. On the way past me he said, “Strapped,” to nobody.
 
-My ears had gone hot. I did not think Jo had told Vili anything about Wednesday. He had worked it out from my fender.
+I did not know what it meant. I knew it was about me. From the way Jo had said *runners*, she had not told him about Wednesday either. He had worked it out from my fender.
 
 My phone lit.
 
@@ -115,11 +137,11 @@ I had said three things to her that morning. The last one was a count of lunches
 
 The job that day was the front room.
 
-I put blue on the couch and both end tables in under a minute. Once Vili and Manny took the couch out, the room answered my boots. Janice was right about that. I had needed to be told.
+I put blue on the couch and both end tables in under a minute. Once Vili and Manny took the couch out, the room answered my boots. Janice was right about that.
 
-I stopped in the middle of the room. Then I took one more step, to test it. The room did it again. I had crossed that room every day until I was eighteen. I had never heard it do that.
+I stopped in the middle of the room. Then I took one more step, to test it. The room did it again. I had crossed that room every day for eighteen years without once hearing it.
 
-The table under the globe lamp I could not do. It sat with no tape on it, which is permitted.
+The table under the globe lamp was where she sat. I could not give it a color. It sat with no tape on it, which is permitted.
 
 Jo worked across the room from me. She worked with her sleeves pushed up, tucking her shirt in again without looking whenever a reach for the top of a shelf pulled it loose at the back. By ten she had done that four times. I had watched all four.
 
@@ -129,55 +151,21 @@ Twice I started a sentence. Each time I heard it against one of Janice's and sto
 
 “You've said forty words since seven,” she said. “I've been counting.”
 
-“I have said thirty-four.”
+“Thirty-four.”
 
-“You wrote me that line about the footsteps.”
+“You wrote me that line about the footsteps?”
 
-“Yes.”
+I could not answer. I put a second strip of blue on an end table that already had one.
 
-“So which one are you? The one who writes, or this one?”
+“The one who writes me would've had a paragraph about my driving.”
 
-“I am the one with thirty-four words.”
+“That one was not there.”
 
 She laughed. I felt it in my chest, where I had felt it at dinner.
 
-The one who writes was Janice. I had known it since Friday night.
-
-There was a sugar bowl on the table. It has been on that table since before I could see over it.
-
-She picked it up and weighed it in her hand before she took the lid off. Then she tipped it out over the lid of a box. About an inch of sugar came out before it turned to gravel.
-
-It was the gray gravel from the atrium. I had walked across it on my way in.
-
-“Did she take sugar?” Jo said.
-
-“No. She took her coffee black.”
-
-“Who came for coffee?”
-
-“I do not know.”
-
-My mother had never passed me that bowl. I take my coffee black, as she did. In the five years before she died I had come to that house four times. I had never lifted the lid. I had not asked her who used it.
-
-She has cleared two hundred houses, so I asked.
-
-“Have you seen that before?”
-
-“I've seen it a lot. Never with rocks.” She held out both rolls. “Green or blue?”
-
-“It is a bowl of gravel.”
-
-“It's your mother's sugar bowl.”
-
-I took the green.
-
-At 8:20 I went out to fill the dog's bowl. Vili had swept the headlight into a pile with a push broom and set an orange cone on it. I walked around the cone. When I came back in, Jo was at the glass. She went back to the lamp.
-
-She had been watching through the glass while I was out. She could have been looking at the car. I wanted it to have been me.
-
 The recipe tin was on the shelf behind the table, with four cookbooks. It was a green tin box, the size for three-by-five cards, with a hinged lid.
 
-Jo fans everything she finds. I had watched her fan a stack of packing slips with her thumb. She kept the tin shut. She stood with it in both hands for eleven seconds, looking at something that was not the tin.
+She kept the tin shut. She stood with it in both hands, looking at something that was not the tin.
 
 “Green,” she said.
 
@@ -191,9 +179,9 @@ She tore the tape with her teeth and pressed it down on the lid with her thumb.
 
 “I'm not guessing.”
 
-She set it on the table beside the sugar bowl and went out to the truck.
+She set it on the table and went out to the truck.
 
-I did not ask. On the first Saturday she had seen me stop at the kitchen floor and had not asked me why.
+I did not ask what she had been looking at. On the first Saturday my boots had stopped at the strip of aluminum. She had looked at me without asking.
 
 I opened it while she was gone. The cards were in my mother's hand, in blue ballpoint. In the top corner of each one she had written how many it served. On the older cards the number was 2. It had a line through it and a 1 beside it.
 
@@ -263,7 +251,7 @@ She put the sandwich down and held out her hand. I gave her the card. She took t
 
 “What did you do?”
 
-“I moved her to another school. Then I wrote line six.”
+“I moved her to another school. I have lived by line six ever since. Remy only wrote it down.”
 
 I had not told that to anyone who was not paid to hear it. I told it to her on a bench in my mother's atrium with her knee against mine. It took less time than I had always assumed it would.
 
@@ -275,15 +263,21 @@ Jo looked down at her phone, where Mr. Hagen was.
 
 “I know. It is on my boxes.”
 
+“You know, technically Yelp isn't social media.”
+
+“We will have to agree to disagree.”
+
 She drew the line.
+
+I laughed. She did not look up from the card, but she was smiling at it.
 
 “That's five. You owe me one more, and half a linguiça.”
 
-“Yes.”
+“I know. I am in no hurry.”
 
-She was still looking at the card.
+She was still looking at line six.
 
-“Who would I even call?” she said. “To sell it.”
+“I don't do that,” she said. “Not to anybody.”
 
 I have fourteen pages, drawn up by a good firm, that are meant to say what she had just said. They are not as good.
 
@@ -295,11 +289,11 @@ She picked the clipboard up off the bench.
 
 “It's a fender and a headlight.”
 
-“Yes.”
+“It was my fault. I stood where you would see me.”
 
 “Most people would have had a number for me by five past seven.”
 
-“I do not have a number.”
+“Am I most people?”
 
 She turned the clipboard around. Under the found sheet there was a form, already filled in. The time written at the top was 7:04.
 
@@ -317,6 +311,6 @@ I can have a fender replaced without anyone signing anything. She was holding ou
 
 I signed by the X.
 
-I took out my phone. The request from 7:00 was still on the screen. I declined it.
-
 She tore off the bottom copy and gave it to me.
+
+“Now you're most people,” she said.

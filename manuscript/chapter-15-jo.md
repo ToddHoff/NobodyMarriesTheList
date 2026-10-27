@@ -62,13 +62,11 @@ I handed him a crew shirt from the box in the cab, gray, with SILVEIRA across th
 
 He took his own shirt off right there in my yard.
 
-I'm not going to pretend I looked at the truck. He's built like a man who works out four mornings a week, which he does. The light over the dock was not kind to anybody but him. There was gray in the hair on his chest. There was a number on the label of the shirt in his hand, in black marker. He'd done it himself. It's forty shirts and a marker.
-
-I wanted my hand on that gray before the sun was up, in my own yard, with my crew pulling in behind me.
+I'm not going to pretend I looked at the truck. He's built like a man who works out four mornings a week, which he does. The light over the dock was not kind to anybody but him. There was gray in the hair on his chest. There was a number on the label of the shirt in his hand, in black marker.
 
 He put on my shirt. It said my name across his back.
 
-It's my father's name. He had it painted on the first truck in 1987. I've put it on the back of every man I ever hired. I quit seeing it a long time ago. On Cal it went from one shoulder blade to the other. I wanted to put my hand flat on it, between his shoulders, and leave it there. I picked his forms up off the hood instead.
+It's my father's name. He had it painted on the first truck in 1987. I've put it on the back of every man I ever hired. I quit seeing it a long time ago. On Cal it went from one shoulder blade to the other. I was still mad at him. I wanted to put my hand flat on it anyway, between his shoulders, and leave it there. I picked his forms up off the hood instead.
 
 Vili pulled in next and looked at Cal in that shirt for a long time.
 
@@ -94,9 +92,9 @@ That left Cal in the middle of the bench with his knees up, because the middle s
 
 “Two-story,” I said. “Mr. and Mrs. Delgado, going to a condo in San Mateo. What won't fit in a condo rides with me to their son's garage. The stairs turn at the landing. There's a room upstairs that's nothing but books. You're on boxes.”
 
-“Yes.”
+“How do I carry one down the stairs?”
 
-“Going down, you carry the box on your shoulder, not in front of you. That way you can see your feet.”
+“On your shoulder, not in front of you. That way you can see your feet.”
 
 “The box goes on my shoulder,” he said, “so that I can see my feet.”
 
@@ -108,7 +106,9 @@ He says everything back. He's putting it in a file. I've had men on my crew for 
 
 “Eat again at nine. You'll want it.”
 
-“Yes.”
+“I did not bring anything.”
+
+Manny, asleep against the door, said, “I got you.”
 
 He didn't say anything else until we got off at Millbrae Avenue.
 
@@ -164,13 +164,13 @@ Cal set the box on the ramp. He didn't drop his shoulders or change his voice. H
 
 He went back in for the next box. The son stood on the lawn a while before he went back to the kitchen, where his mother put him on the lamps.
 
-I heard all of it from the back of the truck. On every job there's a son who wants something off my crew that isn't on the estimate. My guys look at me before they tell him no. Cal hadn't even looked up at the truck. My face went hot, standing in my own truck with a pad over my arm. I called the next box to the wrong tier and had to move it myself.
+I heard all of it from the back of the truck. I'd been watching him all morning for the piano. A man doing this for my benefit would have checked whether I'd heard. He never looked at the truck. Manny had been standing on the ramp with a box for I don't know how long.
 
 Then Vili put him on the high end of a dresser. On stairs the low man takes the weight, so the low man calls the lift. Vili called it. Cal lifted when he was told and not before. At the turn on the landing he said “Wait.” They waited, then brought it around with about a pencil's width between the corner and the wall. I was at the bottom of the stairs holding my breath. I don't do that.
 
 His watch tapped on every landing. I could hear it from the truck. After a few trips he took it off, put it in his pocket and kept going. After that I watched his neck instead.
 
-His neck was wet at the hairline and red where my collar rubbed it. When he bent for a box, the shirt went tight across his shoulders. I lost count of the boxes twice and had to go by the tiers.
+His neck was wet at the hairline and red where my collar rubbed it. When he bent for a box, the shirt went tight across his shoulders. I lost count of the boxes twice and had to start over.
 
 Later I went up to check the book room while he was coming down. The landing on those stairs is about three feet square. I should have waited at the bottom. I went up. We turned sideways to get past each other, him with a box on his shoulder, me with my face an inch from his collarbone. He smelled like cardboard and his own soap. His breathing was loud. Mine wasn't any better.
 
@@ -184,7 +184,7 @@ I stayed on my knees a minute and listened to him on the stairs. He was going do
 
 My shirt was dark down Cal's back, under my name. He'd stopped talking at all except to say “Yes” to Vili. He took the stairs slower now, stopping on the landing to turn his whole body instead of his shoulders. Nobody had told him that. He'd watched Vili do it twice.
 
-I worked the truck. I load my own trucks. I stood in the back with the clipboard and the pads and called out where each piece went. Every time he came up the ramp with a box, I told him the tier and he put it there. He never asked me twice.
+I worked the truck. I load my own trucks. I stood in the back with the clipboard and the pads and called out where each piece went. Every time he came up the ramp with a box, I told him where and he put it there. He never asked me twice.
 
 He set the last box from the book room on the ramp just before lunch, but he didn't pick up the next one.
 
@@ -194,9 +194,9 @@ He was looking at his hands. They wouldn't close all the way. I've seen it on ev
 
 He sat down on the ramp. A new man always argues with me about that. He didn't.
 
-I wanted to sit down on the ramp beside him and open his hands for him, a finger at a time. My father did that for me in the cab the first summer I rode with his crew, when I couldn't close my hand around a sandwich and wouldn't say so. He didn't say anything either. He opened my fingers and put the sandwich in them.
+I wanted to sit down on the ramp beside him and open his hands for him, a finger at a time. The first summer I rode with my father's crew, I couldn't close my hand around a sandwich and wouldn't say so. Dad didn't say anything either. He opened my fingers in the cab and put the sandwich in them.
 
-I didn't touch him. Manny was coming across the lawn with a chair. I sign Manny's checks too. I got a water out of the cooler, set it on the ramp beside Cal and went up into the truck to check my tiers.
+I didn't touch him. Today he was payroll. Manny was coming across the lawn with a chair. I got a water out of the cooler and set it on the ramp beside Cal. I went up into the truck and restacked boxes that didn't need it.
 
 ***
 
@@ -228,11 +228,11 @@ Cal started again. This time it was his own voice, which isn't any good at this.
 
 “Where?”
 
-“I do not know yet. I have not booked anything. I have not told Remy. Or Janice.” He looked around at Vili, Manny and the Delgados' son, who had come out onto the porch. Then he looked at me. “That is all of it.”
+“I do not know yet. I have not booked anything. I have not told Remy. Or Janice.” He looked around at Vili, Manny and the Delgados' son, who had come out onto the porch. Then he looked at me. “That is my whole plan.”
 
 His hands were shaking at his sides. It could have been the boxes.
 
-I went through it for the piano anyway. I'd been at it since Sunday night at my counter. This had even less in it than his text.
+I looked for the piano anyway. I'd been at it since Sunday night at my counter. This had even less in it than his text.
 
 Then I counted Saturday. We'd be done at his mother's house by one. There was nothing after that. My heart was going. I'd forgotten I was holding half a sandwich in my lap.
 

@@ -56,7 +56,7 @@ She stopped in the doorway with her clipboard.
 
 ***
 
-We ate on the bench in the atrium with the plates on our knees. On Saturday we had eaten her sandwiches there. The sun was low enough to come straight through the glass on the far side. It made the gravel orange.
+We ate on the bench in the atrium with the plates on our knees. On Saturday we had eaten her sandwiches there. The sun was low enough to come straight through the windows on the far side. It made the gravel orange.
 
 She ate the first bite and chewed it for a while.
 
@@ -160,7 +160,7 @@ The second box was Christmas 2014. It was candles, three of them, in glass, stil
 
 I read the gift receipt. It had no price on it. It had the name of the item, an item number and the line *Ordered by: Office of C. Brennan.*
 
-By 2019 the light had gone off the back glass. By 2021 Jo had turned on the hall light.
+By 2019 the light had gone off the back windows. By 2021 Jo had turned on the hall light.
 
 There was a white robe with the tags on, and slippers in size seven, and a tea sampler, and a blender with nine speeds in its foam. There were chocolates from 2016 that had gone white on the outside.
 

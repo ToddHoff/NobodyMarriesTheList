@@ -22,7 +22,7 @@ Two of the nine frames in the hall still had the store's people in them. I wrote
 
 I called lunch. The state says thirty minutes. I give forty-five and I don't bill it. Since lunch was the end of his four hours, I figured he'd be gone before we got the cooler open.
 
-Vili and Manny took the cooler out to the tailgate. Vili looked at me, and then through the glass at Cal Brennan, who was standing in his mother's living room with a tape gun, working out what lunch was.
+Vili and Manny took the cooler out to the tailgate. Vili looked at me, and then through the window at Cal Brennan, who was standing in his mother's living room with a tape gun, working out what lunch was.
 
 “You eating alone today, boss, or with the client?”
 

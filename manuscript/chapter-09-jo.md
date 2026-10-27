@@ -18,9 +18,9 @@ Cal stopped on the walk and read the side of the truck.
 
 “You didn't read what you were buying.”
 
-“No.”
+“No. I do not read most of what I buy.”
 
-“Huh,” I said, and went to the window.
+“That's how people end up with storage units,” I said, and went to the window.
 
 I laughed the whole way over. He could have told me he'd picked it. I've had clients stand in their own kitchens and tell me they knew what was in a drawer they hadn't opened in thirty years. This one stood on the walk with his hands at his sides and let me laugh at him. I had to get my face straight at the window.
 
@@ -66,13 +66,13 @@ We stood at the window while he cooked. It was the first heat I had been near al
 
 “What?”
 
-“You said you moved a dentist's office today, with the chairs. I have been trying to estimate one since the ninth course.”
+“You said you moved a dentist's office today, with chairs. I have been trying to estimate one since the ninth course.”
 
 “What did you get?”
 
 “I got two hundred pounds.”
 
-“Three hundred. They're bolted to the slab. The dentist never knows where.”
+“Three hundred. They're bolted to the slab. The water and air lines come up through the floor. A plumber caps them before we can touch one.”
 
 “How many were there?”
 
@@ -88,11 +88,13 @@ He stood on that for a while.
 
 “And then I put on a dress.”
 
-My neck went hot, so I watched the man turn the tortillas.
+“I did not say anything about it at your door,” he said. “Nothing I had was good enough.”
+
+The man in the window asked me twice about onions and cilantro. On a job I can hear a dropped screw two rooms away.
 
 I'd stood at my closet before I left and taken the dress off once and put it back on. At the door he had looked at it long enough that I raised my eyebrows at him. Then he didn't say a word about it through twelve courses. I had decided that meant he didn't think much of it.
 
-Two paper plates came through the window. Cal took both. I let him. They were his until somebody ate them.
+Two paper plates came through the window. Cal took both. He carried them out in front of him, one in each hand, the way nobody should carry anything. I didn't say a word.
 
 “Did Janice tell you to walk me to my truck?” I said.
 
@@ -116,7 +118,7 @@ He took four steps on that one.
 
 “I wanted to walk you to it.”
 
-He was looking straight ahead when he said it, with a paper plate in each hand. His ears were red under the lot light. My face went warm. I looked at the asphalt until it quit.
+He was looking straight ahead when he said it. His ears were red under the lot light. I caught my sandal on a curb stop I'd have seen in boots.
 
 At the bar he had squared that card to the edge of the table every time I said something he had no answer for. At dinner he'd squared his knife. I took it for manners. The card had been in his car since before I sat down. When he told me what Dawn asked him, he hadn't had anything to read it off.
 
@@ -150,7 +152,7 @@ On a job I eat away from the crew. Nobody watches me do it. I had grease running
 
 “That's the something to eat,” I said. “You're down to two lines and half a linguiça.”
 
-“Yes.”
+“That was the best thing I have eaten tonight.”
 
 I got up and opened the cab. I keep a bag of clean rags behind the seat, next to the shirt. I gave him one and took one. We stood there wiping our hands like two guys at the end of a job.
 
@@ -160,15 +162,15 @@ He saw it too. He looked at my sandals and then at the curb. I watched him add.
 
 “You are sixty-eight and a half inches,” he said.
 
-“Sixty-eight. That curb's five and a half. They've paved this lot twice. You lose some curb every time.”
+“Sixty-eight. That curb's five and a half. I've backed a truck up to a thousand curbs.”
 
 He looked at the curb again before he took my number.
 
 “That is five foot eight,” he said.
 
-“That's line one,” I said. “It took a curb.”
+“Put it back on the list,” I said. “I'll bring the curb.”
 
-He stayed where he was, down on the asphalt, with my rag in his hand.
+He laughed, one syllable I felt more than I heard. He stayed where he was, down on the asphalt, with my rag in his hand.
 
 “I told you I would not ask you to dinner again,” he said.
 
@@ -186,7 +188,7 @@ He stayed where he was, down on the asphalt, with my rag in his hand.
 
 He didn't lean in. He stood there and waited for an answer. I have been asked a lot of things at the back of a truck. Whether it will fit. Whether I can come back Thursday. Nobody had ever asked me that one.
 
-If I said no, he would take it. He had taken one on his mother's wet lawn at seven in the morning and offered to get back in his car. He'd kept to it longer than I had. He'd hand me back my rag and walk me around to my door. Owen was at his father's till Sunday. My crew was asleep.
+He'd take a no. He'd taken one on his mother's lawn. I didn't have one on me.
 
 “Hold still,” I said.
 
@@ -222,7 +224,7 @@ I had other things I could have said. I didn't want to stand on a curb and hear 
 
 “Three.”
 
-I went around to the driver's side and got in. He was still at the curb in my mirror when I made the turn. He had my rag. I didn't go back for it.
+I went around to the driver's side and got in. He was still at the curb in my mirror when I made the turn. He had my rag. I didn't go back for it. If I went back, I wasn't sure I'd leave again.
 
 On the way out I passed the taco truck. Three people in aprons were at the window, one of them the kid who had brought the bread.
 
@@ -238,7 +240,7 @@ I had gone to that dinner to find the piano. I went back through the night for i
 
 There was a taco truck he'd asked me about before he sent for it. He'd paid for it without reading what it was. I had laughed.
 
-I went through it twice. There wasn't a piano in it.
+I went through it twice. No piano.
 
 That should have settled it. I have cleared two hundred houses. Twice I've walked one and called it clean. Both times I was back the next morning for what I'd missed.
 
@@ -316,7 +318,7 @@ It was.
 
 “He remembers everything. He writes it to me.”
 
-“Vili says you read him one in the truck. I do your taxes. Vili gets read to.”
+“Vili says you read him one in the truck. I do your TAXES. Vili hears them first?”
 
 “Vili talks.”
 
@@ -338,7 +340,7 @@ She went up through them from the bottom. Twice she said “Oh.” Once she look
 
 She kept going. Then her face stopped.
 
-“‘Please tell Denise I have never been announced from a window before,’” she read, “‘and that I didn't mind it.’”
+“‘Tell Denise nobody has ever announced me from a window,’” she read. “‘I liked it.’”
 
 “You yelled ‘He called’ across my yard,” I said. “The Tuesday with the sandwich.”
 

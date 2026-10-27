@@ -4,13 +4,17 @@
 
 On Saturday Jo's son asked me nine questions in my mother's back yard, with my dog's leash in his hand.
 
-Eleven minutes earlier his mother had taken hold of my shirt in the hall and told me to bend down. I could still feel where her hand had been, two buttons below the collar. I answered all nine with my back to the glass, because my face was not under control.
+Eleven minutes earlier his mother had taken hold of my shirt in the hall and told me to bend down. I could still feel where her hand had been, two buttons below the collar. I answered all nine with my back to the house, because my face was not under control.
 
 He read them off his phone.
 
 “Question one. Can I pet your dog?”
 
-“Yes.”
+“Ask Pancake. Do you know how?”
+
+“You hold your hand out low with your knuckles up and let him smell it. You don't go over his head. If he leans on you, that's yes.”
+
+“That is right,” I said. “He is yours for two laps.”
 
 “Question two. How many voices did you test for Remy?”
 
@@ -20,15 +24,15 @@ He read them off his phone.
 
 He was checking whether I did. I have run interviews that way since the company had four people.
 
-Pancake walked him twice around the yard. Owen held the leash in both hands, as I had shown him, with his back to the glass, where his mother was.
+Pancake walked him twice around the yard. Owen held the leash in both hands, as I had shown him, with his back to the house, where his mother was.
 
 He is nine. My daughter was nine in 2017. I was not here for that line either.
 
 I remembered the last of mine. I was twelve and told her I was too old for it. She made me stand there in my socks anyway. Fourteen years later she started a column for Abby next to mine. She never mentioned it in the four times I made the drive in her last five years.
 
-Jo watched from the other side of the glass with her arms crossed. Her hair was half out of its tie. My hand had been in it in the hall. She watched her son and the dog, except twice, when it was me. I counted.
+Jo watched from inside the sliding door with her arms crossed. Her hair was half out of its tie. My hand had been in it in the hall. She watched her son and the dog, except twice, when it was me. I counted.
 
-When Pancake had done his two laps he went to the glass and leaned on it, where her leg was.
+When Pancake had done his two laps he went to the door and leaned on it, where her leg was.
 
 “He's leaning on my mom through a window,” Owen said.
 
@@ -40,11 +44,9 @@ Owen looked from the dog to his mother.
 
 “I do not take many.”
 
-“My mom hasn't had one since I was born.” He did not look at his phone for that one. “She's taking one when the house is paid. She has a spreadsheet. I'm not allowed on it.”
+“My mom hasn't had one since I was born.” He did not look at his phone for that one. “She says she's taking one when the house is paid. She has a spreadsheet. She won't show me.”
 
-He walked Pancake to the fence and back. I waited. He had not finished.
-
-“In November she fell asleep on the kitchen floor,” he said.
+He walked Pancake to the fence. On the way back he said, “In November she fell asleep on the kitchen floor.”
 
 “What time was it?”
 
@@ -60,15 +62,21 @@ He walked Pancake to the fence and back. I waited. He had not finished.
 
 “And in the morning?”
 
-“My lunch was in the fridge with my name on it. I asked her if she was okay.” He looked at the glass. “She said she had it.”
+“My lunch was in the fridge with my name on it. I asked her if she was okay.” He looked back at the house. “She said she had it.”
 
-I could have had a person in that kitchen by Monday for the counter and the lunches. I could have had a car at her curb and the house on Maui stocked for a week. I had most of it arranged in my head before he finished the sentence. I said none of it. On a job her son asks a client for nothing. He had not asked. He had told me what time it was.
+I could have had a person in that kitchen by Monday and the house on Maui stocked for a week. My phone was in my hand before he finished. I put it back.
 
-Owen looked at the dog again.
+“My mother used to fall asleep at the kitchen table,” I said. “I should have put a blanket on her.”
+
+Pancake leaned on his leg.
 
 “He's still second in my app,” he said. “I'm thinking about it.”
 
-I tell my board the same thing when I have already decided and want one more quarter of numbers before I say so. I did not argue for my dog.
+I tell my board the same thing when I have already decided and want one more quarter of numbers before I say so.
+
+“Who is first?” I said.
+
+“Daisy. She's the reading dog at the library.”
 
 At 7:30 that night I called Janice, as I do after every Saturday, to tell her about the day so that she could write to Jo.
 
@@ -156,13 +164,9 @@ He nodded and went after the others.
 
 Janice had brought Jo the long way around. They were standing at the edge of the review, six feet from me. Jo was looking at me.
 
-She had read the label on that box in my mother's front room. She was the only person on the floor who knew which box I meant.
-
-“You told me in a bar that you were good at rooms,” she said. “You are.”
+“I counted thirty-four gifts in your mother's hutch,” she said, quietly. “Every one said *Love, Cal*. None of them were from you. That was.”
 
 My ears went hot. I put my hands in my pockets, which I do not do.
-
-Investors have told me I am good in a room since I was twenty-four. Every one of them wanted something from me when they said it. Jo had come to give Janice an estimate.
 
 She looked down the floor and took in the desks and the stairs.
 
@@ -170,7 +174,7 @@ She looked down the floor and took in the desks and the stairs.
 
 “We are here through 2031.”
 
-“I wasn't offering.”
+“It's a habit. I do it in restaurants.”
 
 “Calvin,” Janice said. “Ms. Silveira is giving me a number for my office.”
 

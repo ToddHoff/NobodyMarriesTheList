@@ -174,9 +174,19 @@ I am not corrected often, and never at dinner.
 
 Nobody had told me about the shoulders. At the Pied Piper I had talked with her for three hours. The voice had dropped once in all that time, for a stranger. I did not know what I had sounded like for the rest of the night. I had not been listening. I would have liked a recording of it, so that I could find out what I had done and do it again. Under the edge of the table I typed a note to myself: *Remy. Record feature.*
 
-She went back to her plate. I squared my knife to the edge of the table, because the card I would have squared was in the console, sixty yards away, with four questions on it.
+She did not go back to her plate.
 
-So I told her something that was not on it.
+“No, really, why'd you create it?”
+
+“I just told you.”
+
+“You told the man in Tulsa. I'm asking you.”
+
+I squared my knife to the edge of the table, because the card I would have squared was in the console, sixty yards away, with four questions on it.
+
+There is an answer. I have never said it out loud. I was not going to start at the sixth course.
+
+So I gave her Dawn's question instead.
 
 “Dawn asked me a question in April,” I said. “I had told her I wanted a wife. She asked whether I wanted to be a husband.”
 
@@ -186,7 +196,7 @@ So I told her something that was not on it.
 
 Jo laughed out loud. Two tables turned around. It is not a room people laugh in.
 
-“Have you?”
+“Don't think I didn't notice what you did there,” she said. “But we'll leave it for now. So have you?”
 
 “No. I was one for five years. I would like to be sure this time.”
 
@@ -194,9 +204,29 @@ Jo laughed out loud. Two tables turned around. It is not a room people laugh in.
 
 The ninth course was a carrot that had been made to look like a different carrot.
 
-“Can I ask you something?” she said, when the plate had gone. “Is there more bread?”
+“Can I ask you something?” she said, when the plate had gone. “Don't get me wrong. I love Dawn like a second sister. But why's a man who made Remy paying her to find him a wife?”
 
-“The bread was the fifth course.”
+I had an answer. It was the one I gave Dawn in April, about whose time was worth more. I could hear my voice getting ready to drop for it.
+
+I did not give it. In the kitchen somebody said *Yes, chef*, twice.
+
+“So that I do not have to ask,” I said.
+
+She waited.
+
+“If Dawn asks and they say no, they are saying it to Dawn.”
+
+She turned her glass a quarter turn.
+
+“Can I ask you something else?”
+
+“Is it harder than that one?”
+
+The lines at the corners of her eyes came out.
+
+“Is there more bread? I'm starving!”
+
+“The bread was the fifth course,” I said, faster than I have answered anything in a board meeting.
 
 “I've been up since four-thirty. I moved a dentist's office today, with chairs. I've had eight plates and one roll. I think it comes to about a cup of food.”
 

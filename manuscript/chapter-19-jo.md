@@ -498,7 +498,7 @@ It was the first red I'd seen. In daylight, in the sun, red. It sloshed up in th
 
 “She's been spilling over since four this morning,” Dr. Okamura said.
 
-Owen had both hands flat on the glass. “Is it going?”
+Owen had both hands flat on the window. “Is it going?”
 
 “It's getting ready.”
 

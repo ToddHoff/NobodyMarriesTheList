@@ -198,9 +198,9 @@ In an Eichler the front door does not let you in. You open it and you are outdoo
 
 The key turned. I got as far as the atrium.
 
-There was a Japanese maple in a pot, its soil wet. Somebody else had a key. Through the glass I could see the paneling, the globe lamp over the table, and her chair. Nothing had been moved in seven months.
+There was a Japanese maple in a pot, its soil wet. Somebody else had a key. Through the windows I could see the paneling, the globe lamp over the table, and her chair. Nothing had been moved in seven months.
 
-The bigger of the two men came in behind us with a roll of runner on his shoulder. He looked at the glass, and then at me.
+The bigger of the two men came in behind us with a roll of runner on his shoulder. He looked at all the windows, and then at me.
 
 “What's one of these go for?”
 
@@ -210,7 +210,7 @@ The bigger of the two men came in behind us with a roll of runner on his shoulde
 
 “It is three million.”
 
-He whistled, two notes. Then he stood there with the roll on his shoulder, waiting on the glass door.
+He whistled, two notes. Then he stood there with the roll on his shoulder, waiting on the sliding door.
 
 Jo was waiting on it too. She had stopped a step short of it, without touching the handle.
 
@@ -228,7 +228,7 @@ I was standing in my mother's living room.
 
 “Runners,” Jo said, and the big man went past me with the roll.
 
-I stayed where I was, one step inside the glass. I put down my hand, which was still out from the pull. My mother's chair was where I had seen it from the atrium. I did not go any closer to it. I waited for the step to cost me something. Jo was still on the other side of the glass.
+I stayed where I was, one step inside the door. I put down my hand, which was still out from the pull. My mother's chair was where I had seen it from the atrium. I did not go any closer to it. I waited for the step to cost me something. Jo was still out in the atrium.
 
 She stopped on the threshold and smelled the house before she came in. I have since learned that she does that at every job.
 

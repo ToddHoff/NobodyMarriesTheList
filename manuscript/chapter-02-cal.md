@@ -42,7 +42,7 @@ Thirty-six was five years under me. Thirty was eleven years under me and twelve 
 
 She slid the card back with two lines on it, both crossed out. She was forty-four. She had gray coming in over her left ear that she had done nothing about and lines at the corners of her eyes from years of looking at things in full sun. On a billboard we take those out first. When she smiled, I looked at them more than at anything else in the bar. I had specified against all of it. Sitting there, I could not have told you what I had against it.
 
-My watch tapped my wrist. *Heart rate 104. No workout detected.*
+My watch tapped my wrist. *Heart rate 104. No workout detected.* It looks like a steel watch with two hands. There is one of it. Our hardware group built it for me around a Swiss movement, so that Remy could reach me in a meeting without anyone seeing a screen. The words come up under the crystal and go away.
 
 I put my hand in my lap.
 
@@ -154,7 +154,7 @@ I had nothing in fourteen years to file that under.
 
 She did not say anything kind. I was grateful. People say kind things to me and then I have to do something with them.
 
-“I can tell you what's in it,” she said. “I don't need to see it. A drawer of bread ties and rubber bands. Every card that ever came with your name on it. And one dish.”
+“I can tell you what's in it,” she said. “I don't need to see it. A drawer of bread ties and rubber bands. Every card that ever came with your name on it. A box of your old trophies somewhere in the back. Kids never take it. And one dish.”
 
 “There is a dish.”
 

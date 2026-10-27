@@ -2,7 +2,7 @@
 
 **Jo**
 
-One text from Kevin on Friday night put my son in the white truck with me the next morning, on his way to a client's house.
+One text from Kevin on Friday night put my son in the white truck with me the next morning, on the way to a client's house.
 
 *Graduation's tomorrow. I'm on the field at 6:30 and done around 2. He can sit in the bleachers or stay with you. Whatever works for you.*
 
@@ -10,19 +10,21 @@ It was my week. Since May, Kevin has taken him the night before each of my Sunny
 
 Denise would have taken him. So would my father, if I asked. I had a truck with an empty seat.
 
-I lay awake a while anyway. Ten days ago I had kissed that client on a curb in Los Gatos. Last Saturday I had sat on a bench in his mother's atrium with my knee against his and left it there through a whole sandwich. Now I was bringing my son.
+I lay awake a while anyway. Ten days ago I had kissed a client on a curb in Los Gatos. Last Saturday I had sat on a bench in his mother's atrium with my knee against his and left it there through a whole sandwich. Now I was bringing my son.
 
 Vili took the sixteen-footer and Manny. I followed them down 101.
 
 “Dad says graduation's been on the calendar since August,” Owen said.
 
-“It has.”
+“It has. Your dad's good about that.”
 
 “He says he sends you the calendar every year.”
 
-“He does. Say the rules.”
+“He does.”
 
 I have never opened it. Every August I file it with the others. I know when Owen's school starts and when it lets out, so the rest of Kevin's year is Kevin's. This year the rest of it had a graduation in it. He had sent it like always. I'd had since August to find out. I found out last night.
+
+“Job rules,” I said. “Go.”
 
 “I stay where you can see me. Everything in the house is somebody's, so I touch what you hand me.” He turned nine in February. He already recites like his father. “And I don't ask the client for anything.”
 
@@ -34,7 +36,7 @@ I have never opened it. Every August I file it with the others. I know when Owen
 
 “He made Remy.”
 
-“I know what he made. It answers my phone.”
+“Today he makes his own lunch. We'll see.”
 
 “You don't even talk to it.”
 
@@ -60,7 +62,7 @@ My son talks to that thing every day. He tells it what he wants and argues with 
 
 “Vili says he has a dog that leaned on you.”
 
-“Vili talks. The dog stays on his side of the glass. You stay on yours.”
+“Vili talks. The dog stays on his side of the door. You stay on yours.”
 
 The app is dogs. It has every dog he has ever met, in order. For a kid whose mother isn't good with dogs, he has a list you have to scroll.
 
@@ -118,7 +120,7 @@ He opened his mouth and shut it.
 
 “All right,” he said.
 
-I'd done that number lying awake. That man brings three lunches when you tell him two. My son was going to be in his house for four hours. If Owen came home with anything, a glass of water or a turn with the dog, I wanted it paid for before it was given. I still hadn't found that man's piano. I didn't want my son to be the one standing in front of it.
+I'd done that number lying awake. That man brings three lunches when you tell him two. If Owen came home with anything, a glass of water or a turn with the dog, I wanted it paid for before it was given.
 
 He put out his hand to my son. Kevin taught Owen to shake, one pump, looking at the man.
 
@@ -134,9 +136,9 @@ Cal's shoulders started down. I had watched them do that for a woman at a bar. W
 
 “Four minutes and ten seconds.”
 
-“It runs four minutes and ten seconds,” Cal said.
+“You are right,” Cal said. “Nobody corrects me anymore.”
 
-He said it in the voice he uses on me, the one with the numbers in it.
+He said it in the voice he uses on me.
 
 I'd have bet the truck he would present to my son. Owen would have loved it. My face got warm, out there on the curb. Then I was scared. My son had known that man off a screen. Now he was going to know the real one. I had brought him here myself.
 
@@ -148,7 +150,7 @@ I'd said that five weeks ago, over a plate of shrimp. I'd been sure it went righ
 
 The front door of that house opens on the atrium. Owen touched the frame twice going through. He does that at every house. Cal watched him do it and didn't ask. In nine years, neither have I.
 
-From the atrium you can see through the front room and out the back glass. The dog was lying against the back door with his nose on the track.
+From the atrium you can see through the front room and out the back windows. The dog was lying against the back door with his nose on the track.
 
 Owen looked at me before he took the phone out.
 
@@ -196,7 +198,7 @@ My father tells that one every Christmas.
 
 “That's asleep. It doesn't count.”
 
-“And does that one count?” he said, and nodded at the glass.
+“And does that one count?” he said, and nodded at the dog.
 
 Owen looked at the dog for about four seconds.
 
@@ -206,13 +208,13 @@ Owen looked at the dog for about four seconds.
 
 “That's why I have to.” He turned around to me. “Can I ask him if I can go out there?”
 
-“No. He's a client. And the dog stays on his side of the glass.”
+“No. He's a client. And the dog stays on his side of the door.”
 
 Owen put the phone in his pocket without arguing. He goes quiet when he's told no, the part of him that comes from his father. I've watched for it in him since he could walk.
 
 Cal looked at me, then at his dog. He kept quiet too.
 
-Any other client would have said it was fine. They always do: he's no trouble, let him come out. So I end up saying no twice, to my own kid, in their house. Cal had his own dog on the other side of his own glass. He let my no stand. He wanted to say yes. It was all over his face.
+Any other client would have said it was fine. They always do: he's no trouble, let him come out. So I end up saying no twice, to my own kid, in their house. Cal had his own dog on the other side of his own back door. He let my no stand. He wanted to say yes. It was all over his face.
 
 I hate that quiet on Owen. I have never found one thing to say to it that works.
 
@@ -222,7 +224,7 @@ I do bathrooms by myself, with the door open. A medicine cabinet is nobody's bus
 
 It's the quietest job in a house. Nobody comes in, because nobody wants to watch you empty a dead woman's medicine cabinet. I like it for that. It was already warm in there. In the sun from the high window over the tub, the dust on the sill was thick enough to write in.
 
-She'd had one toothbrush. The towel on the bar was worn thin enough to see my hand through. In the cupboard there were six good ones, folded in thirds with the fold facing out. Everybody has good towels. Of the thousand I've boxed, not one had ever been wet.
+She'd had one toothbrush. The towel on the bar was worn thin enough to see my hand through. In the cupboard there were six good ones, folded in thirds with the fold facing out. Everybody has good towels. Hers still had the tags on.
 
 I taped the box and wrote BATH on it and stood there a minute with the marker. I was thinking about a bench. About a knee I hadn't moved. I made myself think about towels.
 
@@ -292,11 +294,11 @@ Kevin was at every one of Owen's games. I have said that to anybody who asked, t
 
 “Who's Abby?” Owen said.
 
-“She is my daughter.”
+“My daughter.”
 
 “How old is she?”
 
-“She is eighteen.”
+“Eighteen.”
 
 Owen found the line that said 9. He backed up against the door under it and stood up straight.
 

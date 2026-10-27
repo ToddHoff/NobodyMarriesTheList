@@ -64,7 +64,7 @@ He put out his hand. Mine has a tape-gun callus across the palm and had, that da
 
 “I had a widow and a recliner.”
 
-He looked at my boots, then at his watch, doing the subtraction where I could see it.
+He looked at my boots, then at his watch, doing the subtraction where I could see it. It was a plain steel watch with hands, the kind my father wears.
 
 “You have twenty-five minutes,” he said.
 
@@ -190,7 +190,7 @@ The card said not to mention the list. I drew a line through that DON'T.
 
 “She told me I'm not on it. That's why I came.”
 
-“That is a reason not to come.”
+“Why is that a reason to come?”
 
 “It's the only reason I'm here. I don't date.”
 

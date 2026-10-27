@@ -34,8 +34,6 @@ For a month something had gone to her at 9:14 with my name on it. Tonight nothin
 
 I wrote to her myself, at my kitchen counter, with Pancake asleep on my feet. In forty minutes I wrote eleven versions. Four of them sounded like Janice. Six of them could have gone to my board, including one that began *I want to address Tuesday.* The eleventh said that it was on me and that I would fix it, which is what I said about the cruise and what I said on Tuesday. I still did not have a how. I deleted all eleven.
 
-I stopped trying to say anything about Tuesday and went back to what was mine. In the truck on Tuesday the sandwich had been first on my list. It had been the wrong sandwich. I still owed her half a linguiça.
-
 The twelfth was four words, every one of them true.
 
 *I still owe linguica.*
@@ -102,7 +100,7 @@ Vili looked from the sheet to me to the cab.
 
 “What'd you do to her Tuesday?” he said.
 
-“Her son asked me a question. I answered it.”
+“Owen wanted to know if Remy writes my texts. I told her who does.”
 
 He whistled, two notes, and went for the runners.
 
@@ -112,7 +110,7 @@ Jo came around the front of the truck and took the clipboard off the hook. She h
 
 “Good morning,” I said.
 
-“Morning.”
+“We'll see.”
 
 She looked at the three bags in my hand. On the last Saturday she had opened mine at the curb and told me what was wrong with it. She did not open it.
 
@@ -126,11 +124,11 @@ On a job she puts people where she wants them with one word, “Runners” or �
 
 Her hair was tied back tighter than usual. I looked at the back of her neck more than I looked at my mother's dresser.
 
-A week before, in the hall, she had told me to bend down and pulled me the rest of the way by my shirt. My hand had been in that hair until the tie came half out. That was three days before she found out who wrote to her. I did not know whether I would be let that close again. When she turned around I looked at the dresser. My face was hot.
+A week before, in the hall, my hand had been in that hair until the tie came half out.
 
-The job that day was my mother's bedroom. It has a bed, a dresser with a mirror, a chair she put her clothes on, and a closet with two sliding doors. I put blue on the bed and the chair in the first ten minutes. By nine she had said twenty-two words to me, every one of them green, blue or a direction.
+The job that day was my mother's bedroom. By nine she had spoken to me only in colors and directions.
 
-At 9:40 she opened the top drawer of the dresser. It held nightgowns, folded in thirds. She took them out and laid them on the bed before she lifted the paper that lined the bottom of the drawer. I would not have known to do that. She lifts every liner.
+At 9:40 she opened the top drawer of the dresser. It held nightgowns, folded in thirds. She laid them on the bed and lifted the paper that lined the drawer.
 
 There was a sheet of paper under it, folded in quarters.
 
@@ -140,9 +138,9 @@ Vili came in from the doorway and looked at it. She turned to a clean sheet on t
 
 It was a form from the Fremont Union High School District. The word at the top was WITHDRAWAL. Under it was my mother's name, and Grade 10, and a date in April 1970. On the line for the reason, someone had written *Employment*. On the line for a parent's signature was my grandfather's name.
 
-My mother graduated from high school in 1972. She told me so when I was nine, the one time I asked.
+My mother graduated from high school in 1972. She told me so when I was nine.
 
-I read the form twice. Nobody in the room said anything. Pancake was at the back glass with his nose on the track. In the hall, Manny's tape gun stopped.
+I read the form twice. Nobody in the room said anything. Pancake was at the back door with his nose on the track. In the hall, Manny's tape gun stopped.
 
 She was born in March 1954. In April 1970 she had been sixteen for about a month. A girl in Grade 10 that April would have graduated in 1972. She had given me the right year.
 
@@ -178,7 +176,7 @@ Jo did not say anything for a while. She did not tell me what it meant.
 
 I was glad she did not. The reason I had always had for it was gone. I did not have another one yet. I wanted to be the one who found it.
 
-“I did two years at Skyline,” she said. “Business. Then the trucks needed somebody.”
+“I did two years at Skyline,” she said. “Business. Then my father's knees went.”
 
 “Did you want to finish?” I said.
 
@@ -192,13 +190,13 @@ She held out her hand. I gave her the card. She took the pencil from behind her 
 
 “That's six,” she said.
 
-“Yes.”
+“I still owe the linguiça.”
 
 She did not give the card back right away. She was looking at the form in my other hand.
 
 “Where did she go?” she said. “At sixteen.”
 
-“She went to Libby's. She was on the line at the cannery until it closed in 1985, the year I was born. Then she went across the street, to the middle school cafeteria.”
+“I do not know. She was on the line at Libby's until the cannery closed in 1985, the year I was born. Then she went across the street, to the middle school cafeteria.”
 
 “Thirty years,” Jo said.
 
@@ -268,15 +266,15 @@ I signed under *Paper, folded, top drawer, under liner.* It was the second found
 
 At the truck she stopped with her hand on the door, long enough that I thought she would say something. She got in.
 
-I had stopped at the end of the front walk, because on Tuesday she had told me not to walk her to her truck. I could have said her name. She would have turned around and answered me. Then I would never have known what she had stopped to say.
+I had stopped at the end of the front walk, because on Tuesday she had told me not to walk her to her truck. I could have said her name. I did not.
 
 ***
 
-At 7:30 that night I did not call Janice. It was the first Saturday since May 16 that I had not. I put the form on my kitchen counter, read it again, and sat with Pancake until it was dark.
+At 7:30 that night I did not call Janice. It was the first Saturday since May 16 that I had not. I put my mother's withdrawal form on my kitchen counter, read it again, and sat with Pancake until it was dark.
 
 There was nothing to call her for. Janice did not write to Jo now. I did not want the form in anybody's notes, Janice's included.
 
-Her answer came at 9:14, which is when Janice's used to go.
+At 9:14, when Janice's messages used to go, she answered the one I had sent on Wednesday.
 
 *It's linguiça.*
 

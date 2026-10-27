@@ -180,7 +180,7 @@ I didn't have a night. Owen came back in the morning for seven days, so it would
 
 The job that day was the hutch.
 
-It stood at the end of the bedroom hall, six feet of dark oak with glass doors on top. He had boxed the dishes out of it the Saturday before, in boxes with an H on every bottom. The dog was at the back glass, watching. I had left the mixing bowl out there for him.
+It stood at the end of the bedroom hall, six feet of dark oak with glass doors on top. He had boxed the dishes out of it the Saturday before, in boxes with an H on every bottom. The dog was at the back door, watching. I had left the mixing bowl out there for him.
 
 “Green or blue?” I said.
 

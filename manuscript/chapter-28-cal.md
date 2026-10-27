@@ -370,7 +370,7 @@ When I walked my end to him, he took it out of my hands.
 
 He folded it once more against his chest and dropped it on the stack. It landed square.
 
-We did forty-eight. It was every pad on the truck. He called every fold and said nothing else. By the tenth I knew the order and was turning my back before he said it. By the twentieth he had stopped saying “Corners.” Twice I looked up and saw Jo in the office window with the phone at her ear. The second time she was looking at us. When she saw me see her, she turned away from the glass.
+We did forty-eight. It was every pad on the truck. He called every fold and said nothing else. By the tenth I knew the order and was turning my back before he said it. By the twentieth he had stopped saying “Corners.” Twice I looked up and saw Jo in the office window with the phone at her ear. The second time she was looking at us. When she saw me see her, she turned away from the window.
 
 When the last one was on the stack Frank looked at it. There were forty-eight pads, every edge lined up with the one under it.
 

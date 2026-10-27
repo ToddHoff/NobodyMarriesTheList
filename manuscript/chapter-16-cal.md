@@ -18,11 +18,13 @@ She had said yes on Thursday before Vili could answer for her. I heard it again 
 
 The car at her curb was a black sedan with the engine running. The driver was out of it, holding the rear door open for nobody. He was about sixty. Jo was on her front walk with her arms folded and a canvas bag on her shoulder.
 
-Her hair was down. I had seen it down once, in Los Gatos, for four hours. She had on jeans and a white shirt with a collar. My watch tapped against my wrist before I had my door shut.
+Her hair was down. I had seen it down once, in Los Gatos, for four hours. She had on jeans and a white shirt with a collar.
 
-“Is that yours?” she said.
+“You look beautiful,” I said, before I had my door shut.
 
-“No.”
+“I ironed.” She looked past me at the black car. “Is that yours?”
+
+I did not have an answer that was both true and one she would like.
 
 The driver checked me before he checked his phone. He had driven for my account long enough to know that a woman on a sidewalk with her arms folded was his problem and not mine.
 
@@ -38,9 +40,9 @@ Jo was looking at my face. She looked at it for about as long as she looks at a 
 
 “You didn't send it,” she said. “You'd have asked me first.”
 
-“Yes.”
+“That is our deal.”
 
-On June 16 she had made me list which parts of a month were me. This took her about two seconds. My shoulders came down an inch.
+*What else was you?* she had asked me on June 16. I had to tell her, one line at a time. This time she knew by looking. My shoulders came down an inch.
 
 I had been ready to explain it. I had a sentence half built on the walk up from my car. Every version had the plan in it. She was right about the car. She did not know what was scheduled behind it. I did not tell her.
 
@@ -58,9 +60,9 @@ She came back up the walk and stopped in front of me.
 
 “We're taking my truck,” she said.
 
-I had planned to drive. I looked at her and saw that she was not getting into any car today that she was not driving. I did not say anything about my car.
+I had planned to drive us in my own car. I looked at her and saw that she was not getting into any car today that she was not driving. I did not say anything about my car.
 
-“Yes,” I said.
+“Nobody has driven me on a date before,” I said.
 
 I reached for her bag. She had already moved it to her other shoulder.
 
@@ -70,25 +72,35 @@ It was 1:31.
 
 ***
 
-The sixteen-footer was backed into her driveway with her father's name on the door. I got in on the passenger side. This time I had the window. On Thursday I had had the middle, with my knees up and her thigh against mine from the yard to Millbrae.
+Her pickup was in the driveway. I got in on the passenger side. On Thursday I had ridden in the middle of her sixteen-footer, with my knees up and her thigh against mine from the yard to Millbrae.
 
 She started it and looked at me.
 
 “You've got a card in your pocket,” she said. “I can see it from here. Where am I driving?”
 
-“You are driving to Summit Road,” I said. “It is at the top of 17. There is a winery on it.”
+“Summit Road,” I said. “At the top of 17.”
+
+“That's redwoods, fires and earthquakes.”
+
+“And sixty wineries.”
 
 “You're taking me wine tasting.”
 
-“Yes.”
+“That is why I was going to drive.”
 
 “Denise bet me twenty dollars it was Napa.”
 
-“I did not want Napa,” I said.
+“I did not want Napa,” I said. “In 2006 they poured the wines from the 1976 Paris tasting again. The one that came first was from these mountains. The next four were from Napa.”
+
+“You looked that up.”
+
+“On Friday night.”
 
 Every woman I had taken away for a weekend in fourteen years, I had taken to Napa. I had never picked it. It was on my calendar. I went.
 
-She had taken the other side of her sister's bet, twenty dollars that I would pick somewhere else, before a car came to her curb that said the usual. I wanted to know what she had based it on. I did not ask.
+“Which side did you take?”
+
+“The other one.” She put it in gear. “Denise owes me twenty dollars.”
 
 When we were moving I took out my phone.
 
@@ -106,9 +118,11 @@ She looked over at me and back at the road.
 
 “Do you?”
 
-“No.”
-
 I knew what was in it the way I know what a test will say before I run it. It was the eleven before her, item by item, with 4.1 months at the top. I did not want to read what came next for her in a column.
+
+“I would rather look at you.”
+
+She laughed once, at the windshield. “That's not an answer.”
 
 “Ask me before you do anything for Jo Silveira,” I said to the phone.
 
@@ -116,19 +130,21 @@ I knew what was in it the way I know what a test will say before I run it. It wa
 
 Jo moved her hands to the top of the wheel and looked straight ahead. The side of her face I could see went pink. She did not say anything for a mile.
 
-I had not said it for her to hear. A word I had not tested had put a stranger at her curb holding a door. I wanted a word that would stop the next one. Then I heard where I had said it. She had told me next time, ask. I had just told my own product to do it for me. I did not know whether that counted.
+“I said next time, ask,” she said. “Not have your phone do it.”
 
-The pink went down the side of her neck into her collar. I watched it until she looked over. Then I looked at the road.
+“It will ask me. I will ask you.”
 
-She took 101. She drove with her sleeves pushed up. Her forearms were brown to the elbow from the trucks. I looked at them for most of the way to Mountain View.
+The pink went down the side of her neck into her collar. I watched it until she looked over. I looked at the road.
 
-When the big hangar at Moffett came up on the left, she pointed at it with two fingers off the wheel. It is 1,133 feet long and nearly two hundred feet high. It was built in 1933 to hold one airship. Fog can form near its ceiling. The new siding was the silver of a laptop before the film comes off. I had to turn my head to get from one end of it to the other.
+She took 101 with her sleeves pushed up, her forearms brown to the elbow from the trucks. I looked at them most of the way to Mountain View.
+
+When the big hangar at Moffett came up on the left, she pointed at it with two fingers off the wheel. The new siding was the silver of a laptop before the film comes off. I had to turn my head to get from one end of it to the other.
 
 “I used to watch the zeppelin from right here,” she said. “In this lane. It came right over the freeway.”
 
 “When was that?”
 
-“Oh-nine. I was twenty-seven.” She looked up through the windshield. There was nothing there now. “Five hundred dollars an hour. I looked it up every week for a year.”
+“Before Owen.” She looked up through the windshield. There was nothing there now. “Five hundred dollars an hour. That was a tire on the big truck.”
 
 “An investor took me up in it,” I said. “It was in 2011. He rented it for the afternoon.”
 
@@ -152,7 +168,7 @@ On Thursday Vili had called the dresser on the Delgados' landing. I lifted when 
 
 ***
 
-At the top of 17 she took the exit for Summit Road and turned east along the ridge. The road ran under redwoods, with driveways going off into the trees. When Jo put her window down, the air that came in was ten degrees cooler than the valley and smelled of dust and bay leaves. The sun came down between the trunks in long bars. Her forearms on the wheel went from sun to shade and back.
+At the top of 17 she took the exit for Summit Road and turned east along the ridge. The road ran under redwoods, with driveways going off into the trees. When Jo put her window down, the air that came in was ten degrees cooler than the valley and smelled of forest and fog. The sun came down between the trunks in long bars. Her forearms on the wheel went from sun to shade and back.
 
 There was an orchard on a slope beside the road, apple trees in rows with an old barn at the top. The apples on them were small and green. A table by the road had a box on it for money. Nobody was minding it.
 
@@ -162,9 +178,9 @@ There was an orchard on a slope beside the road, apple trees in rows with an old
 
 “Not up here.”
 
-“I would not have funded it,” I said.
+“How do they know what they are owed?”
 
-“They didn't ask you,” she said.
+“They don't.”
 
 A little farther on there was a small church set back in the redwoods, with an empty lot. Jo crossed herself with her right hand. Her left stayed on the wheel. She did it without looking over.
 
@@ -180,11 +196,11 @@ She would have put me at a stranger's wedding before she told me no.
 
 A rental truck was trying to back through the gate with a load of tables. Jo stopped to watch him.
 
-“He's going to take that sign,” she said.
+“He's going to take out that sign,” she said.
 
-He took the sign.
+He took out the sign.
 
-I had my phone out before I knew I had taken it out. I put it back. Since 2009 Janice had made every reservation I had. Remy had made the rest. It was 2:41 on a Saturday afternoon. I was standing on Summit Road with a card in my pocket that said *wine*.
+My phone was in my hand before I knew it. I put it back. Since 2009 Janice had made every reservation I had. Remy had made the rest. It was 2:41 on a Saturday afternoon. I was standing on Summit Road with a card in my pocket that said *wine*.
 
 Jo held out her hand. I gave her Friday's card. She read it.
 
@@ -214,7 +230,9 @@ The store was a grocery and a general store under one roof. Jo said the first on
 
 I had not been inside a grocery store since Abby was small. Rita buys my food. Jo went down the aisle ahead of me without a basket and read every shelf she passed. I walked behind her. Her hair had come forward over one shoulder in the truck. I could see the back of her neck where the collar stood away from it. I wanted to put my mouth there. Two men at the register looked at her when she went past. Then they looked at me. I would have looked too.
 
-The tri tip sandwiches were already made, in the case by the register. There was nothing to order. She took two, with two root beers out of the cooler.
+The tri tip sandwiches were already made, in the case by the register, next to the muffins and pastries for people driving down the hill to work. There was nothing to order. She took two sandwiches and one chocolate chip cookie the size of her hand.
+
+“I don't leave this store without a cookie,” she said.
 
 At the register I put my hand to my back pocket, where I have not carried a wallet in six years. Then I took out my phone.
 
@@ -266,21 +284,13 @@ I knew what she would want now. I asked anyway.
 
 “Do you want me to keep him with me?”
 
-“Keep him with you.”
+“Please.”
 
 I got down on my side and went around the front of the truck. The dog met me at the bumper and put his head under my hand. I found the place behind his ears that Pancake likes. He leaned his whole weight on my leg and stayed there.
 
-Jo got down and came around the back of the truck, the long way. She walked to the rail of the deck and stopped. I walked over and stopped beside her. The dog came with me, on my other side.
+Jo got down and came around the back of the truck, the long way, with me between her and the dog.
 
-The hill went down from the deck in rows of vines. The grapes on them were green and no bigger than peas. Below the vines the mountains fell away in ridges, one behind another, dark with redwoods. Past the last ridge there was a strip of flat ground with towns on it. Past the towns was Monterey Bay, the whole of it.
-
-Santa Cruz was on the right, close enough that I could pick out white buildings along the water. The shore ran left from there in a long curve, around the far end of the bay and back out to Monterey. Monterey was thirty-five miles off, a dark point of land with hills on it. Between Monterey and Santa Cruz the bay opened up. Outside it there was only ocean, all the way to the horizon.
-
-The wind came up the hill off the water and blew her hair across her face. She held it back with one hand flat on top of her head. In seven Saturdays I had seen her stand still only to look at a staircase. She stood at that rail a long time.
-
-I put my hand in my pocket for my phone, to take a picture of the bay. I took my hand out again without it. I looked at the bay. Then I looked at her. Her hair was down and the wind had it. I did not go back to the bay.
-
-The dog went into the winery ahead of us and lay down in the middle of the floor. Nobody there was going to move him. The winery was one long room, cool after the deck, with barrels stacked to the ceiling at the back. It smelled of wine and wet oak. Jo went to the far end of the bar. I took the end nearest the dog.
+The dog went into the winery ahead of us and lay down in what looked to be his favorite spot. Nobody there was going to move him. The tasting room was one long bar, cool after the sun. Jo went to the far end of it. I took the end nearest the dog.
 
 The man behind the bar owned the place. He did not know who I was. He poured the Chardonnay and pointed the bottle out the door at the vines below the deck.
 
@@ -298,7 +308,17 @@ It was getting warmer on the ridge. He was putting in more Bordeaux grapes becau
 
 He had been on that hill since before I was born. He wanted somebody at his bar to know how the wine was made. He talked until a car came up the hill with four more people in it.
 
-Jo carried the glasses out to the deck herself. We ate the tri tips at a table with the bay in front of us. The sandwiches had gone warm in the truck. So had the root beers. She ate with one hand and kept her hair out of her mouth with the other.
+Jo carried the glasses out to the deck. She set them on a table and went to the rail. I stopped beside her.
+
+The vines ran down the hill below the deck. Past them, a long way down, was the ocean. I had flown over Monterey Bay a hundred times. I had never stood still and looked at it.
+
+The wind came up the hill off the water and blew her hair across her face. She held it back with one hand flat on top of her head. In seven Saturdays I had seen her stand still only to look at a staircase. She stood at that rail a long time.
+
+I put my hand in my pocket for my phone, to take a picture of the bay. I took my hand out again without it. I looked at the bay. Then I looked at her. Her hair was down and the wind had it. I did not go back to the bay.
+
+We ate the tri tips at the table with the bay in front of us. The sandwiches had gone warm in the truck. She ate with one hand and kept her hair out of her mouth with the other.
+
+After the sandwiches she broke the cookie in half on the bag. One half came out bigger. She gave me that one.
 
 The dog found me again and lay down across my feet, on the side of the table away from her. Jo looked at him for a while.
 
@@ -306,29 +326,35 @@ The dog found me again and lay down across my feet, on the side of the table awa
 
 “I will tell him it was for you.”
 
-There was a printed list with a line under each wine about how it tasted. The Chardonnay and the Pinot had both won medals. The list said so. Jo tasted each one and poured the rest in the bucket, because she was driving. I started with the Chardonnay.
+Jo tasted each one and poured the rest in the bucket, because she was driving. I started with the Chardonnay.
 
 “What do you get?” she said.
 
-I read it off the list. “Lemon peel and vanilla.”
+I gave her what the man at the bar had said. “Pear and lemon. Biscuit at the end.”
 
-“That's what the list gets.”
+“That's what he gets.”
 
-I tasted it again. I looked for the lemon peel first and then the vanilla, in the order they were printed.
+I tasted it again. I looked for the pear first, then the lemon, then the biscuit, in the order he had said them.
 
-“Lemon,” I said. “I do not get vanilla.”
+“Lemon,” I said. “I do not get biscuit.”
 
 She laughed so hard she had to set the glass down.
 
 In Napa there had always been someone at my elbow to tell me what was in the glass. I had agreed with all of them.
 
-The Pinot came next. I put my thumb over its line on the list and tasted it first. It tasted like cherries to me. Under the cherries it tasted like the ground on Summit Road. Jo saw my thumb. She looked out at the water and smiled. There was a drop of the Pinot on her lower lip. She took it off with her thumb. I read the whole list twice. I could not have told anyone what was on it.
+The Pinot came next. I tasted it before I could remember what he had said about it. It tasted like cherries to me. Under the cherries it tasted like the ground on Summit Road. Jo watched me do it. She looked out at the water and smiled. There was a drop of the Pinot on her lower lip. She took it off with her thumb. After that I could not have told anyone what was in the glass.
+
+“We should have saved the tri tip for this one,” I said.
+
+“Next time.”
+
+It was the first thing she had said all day about a day that had not happened yet. I did not answer. I did not want her to hear herself and take it back.
 
 When we took the glasses back in, she stopped me at the door.
 
 “Tasting comes off if you buy wine,” she said. “So we're buying wine.”
 
-She bought a Chardonnay and the Pinot whose line I had not read. The man took the tasting off the bill. I did the arithmetic. She had spent more than the tasting would have cost. She had two bottles of wine to show for it. She carried them out to the truck herself.
+She bought a Chardonnay and the Pinot I had tasted for myself. The man took the tasting off the bill. I did the arithmetic. She had spent more than the tasting would have cost. She had two bottles of wine to show for it. She carried them out to the truck.
 
 Then she came back to the rail. The dog came back to me. We stood there with the bay below us.
 
@@ -364,11 +390,11 @@ I could feel a pulse where our hands met. I could not tell whose it was. I did n
 
 I wanted to stop and kiss her. I did not ask. I did not want to give her a reason to let go of my hand.
 
-North of the lake the trail ran between the creek and a string of ponds. Jo said the water district fills them so the water soaks back into the ground. The sun was low over the mountains to the west. The ponds had the sky in them, gold going orange. There were ducks out on the water. People went by the other way with their dogs. Jo watched every one of them.
+North of the lake the trail ran between the creek on our right and the fly-casting ponds on our left. A man in a fishing vest stood at the edge of one, practicing. His line went back over his head and out again and laid itself down on the water. The sun was low over the mountains to the west. People went by the other way with their dogs. Jo watched every one of them.
 
 Farther up the trail there was a fenced field with dogs in it, big ones on one side and small ones on the other. Jo stopped at the fence.
 
-The field was an acre of fake grass, greener than anything else in the valley in June, with a fountain set on a short post for the dogs. The big side had eleven dogs in it. I counted. Their owners stood in a loose ring in the middle with the leashes hung around their necks, talking to each other and not watching. The light came in flat across the grass. Every dog in the field was running at something. Their shadows went out long behind them.
+The field was an acre of fake grass, greener than anything else in the valley in June, with a fountain set on a short post for the dogs. The big side had eleven dogs in it. I counted. Their owners stood along the side under the trees with the leashes hung around their necks, talking to each other and not watching. Another few were on their phones, some of them sitting on a bench. The light came in flat across the grass. Every dog in the field was running at something. Their shadows went out long behind them.
 
 She keeps a truck door between herself and every dog she meets. On the mountain she had kept me between herself and the dog all afternoon. This fence ran the length of a field. She put her free hand on the wire. A gray dog came down the fence line at a dead run with a ball in its mouth. She laughed out loud.
 
