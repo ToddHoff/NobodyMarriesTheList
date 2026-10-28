@@ -4,7 +4,7 @@
 
 On Tuesday afternoon I walked an empty house in Redwood City by myself. I made it about a minute at a time without thinking about Cal Brennan.
 
-I do the last walk-through alone. The crew had taken the second truck back to the yard. The owners were in Sacramento with everything they owned. I open every door in a house before I give back the keys. Every closet, every cupboard, the oven, the dryer, the space under the stairs. Last year I found nine hundred dollars in a dryer in Millbrae. The woman cried on the phone for ten minutes.
+I do the last walk-through alone. The crew had taken the second truck back to the yard. The owners were in Sacramento with everything they owned. I open every door in a house before I give back the keys. Every closet, every cupboard, the oven, the dryer, the space under the stairs. Last year I found a wedding band behind the drum of a dryer in Millbrae. She'd told her husband for twenty-two years that it was being sized. The woman cried on the phone for ten minutes.
 
 I opened the oven and thought about his guest room. I opened the dryer and thought about it again.
 
@@ -24,7 +24,7 @@ The second time, I was forty-four years old and arguing with a toothbrush in my 
 
 *Yes,* he'd written back.
 
-That was the whole conversation. I'd decided on the drive down from Summit Road that the first time would be on my ground, in my house, where nobody tries to carry my bag. I hadn't told him why. He hadn't asked.
+That was the whole conversation. I'd decided on the drive down from Summit Road that the first time we slept together would be on my ground, in my house, where nobody tries to carry my bag. His house got the guest room. I hadn't told him why. He hadn't asked.
 
 I'd have asked. If a man wrote me *guest room*, I'd want to know what was wrong with mine. Janice would have sent me a paragraph about the sheets. He let me have it with no reason attached. I didn't know yet whether I liked that.
 
@@ -38,7 +38,7 @@ I checked every message for a semicolon. There never was one. Most nights I wrot
 
 His house is at the end of a gravel drive in Woodside, under oaks. I parked the sixteen-footer on his gravel and looked at the house the way I look at any house. Three trucks, if they had anything. There was nothing on the front step. No shoes, no hose, no dog toy. Somebody picked up after a man who didn't leave anything out.
 
-His gate had been standing open at the bottom. Past it the drive climbed between split-rail fences. In the field across the road a horse stood in the shade. Somebody rakes this gravel. Under the oaks the air through my window was cooler than Redwood City's and smelled like dry grass and bay leaves.
+His gate stood open at the bottom. Past it the drive climbed between split-rail fences. In the field across the road a horse stood in the shade. Somebody rakes this gravel. Under the oaks the air through my window was cooler than Redwood City's and smelled like dry grass and bay leaves.
 
 The house was long and low, gray wood and a lot of glass, set into the hill so you couldn't see all of it from one spot. I've moved a dozen houses in Woodside. Long and low means every box goes the length of it.
 
@@ -202,7 +202,7 @@ I had my hand on the pan before I said it. I'm good at eggs. I've made them for 
 
 He didn't argue. He took his hand off the handle and waited to see what I would do.
 
-In Millbrae I'd stood at the bottom of the Delgados' stairs and held my breath while he brought the high end of a dresser around the landing. My hands had wanted that dresser the whole way around.
+In Millbrae he'd asked me how to carry a box down a staircase. He'd done it right the rest of the day.
 
 He'd have let me have the pan. He'd have stood in his own kitchen with his hands at his sides and watched me make his eggs. On my truck that's a client.
 
@@ -260,11 +260,11 @@ I didn't look at him. I couldn't have said it to his face.
 
 He turned off his water.
 
-“Every Sunday his mother said grace,” I said, “and then she said how nice it was we had the room.” I set the pan in the rack. “When we split up I paid them back.”
+“Every Sunday they invited themselves to dinner,” I said. “His mother said grace. After the amen she said how nice it was we had the room.” I set the pan in the rack. “I never hung a picture in that house. I kept thinking I'd have to ask her first. Kevin never understood. To him it was a present. To me it was handcuffs.”
 
-“Did they ask you to?”
+“Did they ask for it back?”
 
-“With interest.”
+“They didn't have to. I paid the interest too.”
 
 I hadn't told anybody that last part but Denise.
 

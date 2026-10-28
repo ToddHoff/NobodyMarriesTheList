@@ -32,25 +32,25 @@ I had never seen her at her own door with nowhere to be. I wanted to kiss her ri
 
 Owen's shoes were inside the door, one of them on its side. The front room had a couch with a blanket folded over the arm and a television not much bigger than the screen in my car. She had vacuumed. The lines were still in the carpet. The hall closet door would not quite shut on whatever she had put in it in a hurry. I kept that to myself.
 
-On Tuesday she had sat in her truck in my driveway working up her nerve. She had told me so to my face. I put the odds at better than even that she had stood at her front window through my second lap doing the same thing. I was not going to make her answer for Tuesday in her own front room.
-
 I followed her into the kitchen and stood in front of the drawer she wanted.
 
-“My kitchen's eleven feet,” she said. “You're taking up six.”
+“That's my drawer,” she said.
 
-She put both hands on my hips and moved me a foot to the left. Then I was in front of the refrigerator. She moved me again. The third time she put me in the doorway and kept her hands on my hips. My watch tapped again. She heard it. One corner of her mouth went up.
+She put both hands on my hips and walked me backward across the kitchen until a chair at the table caught me behind the knees. I sat. One corner of her mouth went up.
 
-Nobody steers me. People who work for me ask where I would like to stand. Then they ask Janice. I could feel each of Jo's thumbs through my shirt, one on either side. My face went hot.
+Nobody steers me. People who work for me ask where I would like to sit. Then they ask Janice. I could still feel each of her thumbs through my shirt, one on either side.
 
-The doorway was the only place in the kitchen nobody needed. I leaned on the frame. There was pencil on it, beside my arm.
+“Stay there,” she said.
 
-It was marked up one side in short flat lines, dark, with a name beside each in capitals. The first said OWEN 2 and the last said OWEN 9, which came to the middle of my chest. Every line was carpenter's pencil. Abby's were on my mother's bathroom door, in my mother's ballpoint. I saw them for the first time in June.
+The chair put my shoulder against the frame of the back door. There was pencil on it.
 
-I counted Owen's. There were eight, one for every year from two to nine. None was missing. Every one of those years somebody had stood him against this frame and put a flat hand on his head. The capitals were hers. I was in my mother's house for none of Abby's twelve.
+It was marked up one side in short flat lines, dark, with a name beside each in capitals. The first said OWEN 2 and the last said OWEN 9, which came level with my eyes. Every line was carpenter's pencil. Abby's were on my mother's bathroom door, in my mother's ballpoint. I saw them for the first time in June.
+
+Not one of Owen's years was missing. Every one of them, somebody had stood him against this frame and put a flat hand on his head.
 
 I moved my shoulder off the lines.
 
-She had a foil packet out of the refrigerator with a strip of masking tape on it. The tape said *J FRI* in square capitals that were not hers. Her father had been in this kitchen last night, letting himself in. She slid six linguiças into a black pan and lifted it off the burner one-handed to shake it. Her forearm took the whole weight of it. I watched the forearm.
+She had a foil packet out of the refrigerator with a strip of masking tape on it. The tape said *J FRI* in square capitals that were not hers. Her father had been in this kitchen last night, letting himself in. She slid six linguiças into a black pan and lifted it off the burner one-handed to shake it. I watched her forearm.
 
 Everyone who has a key to my house and does not live in it is on my payroll.
 
@@ -88,7 +88,7 @@ She laughed until she had to wipe her eyes with the dish towel.
 
 “They're the same shirt,” she said.
 
-“Yes.”
+“They are not the same day.”
 
 She ate with both hands and her elbows on the table. A plane went over. The glasses in her cupboard rang against each other. She did not look up.
 
@@ -98,7 +98,7 @@ She ate with both hands and her elbows on the table. A plane went over. The glas
 
 Jo put her sandwich down.
 
-“Tonight,” she said.
+“Tonight?” she said.
 
 I had arranged it on Thursday morning, before I wrote to ask what time.
 
@@ -130,13 +130,13 @@ I had decided two things on the drive up 280. I would go slowly. I would not loo
 
 I reached for the top button of her shirt. She had the other four undone before I had the first.
 
-Then she undid mine. At the collar she turned the label to the light.
+Then she undid mine. At the collar she turned the label to the light. I had written the number on it myself, in marker.
 
 “Thirty-one,” she said.
 
 “There are nine more.”
 
-“I know how many there are.”
+“Tomorrow's thirty-two.”
 
 My hands were not steady. I noticed it the way I would notice it in a man across a table from me. I put them on her waist so they would have somewhere to be. I heard my voice go down and slow. It does that on a stage.
 
@@ -192,19 +192,25 @@ The last time I had seen was 11:14. I had meant to be awake at five, when Rita w
 
 The bed was empty beside me. I could smell coffee. My watch was still turned around on my wrist. I left it that way.
 
-My shirt was on the chair by her boots, folded in thirds and then in half, the way she folds a furniture pad. I put it on and went down the hall.
+Her crew shirt was on the chair by her boots, folded in thirds and then in half, the way she folds a furniture pad. Mine was not there. I put hers on and went down the hall.
 
-She was at the kitchen table in a gray crew shirt with SILVEIRA across the shoulders and, as far as I could see, nothing else. She had the reading glasses on, a pen in her hand and her checkbook open. I stood in her kitchen doorway and wanted her again.
+She was at the kitchen table in number thirty-one and, as far as I could see, nothing else. She had the reading glasses on, a pen in her hand and her checkbook open. I stood in her kitchen doorway and wanted her again.
 
 She looked at me over the glasses.
 
 “You slept,” she said.
 
-“Yes.”
+“Thirty-one has never had a better morning.”
+
+“I always wondered what your favorite shirt felt like.”
+
+“And?”
+
+“Like you.”
 
 “Coffee's on. Mugs over the stove.”
 
-The mug said SILVEIRA MOVING & ESTATE and had a chip out of the rim. I stood at the end of her table with it, because there was still nowhere to put me.
+The mug said SILVEIRA MOVING & ESTATE and had a chip out of the rim. I stood at the end of her table with it and waited to be asked.
 
 Her mortgage statement was on the table under her pen. I read it upside down. I read everything with a number on it. The lender's name was at the top. The loan number was under it. The principal balance was $518,395.69. The interest rate was 7.000 percent. At the bottom was the coupon. In the box for additional principal she had written *1,900.00* in pen. Down the margin, circled twice, she had written *NOV 2036*.
 
@@ -258,8 +264,8 @@ No prior instances since 2019.
 
 “I average five hours and eleven minutes.”
 
-She looked at me over her glasses for a while. Then she hooked the leg of the chair beside her with her bare foot and pulled it out from the table.
+She looked at me over her glasses for a while. Then she hooked the leg of the chair beside her with her bare foot and pulled it out from the table. It was the chair by the back door.
 
 “Sit down,” she said.
 
-I sat down.
+I sat down. My shoulder went against Owen's lines. I left it there.
