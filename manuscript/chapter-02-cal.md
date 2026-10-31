@@ -172,7 +172,7 @@ I went through who I could send. My assistant would have a firm by nine the next
 
 I looked at the card. I squared it to the edge of the table. She watched me do it.
 
-“That house needs clearing,” she said. “Seven months empty, something's leaking and nobody's there to see it. Call my office.”
+“That house needs clearing,” she said. “Seven months empty. Something's leaking. Something always is, and nobody's there to see it. Call my office.”
 
 “Is that an invitation?”
 

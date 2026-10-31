@@ -8,7 +8,7 @@ It was my mother's meat loaf. The card was in the green tin, in her blue ballpoi
 
 I made it for two.
 
-I had made it twice. The first one went in at 10:50 on Monday night, after dinner at Frank Silveira's house. I followed the card to the quarter teaspoon. At 11:52 it was gray on the outside and pink in the middle. The card did not say to heat the oven first. My mother had not needed it to. I put it in the trash. The second went in at 5:40 this morning, after the walk. Pancake lay in front of the oven for the full hour and watched it through the glass. It came out brown all the way through.
+I had made it twice. The first one went in at 10:50 on Monday night, after dinner at Frank Silveira's house. I followed the card to the quarter teaspoon. At 11:52 it was gray on the outside and pink in the middle. The card did not say to heat the oven first. My mother had not needed it to. The card had no onion on it. I gave Pancake a slice. He thought it was the best thing I had ever made. I put the rest in the refrigerator for him. The second went in at 5:40 this morning, after the walk. Pancake lay in front of the oven for the full hour and watched it through the glass. It came out brown all the way through.
 
 Abby was coming on the fourteenth. I had decided to cook every card in the tin that had a 2 on it, in the order my mother filed them. I would make the mistakes on someone who would tell me.
 
@@ -220,7 +220,7 @@ I knew how many envelopes there were, and what was in each one, and the month sh
 
 “She was stubborn,” I said.
 
-Jo looked at me for a long time. Then she looked down at the clipboard and wrote it out in her square capitals, the number of envelopes and the number of dollars, and turned the board around and held it out with her pencil.
+Jo looked at me for a long time. “I'd have made it too,” she said. She looked down at the clipboard and wrote it out in her square capitals, the number of envelopes and the number of dollars, and turned the board around and held it out with her pencil.
 
 She knew what the envelopes were. I could see it in her face. She had known since I opened November, maybe since she saw the years on the boxes. She did not tell me. I had watched her decide not to tell me something before, in June, with the recipe tin in both hands. It looked the same.
 

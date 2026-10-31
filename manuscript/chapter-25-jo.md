@@ -100,19 +100,25 @@ Some of them read like people I could have moved. I couldn't tell which.
 
 I looked at the street. There was nobody on it, no van, no camera. Denise had already looked twice.
 
-The white truck was up against the back fence where the tow had left it Monday, hood up. I'd called the shop at seven on Tuesday. Seventy-six hundred dollars and three weeks for the part. Denise would have the invoice by Friday. What it did to my house was mine.
+The white truck was up against the back fence where the tow had left it Monday, hood up. I'd called the shop at seven on Tuesday. Seventy-six hundred dollars and three weeks for the part. Denise would have the invoice by Friday.
 
 The keys to the sixteen-footer weren't on the board. My father was in the cab of it with the window down and the tide book on the dash, reading the tides like he was going sailing instead of to Burlingame with Manny.
 
-Burlingame was a four-bedroom. On the sixteen-footer that's three loads. Somebody has to drive the truck back and forth all day while the crew keeps packing. Vili had the big truck in Hillsborough. That was a driver I didn't have.
+Burlingame was a four-bedroom, three loads on the sixteen-footer. Vili had the big truck in Hillsborough. I was a driver short.
 
-I should have walked over there and told him to go home. His knees had done the gangway on Monday. He'd come in at five-thirty so I wouldn't have to ask him. By the time I got there he had the keys. I drank my coffee and let him sit there.
+I went over with my coffee. He turned a page in the tide book.
+
+“Your knees did the gangway on Monday,” I said.
+
+“Burlingame's flat.”
+
+I drank my coffee and let him sit there.
 
 My phone went before the first truck was out. Denise saw the name before I did. Her eyebrows went up into her hair.
 
 “Good morning,” Cal said. “Remy can report the reviews that were not written by customers. Most of them would be gone by tomorrow. Do you want that?”
 
-“No.”
+“No, I'll handle it.”
 
 “May I ask why?”
 
@@ -156,7 +162,7 @@ That afternoon the phone buzzed different. Kevin.
 
 I read it twice.
 
-I sat down on the dead man's fold-out couch with the phone in both hands. I didn't know her name. There was no page for her where I could sign mine. Owen had told her the truth and then told her about lava.
+I sat down on the dead man's fold-out couch with the phone in both hands. I went through the new reviews looking for a mom from camp. She hadn't written one.
 
 *Let him have his phone,* I wrote. *Thanks, Kev.*
 
@@ -174,7 +180,7 @@ The trouble was the ones in between.
 
 I've moved a lot of mothers out of San Mateo. I could have moved this one. Except we stop at eleven. Every job, every day. You don't put a man who hasn't eaten since five under a dresser at two.
 
-So that one was nobody. The one under it said Burlingame and a piano and a woman named Carol. I'd moved a Carol in Burlingame with a piano, I was almost sure, in 2021. Or 2019. The one under that was a man who said I'd saved his marriage. I didn't remember his marriage.
+So that one was nobody. The one under it said Burlingame and a piano and a woman named Lorraine. I'd moved a Lorraine in Burlingame with a piano, I was almost sure, in 2021. Or 2019. The one under that was a man who said I'd saved his marriage. I didn't remember his marriage.
 
 Further down a woman had written, *Jo moved me out of the house I raised three kids in and into a one-bedroom, and before she left she made up my bed.* That one I could place, March of 2022. She'd stood in the bedroom door holding her pillow. She didn't know which wall the bed went on. She said in thirty-one years she'd never picked one. I asked her which wall she wanted. She took the one under the window. I wrote to her by name.
 
@@ -210,7 +216,7 @@ I read him the San Mateo mother. He listened to the whole thing.
 
 “I know. I could hear you get it.”
 
-I looked at the screen. Millbrae again at seven. My father in the sixteen-footer in the morning because I hadn't told him not to. I couldn't tell the Carol in Burlingame from nobody. I'd been at it six hours. Whichever she was, she was getting my name.
+I looked at the screen. Millbrae again at seven. My father in the sixteen-footer in the morning because I hadn't told him not to. I couldn't tell the Lorraine in Burlingame from nobody. I'd been at it six hours. Whichever she was, she was getting my name.
 
 “Can you?” I said.
 
@@ -220,7 +226,7 @@ He was going to make me say the whole thing.
 
 “Tell. All of them. Which ones are people.”
 
-“Yes.”
+“Yes. Thank you for asking.”
 
 “Not your robot.”
 
@@ -247,6 +253,8 @@ I watched him from the front window. He parked behind my pickup, went around to 
 “He is not a thing.”
 
 I let them in. The dog went past me into my kitchen like he'd been there before.
+
+I filled Owen's cereal bowl at the sink and put it down by the back door. He drank it dry. I filled it again.
 
 Cal sat down at my table and looked at the laptop. Then he pushed it square to the edge of the table before he touched a key.
 
@@ -390,7 +398,7 @@ I got out and let the tailgate down and put the pages on it.
 
 He looked at the first page. Then he looked at the bottom of it, at the gray type. I watched him read the line with his own name in it.
 
-“No,” he said.
+“No,” he said. “I approved it from the back of the car.”
 
 He'd been caught. He stood there with it. I liked him for that, mad as I was.
 
@@ -400,17 +408,17 @@ He turned to page nine. He read it standing up, with one hand flat on my tailgat
 
 “That is not your name,” he said.
 
-“No.”
+“No. Ms. Holcomb got ten days to pack up your things.”
 
 “I will have it withdrawn this afternoon. You will not see another page of it.”
 
-“No.”
+“No. I'm not done with it.”
 
 He looked up.
 
-“Three,” I said. “It says three.”
+“Three,” I said. “Three women signed this before me.”
 
-“Yes.”
+“Yes. Ask me anything about them.”
 
 He kept his eyes on me.
 
@@ -420,11 +428,11 @@ Every estimate I've ever written has two lines at the bottom, one for the custom
 
 All the way down I'd thought I would tear it in half on this tailgate. Standing there, I wanted it fixed. A mom at camp had asked my son about me. A stranger had put his name over mine. His robot had my house and my yard and the night we met. It had put some other woman's name on page nine of me. If there was going to be paper, I wanted his name on it too, where it would cost him the same as me.
 
-“You sent me one of these,” I said.
+“You sent me fourteen pages telling me to keep my mouth shut,” I said.
 
-“I do not want you to sign anything.”
+“I sent it. I should not have.”
 
-“I want one.”
+“I'm not signing. You are.”
 
 He waited.
 

@@ -156,7 +156,7 @@ I was nervous by then. The one question I had brought of my own was used. When I
 
 “We do not sell software,” I said. “We sell an hour. Remy gives you back an hour of your day. That hour was never ours to keep. It belongs to the people you would spend it on. There is a man in Tulsa who has not missed one of his daughter's games in two years.”
 
-There is more. It runs four minutes and has closed three funding rounds.
+There is more. It runs four minutes and has closed three funding rounds. In the second minute I explain the name. It is short and easy to spell.
 
 She let me get to the end.
 

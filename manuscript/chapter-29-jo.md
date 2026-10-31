@@ -114,11 +114,11 @@ A woman named Rochelle took my date of birth and the last four of my Social.
 
 “I'm not able to reverse a payoff from here. If the sender wanted the wire recalled, they'd have to start that with their own bank.”
 
-She read me the rest off her screen. A letter saying the loan was paid, in about two weeks. A check for the excess funds, in about thirty days. The reconveyance, she said, which was the release of the lien, recorded with San Mateo County and mailed to me in thirty to sixty.
+She read me the rest off her screen. A letter saying the loan was paid, in about two weeks. A check for the excess funds, in about ten days. The reconveyance, she said, which was the release of the lien, recorded with San Mateo County and mailed to me in thirty to sixty.
 
 “Is there anything else I can help you with today?”
 
-“No.”
+“No, ma'am. Thank you.”
 
 “Well, congratulations again on paying off your home.”
 
@@ -128,7 +128,7 @@ I put the phone face down on the counter. I still had his fleece on. I took it o
 
 I keep the house on a spreadsheet. I made it in October 2023, at this counter, the night the notary came and I signed for the refinance. It has a line for every payment from December 2023 to November 2036. One column says what I'll owe the bank after each payment. The next one is where I type the date the check clears. The last one is for notes. Every month the bank's number and mine come out within a few cents of each other.
 
-Thirty-three lines had a date in them. Thirty-two of them had the nineteen hundred on top.
+Thirty-three lines had a date in them. Every one of them had the nineteen hundred on top.
 
 I'd sat down this morning to put a zero in the extra for September and add a line at the bottom for December 2036. It would have been the first line I ever had to add.
 
@@ -154,7 +154,7 @@ The last thing in it was his, from Thursday night at 10:02. *Your father and I f
 
 I'd read it before the trucks went out on Friday morning, at this counter, in the dark. On Thursday I'd watched the two of them out the office window with their backs to the wind, my father calling the folds. I'd had six days to answer it.
 
-On Friday I'd had Denise tell him Remington was off till the fifteenth.
+On Friday I'd had Denise call him to say the fifteenth was still on.
 
 I didn't type anything now either. I wasn't going to say this on a phone.
 
@@ -226,7 +226,7 @@ Sharon came down the hall and looked at it over my arm.
 
 I looked at him a while. He had his feet set wide, like the low man on a ramp, grinning at the fire with his whole face. He'd made two hundred and forty payments to get to that barbecue.
 
-I've found three or four of those over the years. Every one of them was in a driveway.
+I've wrapped three or four mortgage burnings over the years. Every one of them was in a driveway. Mine was going to be in mine.
 
 “It was a copy,” Sharon said. “He kept the real one in his safe deposit box with the bank's stamp on it. I found it in June. He never told my mother.”
 
@@ -240,7 +240,7 @@ Sharon looked at me.
 
 I wrote it on the sheet. I wrapped it myself, face in.
 
-When the crew broke for lunch my father brought the sixteen-footer back from the donation dock and backed it into the driveway in one pass. He got down sideways, both hands on the door, his good leg first. He stood a second with his hand on the mirror before he let go.
+When the crew broke for lunch my father brought the sixteen-footer back from the donation dock and backed it into the driveway in one pass. He got down sideways, both hands on the door, his good leg first. When the other one hit the ground his knuckles went white on the door. He kept his hand on the mirror and wiggled it. “Mirror's loose,” he said. It wasn't. I'd tightened it Friday.
 
 I stood at the top of the garage stairs with a lamp in each hand and did the number. On the first of September I wasn't sending the bank three thousand nine hundred ninety-one dollars and eighty-one cents. I wasn't sending it on the first of any month, ever again. That was enough to hire a driver for the sixteen-footer until the white truck was fixed, with some left over. My father could be out of that cab by Friday.
 
@@ -298,7 +298,7 @@ I pulled the top drawer of the nearest one to see how full they ran. They were p
 
 I wrote *14 cab, full, unload/reload* on the sheet.
 
-“I know who sent it,” I said.
+“You'd have asked me,” I said.
 
 “He asked me to on Friday morning. I told him to ask you first.”
 
@@ -361,9 +361,9 @@ Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked 
 
 *I said I would fix it.* He'd said that to the water at Carmel, about his wife, with his ears red.
 
-Twelve. On the log at Carmel, when he asked me what I wanted, I'd shut my mouth on it. In the margin beside it somebody had made a check in ink and written a date and one word. *5/4. Joanna.*
+Twelve. On the log at Carmel, when he asked me what I wanted, I'd shut my mouth on it. In the margin beside it somebody had checked it off in ink and written my name and a date. *Joanna, May 4.*
 
-Nobody but Dawn Pruitt calls me plain Joanna. She's known me since I carried her mother's dresser. May fourth was three days before she sent me to that bar. He'd never told me that one either.
+Nobody but Dawn Pruitt calls me plain Joanna. She's known me since I carried her mother's dresser. May fourth was three days before she sent me to that bar. Neither of them had told me Dawn checked me off his list before I ever walked in.
 
 I stood there with the pencil in my hand and everything I'd come up here to say to his face.
 
@@ -389,13 +389,13 @@ I wrote *wall 19'* under the cabinets. I didn't turn around yet.
 
 “You read my statement upside down,” I said.
 
-“Yes.”
+“And the loan number.”
 
 “Twice.”
 
 “You promised me at your sink.”
 
-“Yes.”
+“I broke it.”
 
 I turned around then. He had his hands at his sides. His ears were red.
 
@@ -403,13 +403,13 @@ I turned around then. He had his hands at his sides. His ears were red.
 
 He took his time.
 
-“Yes,” he said. “It was a gift. You do not ask.”
+“I typed *May I*. I deleted it.” He didn't look away. “Then I told myself, *It was a gift. You do not ask.*”
 
 “You said that about Mrs. Bautista.”
 
-“Yes.”
+“Yes. I was wrong then too.”
 
-“She thinks her husband sent her to Alaska.”
+“She got to think it was him. I know it was you.”
 
 In June, Dawn had told me to watch what a man does with a no. Last Thursday he'd folded forty-eight pads with my father. The next afternoon he'd sent five hundred and twenty-one thousand dollars to my bank.
 
@@ -419,11 +419,11 @@ My driveway, in December now, or February. Chairs off the truck. Denise with a s
 
 “My name was on that loan,” I said.
 
-I had more. I'd had it since before it was light, in order, the way I'd lay out a job for Vili. Under all of it was the thing I hadn't said on the rock. If I said one more word to him, I didn't know which one would come out. If it was that one, I'd be putting my whole weight on a man whose own assistant had just told me he always gives a present before the end.
+I had more. Under all of it was the thing I hadn't said on the rock. His own assistant had just told me he always gives a present before the end.
 
-I shut my mouth.
+I didn't trust myself to say something real because I didn't know myself. So I said nothing.
 
-I wrote it up at the bottom of the sheet. Fourteen cabinets, empty and reload, two men and me, one full day. I signed it and tore off the yellow copy. Then I went back out through Janice's office and opened her door.
+I wrote up the estimate at the bottom of the sheet. Fourteen cabinets, empty and reload, two men and me, one full day. I signed it and tore off the yellow copy. Then I went back out through Janice's office and opened her door.
 
 She was standing just outside it with her hands folded, where she could see the whole floor and nobody could see in.
 

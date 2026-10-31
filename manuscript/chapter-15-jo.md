@@ -88,7 +88,7 @@ Vili didn't ask.
 
 Manny was asleep by the airport. He always is.
 
-That left Cal in the middle of the bench with his knees up, because the middle seat in a sixteen-footer is built for a man with no legs. His thigh was against mine from the yard to Millbrae. There isn't four feet anywhere in that cab. I'd thought about that when I put him there.
+That left Cal in the middle of the bench with his knees up, because the middle seat in a sixteen-footer is built for a man with no legs. Vili folds up in it every morning like a lawn chair. His thigh was against mine from the yard to Millbrae. There isn't four feet anywhere in that cab. I'd thought about that when I put him there.
 
 “Two-story,” I said. “Mr. and Mrs. Delgado, going to a condo in San Mateo. What won't fit in a condo rides with me to their son's garage. The stairs turn at the landing. There's a room upstairs that's nothing but books. You're on boxes.”
 

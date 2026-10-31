@@ -370,7 +370,7 @@ He hadn't said the fast way. Anybody would have by now. He'd stood on his mother
 
 I knew how the slow way would go too. A man with a car at the curb has somebody for everything. He'd say yes on the sidewalk. On the first Saturday I'd get the woman who crosses her sevens.
 
-“One term,” I said. “Every Saturday, you are in that room. Seven to eleven. Nobody stands in for you. Not your assistant, not a lawyer, and not whatever booked this at midnight. If I pull up to that house and somebody else is in the driveway holding the key, I turn the truck around. The first one is a week from tomorrow, seven o'clock, and after that it's every”
+“One term,” I said. “Every Saturday I'm there, you are in that room. Seven to eleven. Nobody stands in for you. Not your assistant, not a lawyer, and not whatever booked this at midnight. If I pull up to that house and somebody else is in the driveway holding the key, I turn the truck around. The first one is a week from tomorrow, seven o'clock, and after that it's every”
 
 “Yes,” he said.
 

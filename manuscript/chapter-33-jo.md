@@ -72,7 +72,7 @@ The other two pages were in pen, on paper from a yellow pad, with the ragged edg
 
 *Jo,*
 
-*Every word on these two pages is mine. I am writing them in my car outside Abby's building. She is at a meeting for her floor.*
+*Every word on these two pages is mine. I am writing them in my car outside Abby's building. She is at a meeting for her floor. She made me pull over in Gilroy and drove the rest of the way. I let her.*
 
 *On Saturday, May 16, at 9:33 at night, Remy opened a file on you. It was called Relationship 12. It had a plan in it, the same plan it made for the other eleven. I aproved it. I did not read it.*
 
@@ -136,7 +136,7 @@ Owen came out with his new backpack on both shoulders.
 
 “Can I go see him?”
 
-“No.”
+“He's home with Cal,” I said. “I'd have to call him.”
 
 He looked at me a second, then at the ground. I put my hand on his back. He let it stay there.
 
@@ -434,7 +434,7 @@ Denise put her finger on the fifty-eight ninety-one.
 
 “I made it for three years.”
 
-“You didn't make it in August. The white truck's seventy-six hundred. Hillsborough stopped forty-eight sixty.” She didn't move her finger. “I do your books, Joanna.”
+“Not for September. The white truck's seventy-six hundred. Hillsborough stopped forty-eight sixty.” She didn't move her finger. “I do your books, Joanna.”
 
 “I'll sell the white truck.”
 
@@ -462,7 +462,7 @@ I'd be sixty-four. Owen would be twenty-nine, with his own driveway.
 
 “And the nineteen hundred?”
 
-“Goes to the truck till Christmas. Then Hillsborough.” She tapped the paper. “After that you put it on, and maybe it's 2041. If nothing else breaks.”
+“Goes to the truck till Christmas. Then Hillsborough.” She tapped the paper. “After that you put on what you can, and maybe it's 2041. If nothing else breaks.”
 
 “Something always breaks.”
 

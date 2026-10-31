@@ -244,7 +244,7 @@ I read it standing up. Then I sat down and read it again.
 
 It was right. The sweet peas had been right too. It asked me for nothing.
 
-There was a semicolon in it. I've been getting messages from men since 1998. That was my first semicolon.
+There was a semicolon in it. I've been getting messages from men since I was sixteen. That was my first semicolon.
 
 At lunch he'd said the dog hadn't told him why. By that night he knew. *He leans on the people he intends to keep.* In three years nobody had said anything that nice about me. He'd blamed it on the dog.
 

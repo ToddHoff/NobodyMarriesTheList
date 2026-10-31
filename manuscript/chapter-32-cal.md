@@ -92,13 +92,13 @@ Green goes with the owner.
 
 “Does your mother know you have this?” I said.
 
-“She will.” Abby held up the roll. “Jo sent me this. Mom said she said good luck.”
+“She will.” Abby held up the roll. “Jo gave Mom the tape for me. With good luck.”
 
 She put the tape in her bag.
 
 At the door she stopped with her hand on the frame. She looked at the table where her box always was, and at the robe hanging on my mother's door against the wall, and at me.
 
-“I'll call you,” she said. “When I want to.”
+“I'll call you when I want to,” she said. “I'll want to.”
 
 Then she went down the steps to her car. I stood in my doorway and watched her taillights go down the drive and through the gate and right, toward her mother's.
 
@@ -162,7 +162,7 @@ At 2:41 that morning Jo came in through the glass doors.
 
 It was thirty-five minutes after I called her. She had come from San Bruno.
 
-She had my fleece on, the one I handed her at my gate on the way to Carmel. It was zipped to the chin, with the sleeves pushed up. She had slept in it. I could see where it had creased across the front and down one arm. Her hair was down and flat on one side. She had her work boots on, unlaced, the laces knocking on the floor.
+She had my fleece on, zipped to the chin, with the sleeves pushed up. She had slept in it. I could see where it had creased across the front and down one arm. Her hair was down and flat on one side. She had her work boots on, unlaced, the laces knocking on the floor.
 
 She stopped inside the doors and found me on the floor. Then she looked at the door with the keypad and back at me.
 
@@ -230,7 +230,7 @@ Jo had her chin on her knees.
 
 Jo turned her head on her knees and looked at me.
 
-“I did not see it,” I said. “I have looked for eleven years.”
+“I did not see it,” I said. “I lost. She was seven and she was sure.”
 
 Her mouth moved at one corner. I had not seen it do that since the ridge. I looked at it as long as I could without her seeing me look. Under my shirt my pulse went up to a number I could not have given.
 
@@ -304,7 +304,7 @@ Jo took her hand off him. She looked at it. There was dog hair all over her palm
 
 “You should call Abby,” she said. “When it's light.”
 
-“Yes.”
+“That was my plan.”
 
 She got up.
 
@@ -312,7 +312,7 @@ I stayed down with him. The tech was showing me the clip on the line and how the
 
 I went out through the door with the keypad. The lobby was empty. The man with the cat was gone. On the television a woman was holding up a cake.
 
-Through the glass doors I saw her truck at the far end of the lot, under the light. Her father's name was on the door. She backed out and turned toward Woodside Road without stopping. I watched her taillights until the building took them.
+Through the glass doors I saw her truck at the far end of the lot, under the light. She backed out and turned toward Woodside Road without stopping. I watched her taillights until the building took them.
 
 I had not said thank you to her.
 
@@ -476,7 +476,7 @@ She did not say anything.
 
 “Has she said it back?”
 
-“No.”
+“No,” I said. “I would like her to.”
 
 “Good,” Dawn said.
 
@@ -500,7 +500,7 @@ I looked up the stairs at the open door of my bedroom, at the place on the floor
 
 “And if she is the one?”
 
-“Then she does all of it.” There was a clank behind her, somebody setting something down. “She'd have done it anyway. I hated her for saying it. I paid her for two more months so I could keep hating her.”
+“Then she does all of it.” There was a clank behind her, somebody setting something down. “I hated that woman for saying it. I paid her for two more months so I could keep hating her.”
 
 I sat on the step.
 
@@ -554,6 +554,6 @@ Abby turned her head and looked at me.
 
 “Did she come?”
 
-“Yes.”
+“Yes,” I said. “I did not thank her.”
 
 Abby looked at me a little longer. Then she reached down into the bag between her feet and took out the roll of green tape and held it in her lap, with both hands, the whole way down 280 to 101.

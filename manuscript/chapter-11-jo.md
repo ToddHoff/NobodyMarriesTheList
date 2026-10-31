@@ -10,7 +10,7 @@ It was my week. Since May, Kevin has taken him the night before each of my Sunny
 
 Denise would have taken him. So would my father, if I asked. I had a truck with an empty seat.
 
-I lay awake a while anyway. Ten days ago I had kissed a client on a curb in Los Gatos. Last Saturday I had sat on a bench in his mother's atrium with my knee against his and left it there through a whole sandwich. Now I was bringing my son.
+I lay awake a while anyway. Ten days ago I had kissed a client on a curb in Los Gatos. Last Saturday I had sat on a bench in his mother's atrium with my knee against his and left it there through a whole sandwich. Now I was bringing my son. I still hadn't asked him how he knew Denise's name. I wanted him to tell me without being asked.
 
 Vili took the sixteen-footer and Manny. I followed them down 101.
 

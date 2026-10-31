@@ -10,7 +10,7 @@ It was a plain gold band, worn thin on the palm side. The house was a ranch in S
 
 I wrote the ring on the found sheet and took a picture of it on the counter. I texted the picture to the daughter, Carol. Then I put the ring in a coin envelope with her name on it. The pencil was down to an inch and a half. I'd been sharpening it with my box knife since the night I met him. That was a year ago tonight.
 
-Every line I'd ever struck on his list had come out of that pencil. The list was on my fridge, under the magnet from the yard. It was the printout he'd mailed me in August, with *I did not write this* across the top in his blue ink and his pencil down the side. Eleven of the twelve had a line through them in my pencil. He'd told me eleven himself, the afternoon we stayed home with Owen, at my table with Owen asleep on the couch: he'd wanted a wife who could leave when he left, so nobody would be at home waiting on him to call.
+Every line I'd ever struck on his list had come out of that pencil. The list was on my fridge, under the magnet from the yard. It was the printout he'd mailed me in August, with *I did not write this* across the top in his blue ink, and down the side, in his pencil, the day I'd struck each one. Eleven of the twelve had a line through them in my pencil. He'd told me eleven himself, the afternoon we stayed home with Owen, at my table with Owen asleep on the couch: he'd wanted a wife who could leave when he left, so nobody would be at home waiting on him to call.
 
 Twelve was *Says what she wants*. I'd left that one alone.
 
@@ -29,6 +29,20 @@ For a while the door stayed shut. Then it opened. Owen stood there in his socks 
 "Show me how you made it fast," he said.
 
 Cal got up off the floor and went in. I dried my hands. That night I wrote the thirteenth line under the twelfth.
+
+In March I put a paper in front of Denise for once. Silveira Moving & Estate, two owners, half and half. She read every page standing up. She signed it on the hood of the white truck and told Vili it was about TIME.
+
+The tin came down in April, on a Sunday it rained. My father was making caldo verde. I wanted to bring something besides bread from the store.
+
+Cal was at my counter. He looked at the second shelf. He looked at me.
+
+"May I?" he said.
+
+"Yes," I said. "Hand it here."
+
+He took it down and put it in my hands. The lid stuck, the way it always had. My mother used to knock the corner on the counter. I knocked the corner on the counter. Her cards were in the order she'd left them. The one in front said MASSA SOVADA, in her printing. Under it she'd written *Joanna's lunches*.
+
+The first batch didn't rise. Cal ate two anyway. The second batch I took to my father's in a dish towel, still warm. He tore one open and smelled it before he ate it.
 
 I locked up and left the keys in the lockbox with Carol's envelope. She was picking them up from the realtor in the morning.
 
@@ -62,7 +76,7 @@ I stayed on anyway. So did he. Behind him somebody laughed. A glass went down on
 
 "It says sixty-one."
 
-His ears had gone red. They still do, with me. I stood in line with a box of pencils and tried to think what a man does for an hour at a table that gets him to ninety-four. Last August Stephanie stood in my office and told me the next thing he paid for would be a ring. I'd had a ring in my hand that afternoon, out of a dead woman's soap dish.
+I'd have bet the truck his ears had gone red. They still do, with me. I stood in line with a box of pencils and tried to think what a man does for an hour at a table that gets him to ninety-four. Last August Stephanie stood in my office and told me the next thing he paid for would be a ring. I'd had a ring in my hand that afternoon, out of a dead woman's soap dish.
 
 "What are you buying?" he said.
 

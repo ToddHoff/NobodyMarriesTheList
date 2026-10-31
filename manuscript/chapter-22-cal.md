@@ -22,9 +22,7 @@ She took her hand back. When I got up, she rolled into the place I had been and 
 
 My shirt from Saturday was on the floor with the card in the pocket. I put it on. I put the watch in my pants pocket without turning it over.
 
-West Remington Drive was empty. The church on the corner had its doors shut and the time of the service on the sign out front. Across the street was the school. My mother went in by the side door at six every morning for thirty years. When I was a student there I went in by the front at eight, with everybody else. I did not walk over with her. I told her I could cross a street by myself.
-
-Pancake stopped at the school gate and read the post for a long time. I let him.
+I walked Pancake down West Remington. He stopped at the school gate and read the post for a long time. I let him.
 
 Abby's party was at five, at X's house in Menlo Park. Abby was leaving in twenty-three days. Janice had bought the present on Wednesday. It was on the table in my front hall in Woodside, with a card in it in my handwriting. Janice had written the card.
 
@@ -40,7 +38,7 @@ When we got back she was sitting on the front step in her crew shirt from Saturd
 
 “How do you know?”
 
-“She asked me. Yesterday, in the atrium, while you were holding a box you didn't need.”
+“She asked me. Yesterday, in the atrium.”
 
 “She did not tell me.”
 
@@ -84,7 +82,7 @@ She turned her head and looked at me.
 
 “I have called her X since 2012. It is what she is in my phone.”
 
-“Huh,” Jo said.
+“Kevin's in mine as Kevin,” Jo said.
 
 She looked back at the school. I did not know what she had filed it under.
 
@@ -110,7 +108,7 @@ I laughed. I had not expected to.
 
 “I will drive you home,” I said.
 
-On Saturday she had told me she had the train. Since May she had not been in my car.
+On Saturday she said she would take the train. Since May she had not been in my car.
 
 She picked up the cooler.
 
@@ -122,7 +120,7 @@ Before she got in she looked at the front fender. It was still the way she had l
 
 “I did not want to.”
 
-She looked at me over the roof of the car for a second. Then she got in and put her seat back two notches and her boots up on the dash. I did not say anything about the boots. Pancake put his head between the seats and laid it on her shoulder. She went still. I waited for her to tell me to call him back. After a mile she put her own head back against the seat.
+She looked at me over the roof of the car for a second. Then she got in and put her seat back two notches and her boots up on the dash. I did not say anything about the boots. Pancake put his head between the seats. He had not had breakfast. I keep a box of biscuits in the console. I gave him one at a time until he stopped asking. Then he laid his chin on her shoulder. She went still. I waited for her to tell me to call him back. After a mile she put her own head back against the seat.
 
 She was asleep before Palo Alto.
 
@@ -138,7 +136,7 @@ She had been going to pay me for the gas.
 
 The present was on the table in my front hall where Janice had left it on Friday. It was the size of a shoebox, in good paper, with ABBY on the envelope in my handwriting.
 
-I opened the envelope. It was a good card. It said what I would have said if I had thought of it a day early. The present was a lamp for a drafting table. Janice has bought Abby a present for everything since Abby was four. She has not been wrong about one yet.
+I opened the envelope. It was a good card. It said what I would have said if I had thought of it a day early. The present was a lamp for a drafting table.
 
 I took a pen and one of my blank cue cards out of the kitchen drawer. I sat at the counter with them for some time. Everything I could think of to put on the card was worse than what was on hers. I put the pen and the card back in the drawer.
 
@@ -164,7 +162,7 @@ I wanted my hands in her hair again. I got back in and put my hands on the wheel
 
 “That one's yours.” She held the bag on her knees. “Thirty-foot tape. From the yard. We buy them by the case. Every architect I ever moved had a drawer full of tapes that wouldn't go back in. This one goes back in.”
 
-The lamp was in my trunk. Janice had picked it.
+The lamp was in my trunk.
 
 On 280 she asked how many times I had been inside X's house.
 
@@ -178,13 +176,13 @@ She did not say anything to that. She looked out her window at the hills the res
 
 ***
 
-X's house is on a street in Menlo Park where the oaks meet over the middle. I had been inside it four times. All four were in the front hall.
+X's house is on a street in Menlo Park where the oaks meet over the middle. I had never been past the front hall.
 
 By the clock in my car it was 4:56 in the afternoon. Under the oaks the light came down green. The trunks were older than any house on the block. The houses sat back behind hedges and old board fences. There was no sidewalk. Cars were parked up on the gravel shoulder for a block on both sides.
 
 Jo got out under the trees and stood looking up into them. In that light the green dress went nearly black. We walked up the shoulder toward X's door. Her arm touched mine every few steps. I did not move my arm. I wanted her to keep doing it.
 
-A girl opened the door with her phone already up. She was filming everyone who came in. She filmed the couple ahead of us for about a second each. She kept it on me for four. She had found the billboard.
+A girl opened the door with her phone already up. She was filming everyone who came in. She filmed the couple ahead of us for about a second each. She kept it on me for four.
 
 X came down the hall from the kitchen. She had on a white shirt with the sleeves turned back twice, exactly. Her hair was the length it was in 2007. I do not know how she does that.
 
@@ -268,7 +266,7 @@ I named her X in my phone in 2012, the week the lawyers started. I could not loo
 
 Abby looked up at me.
 
-“Okay,” she said.
+“See, that wasn't so bad, was it?” she said.
 
 Both ends of the table had heard it. When I sat down, Jo did not say anything. She moved her chair two inches closer to mine.
 
@@ -276,11 +274,9 @@ Both ends of the table had heard it. When I sat down, Jo did not say anything. S
 
 At seven Stephanie cut the cake. It was green and gold, with CAL POLY on top in white. Everyone stood around the end of the table where she was cutting. Everyone had a phone up.
 
-“Green and gold,” Abby said. “School colors.”
+“Green and gold,” Abby said. “School colors.” She found Jo down the table. “Green means I keep it.”
 
-“Green goes with you,” Jo said.
-
-Abby laughed out loud. Her friends looked from her to Jo. Abby did not explain it.
+Her friends looked from her to Jo. Abby did not explain it.
 
 Jo was standing beside me with her shoulder against my arm, laughing. The girl from the front door had her phone on the two of us. She was not taking it for Abby. Abby was at the other end of the table with the knife.
 
@@ -332,7 +328,7 @@ Jo kept my hand and looked out at the lawn. On the lawn Stephanie was fixing the
 
 My throat had shut. I kept my face toward the lawn. My watch was on the counter in Woodside. If I had been wearing it, it would have been tapping.
 
-I have hired twenty-six account managers. The best one I ever had knew every client's birthday and the name of every client's dog. Her clients sent her flowers. None of them had seen her in a room in years.
+I have hired twenty-six account managers. The best one I ever had knew every client's birthday and the name of every client's dog. Her clients sent her flowers. She worked from Boise. None of them had ever met her.
 
 Last night in my old room Jo had asked me whether I still wanted a baby. I asked myself a third time, at the end of a table in Stephanie's yard, with her hand in mine and my daughter on the lawn holding still for a picture.
 

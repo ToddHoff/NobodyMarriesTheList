@@ -66,11 +66,13 @@ I'd known Cal would come up with something. In the car last night, when I told h
 
 My father looked at him for a while. Then he looked over at me and back at Cal.
 
-“No,” he said.
+“No,” he said. “You're my crew.”
 
 He held out the cooler. Cal took it.
 
 My father's list has one line on it. Can he carry.
+
+Kevin always brought the wine.
 
 Cal held the cooler in both hands and waited to be told where it went.
 
@@ -90,9 +92,7 @@ Getting into the boat took my father a while. Cal and I looked at the water whil
 
 “Can you swim?”
 
-“I can swim,” Cal said. “I cannot float. I tested it for an hour on Wednesday in Maui.”
-
-I hadn't known that. On Wednesday I'd slept till after seven. He'd been out in the Pacific the whole time, trying to lie on top of it.
+“I can swim,” Cal said. “I can float for a minute and a half, if no dolphins go by.”
 
 I laughed. My father didn't. He held the life jacket out until Cal put it on. Then he reached up and pulled the strap at the waist tighter himself.
 
@@ -156,7 +156,7 @@ Past the Ferry Building the wind went soft under the city. My father started the
 
 Past Alcatraz there was nothing in front of us but the bridge. It gets bigger the whole way in. Just when you think you're close, it gets bigger again. Cal had quit saying the names of things back.
 
-From the water it doesn't sit on anything. I move weight for a living. That's what gets me every year. Two towers stand up out of the bay seven hundred and forty-six feet. The road hangs between them off two cables, four thousand two hundred feet of it. I looked that up the first year, when I was twelve. Under the overcast the orange was the only color anywhere. The water was gray, the sky was gray, the Marin hills were gray-brown. The bridge looked lit from inside, like running lights on a truck at five in the morning.
+From the water you can see there's nothing under the road. I move weight for a living. That's what gets me every year. Two towers stand up out of the bay seven hundred and forty-six feet. The road hangs between them off two cables, four thousand two hundred feet of it. I looked that up the first year, when I was twelve. Under the overcast the orange was the only color anywhere. The water was gray, the sky was gray, the Marin hills were gray-brown. The bridge looked lit from inside, like running lights on a truck at five in the morning.
 
 Slack water at the Golden Gate was 7:44. My father had us under the middle of the bridge right on it, with the main up and the engine turning slow. He's done it that way every year since 1994.
 
@@ -196,7 +196,7 @@ I've had the sheets on this boat since I was twelve. I'd left them with a man wi
 
 My father didn't call me back.
 
-South of the Bay Bridge the wind came up past twenty in the gusts. My father had Cal take the jib down, so we came the rest of the way on the main. By the time we motored in past the breakwater it was going on eleven. The overcast had lifted some.
+South of the Bay Bridge the wind came up past twenty knots in the gusts. My father had Cal take the jib down, so we came the rest of the way on the main. By the time we motored in past the breakwater it was going on eleven. The overcast had lifted some.
 
 “Bow line,” my father said. “Forward cleat.”
 
@@ -472,7 +472,7 @@ Cal came around and stood next to me in my father's driveway.
 
 “You heard that,” I said.
 
-“Yes.”
+“Yes. I would like to be asked for the second one.”
 
 He stood there with his hands in his pockets.
 
@@ -482,7 +482,7 @@ Now I had a dead truck in my yard. The man standing in my father's driveway didn
 
 “You were jealous,” I said. “Of Kevin.”
 
-“Yes.”
+“Yes. It was new.”
 
 “Over a cleat.”
 

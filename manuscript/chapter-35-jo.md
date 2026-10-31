@@ -60,7 +60,7 @@ My father makes it every Sunday it rains. It's potatoes and onion in water till 
 
 I cut it anyway. I got it as thin as I could and put the thick ones in with the rest.
 
-On Saturday I'd given him his mother's keys back. Ten Saturdays with a clipboard in my hand. Nobody was paying me to be in a room with him anymore.
+On Saturday I'd given him his mother's keys back. Ten Saturdays with a clipboard in my hand. Cal was not paying me to be in a room with him anymore.
 
 The linguiça was my father's, from the freezer. I sliced it in rounds and fried them in the pan till the fat came out. They went in the pot, fat and all. I turned the burner down and set two places at the table and moved Owen's charger off his chair onto the counter.
 
@@ -144,7 +144,7 @@ There wasn't a rest.
 
 My eyes went too.
 
-“Glasses are by the sink,” I said. “Get yourself some water.”
+“Glasses are by the sink,” I said. “There's vinho verde in the fridge. Pour two.”
 
 He came in. He went to the sink and opened the cupboard on the right.
 
@@ -160,9 +160,9 @@ I didn't move. If he opened it I'd have to say something. I had nothing.
 
 He held it shut in both hands, the way I'd held his mother's. He didn't turn it over to read the bottom. He stood at my sink with it against his chest.
 
-Then he put it back on the second shelf, square to the edge, and shut the cupboard. He opened the one on the left and took down a juice glass.
+Then he put it back on the second shelf, square to the edge, and shut the cupboard. He opened the one on the left and took down two juice glasses.
 
-He didn't ask. He filled the glass at the tap and drank half of it and set it on the counter.
+He didn't ask. He got the bottle out of my refrigerator and filled both glasses. He drank half of his and set mine by the stove.
 
 I turned the burner back on.
 
@@ -177,6 +177,10 @@ He ate two bowls. He had the first one down before I'd got the sausage out of th
 “I have never had it.”
 
 “My father's. He makes it when it rains.”
+
+“It is not raining.”
+
+“Just eat.”
 
 He ate the second one slower. Pancake was under the table on my feet, asleep.
 
@@ -198,7 +202,7 @@ Nine lines in my capitals. Nine lines through them.
 
 I put my spoon in the bowl.
 
-“At the fence in June you asked me who wanted it. I said that I send things and that I like it when they are used.”
+“At the fence in June you asked me who wanted *comfortable being looked after*. I said, ‘I send things. I like it when they are used.’”
 
 “I remember.”
 

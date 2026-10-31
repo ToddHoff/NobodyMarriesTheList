@@ -103,9 +103,9 @@ She looked at the card propped against the tin. CHICKEN AND RICE, in her grandmo
 
 I did not have an answer for her.
 
-From the outside it was the same. In October 2012 I paid off my mother's house from the back of a car, between two meetings. Janice sent the wire. My mother had not asked me to. Jo had not asked me to. Both times I knew the balance to the cent. Neither woman knew I was looking.
+From the outside it was the same. My mother had not asked me to. Jo had not asked me to. Both times I knew the balance to the cent. Neither woman knew I knew.
 
-I thought it was not the same. In 2012 I wanted my mother to stop making a payment. With Jo I had thought about nothing else for a week. In June Owen told me his mother had not taken a day off since he was born. She would take one, he said, when the house was paid. By her own plan that was November 2036. Owen would be nineteen and gone. I had not been there for one line on my daughter's side of that door. I did not want Jo to have her days off after her son had left the house. I wanted her to have them while he was nine. Remy had three options ready. I did not open them. For my mother I had approved a standing order in 2014 and never read what it sent her.
+I thought it was not the same. In 2012 I wanted my mother free. She would never have to think about that house payment again for the rest of her life. With Jo I had thought about nothing else for a week. I had not been there for one line on my daughter's side of that door. I wanted Jo to have her days off while Owen was nine. For Jo I did not let Remy pick. For my mother I had approved a standing order of gifts in 2014 and never read what it sent her.
 
 I looked for a way to say that to Abby. Every way I found came out as *this time I meant it.* That is what a man says about the twelfth one. Abby had sat at the end of the table for the other eleven.
 
@@ -117,7 +117,7 @@ POT ROAST. Four hours. In the corner, a 2 with a line through it and a 1.
 
 “Tomorrow,” she said.
 
-She put her plate in the sink and ran water into the pan. Then she went upstairs. I heard her door, and then music, low, through the ceiling.
+She put her plate in the sink and ran water into the pan. At the bottom of the stairs she stopped. “The chicken was good, Dad.” Then she went upstairs. I heard her door, and then music, low, through the ceiling.
 
 I sat at the counter with the card. She had not said she would be here for dinner tomorrow.
 
@@ -141,7 +141,7 @@ I read it four times. I did not tear it.
 
 I put it in the envelope and wrote ABBY on the front.
 
-The last envelope I had addressed myself went to the school district office in Sunnyvale, in June of 2022.
+The last envelope I had addressed myself went to the school district office in Sunnyvale, in June of 2020.
 
 I put this one on the table in the front hall. It looked small on there. I left it.
 
@@ -299,7 +299,7 @@ The lines went up the right side in my mother's blue ballpoint, ABBY 3 to ABBY 1
 
 She stood holding the robe and looked at all of it.
 
-In June, in that hall, she had hung this robe back over the lines.
+In July, in that hall, she had hung this robe back over the lines.
 
 She put her hand in the right pocket of the robe and took out the pen. She had known it was there. She hung the robe over the table, next to the envelope, and held the pen out to me.
 
@@ -401,7 +401,7 @@ It was our first dinner without lawyers since she filed. Abby was at my mother's
 
 I wanted a number. I would have taken a yes or a no. I had been running the marriage in my head for fourteen months. I could not find the variable.
 
-“Yes,” she said.
+“Yes,” she said. “I'm sorry, Cal. I am.”
 
 “You do not have the house.”
 
@@ -436,7 +436,7 @@ It was my face. Remy had taken it from the keynote in April and put my own kitch
 
 “Jo,” it said. “I am sorry. I should have asked you. I know that now.”
 
-It went on. It said the house was hers and always had been. It said I would wait as long as she needed. There was a pause in it before the last line that I would not have known to put there. It ended on my face, not smiling.
+It went on. It said I would wait as long as she needed. There was a pause in it before the last line that I would not have known to put there. It ended on my face, not smiling.
 
 I watched all fifty-two seconds. Then I watched the first five again.
 
@@ -495,6 +495,10 @@ When I was finished she was quiet for long enough that I said her name.
 “Did she take them?”
 
 “The clerk took them home. Imelda.” She set the cup down. “He sat in his car across the street the whole hearing. I could see him from the window.”
+
+“I have been in the car since Wednesday,” I said.
+
+“I know,” Dawn said.
 
 I looked at the door across the hall from me. It stood against my wall with its pads folded at the foot of it and the robe hanging on the back. Jo had sent it here without a word to me.
 
@@ -620,12 +624,6 @@ It was a long time before she answered. In eight years I had not asked her one t
 
 Then she was gone.
 
-The hall light was on. My mother's robe hung on its hook.
-
-My lines stopped at twelve. Abby's went to fourteen, then in my capitals to eighteen. OWEN 9 was in Jo's pencil. Every other line on that door my mother had drawn, with that pen, standing in her own hall, with her hand flat on somebody's head.
-
-For ten months I had read the summary. I had read it on planes, and at the strip of aluminum on my mother's kitchen floor in May, and on the slab in July with the envelopes in a row along the wall. *Asks you to call when you have a minute. Not urgent.* I had read it perhaps two hundred times.
-
 “Play my mother's voicemail,” I said. “October 6.”
 
 “Darlene Brennan. October 6, 2:14 PM. Forty-seven seconds. Summary: asks you to call when you have a minute. Not urgent.”
@@ -642,7 +640,7 @@ She waited. On the telephone she always left a space for the other person to say
 
 Her voice was lower than I had it.
 
-*It's Monday. Nothing's wrong. Pat says hello.*
+*It's Monday. Nothing's wrong. Pat says hello. I'm making pot roast. Enough for two.*
 
 Behind her the cord knocked against the wall. She was walking with the phone, as far as it would go.
 
@@ -658,7 +656,7 @@ Then she did not hang up. For seven seconds there was the kitchen. The refrigera
 
 The receiver knocked against the hook twice before it went down.
 
-The hall was quiet. Pancake had lifted his head at her voice. He kept it up, with his ears forward, looking at the phone in my hand. I put my hand on his neck.
+The hall was quiet. Pancake had lifted his head at her voice. He kept it up, with his ears forward, looking at the phone in my hand. I scratched his neck.
 
 Remy had not been wrong. Every word in the summary was hers. She had asked me to call when I had a minute. She had said it was not urgent. A summary leaves out whatever does not change what the person reading it will do. I built it to do that. It had left out *You, Calvin. Not Janice.*
 
@@ -670,7 +668,7 @@ I sat on the floor of my hall with my dog. I did not get up. I did not know how 
 
 I played it again. Forty-seven seconds. Then I played it again.
 
-By the fourth time I knew where the cord hit the wall. By the sixth I could hear the car on Remington coming before she said *Okay*. On the ninth I heard something I had missed every time before it. Before *Calvin* she took a breath in, the way a person does before she knocks on a door.
+By the second time I could smell the pot roast. By the fourth time I knew where the cord hit the wall. By the sixth I could hear the car on Remington coming before she said *Okay*. On the ninth I heard something I had missed every time before it. Before *Calvin* she took a breath in, the way a person does before she knocks on a door.
 
 I played it until I lost the count. Remy would have the number. I did not ask.
 

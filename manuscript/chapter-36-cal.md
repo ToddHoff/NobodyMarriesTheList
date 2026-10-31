@@ -8,7 +8,7 @@ At 10:34 on Tuesday morning, September 15, I walked to the front of the stage in
 
 The Civic holds eight and a half thousand. We had set it for four, with the floor in rows and the balcony closed past the third row, so it would look full on the stream. The stream had one million three hundred thousand people on it. In December 1968 Douglas Engelbart sat at a console on a stage in this building for ninety minutes and showed a thousand engineers a mouse. I read the transcript of it when I was nineteen. I had asked for this room every fall since we were big enough to fill it.
 
-I had been on for thirty-four minutes. At minute nineteen Remy had sat on hold with an airline for eleven minutes while I talked about something else. When a person picked up, it moved a seat. Four thousand people cheered for a seat. My watch said sixty-one. It says sixty-one on a stage.
+I had been on for thirty-four minutes of forty-five. At minute nineteen Remy had sat on hold with an airline for eleven minutes while I talked about something else. When a person picked up, it moved a seat. Four thousand people cheered for a seat. My watch said sixty-one. It says sixty-one on a stage.
 
 I can tell when a room is mine. It goes quiet from the back first. In the second row there was a woman from the Chronicle who had written about the photograph in July. She had come to see whether I was worse at this than I used to be. She was watching my board in the front row, not me. At minute twenty-six they were nodding. She put her pen down on her knee.
 
@@ -26,7 +26,7 @@ They laughed again. The woman from the Chronicle picked up her pen and wrote tha
 
 My phone moved against my left leg.
 
-It was one minute and fifty-two seconds into the speech. The whole of it runs four minutes and ten seconds. Owen knows where every one of the seconds goes.
+It was one minute and fifty-two seconds into the hour, which is what we call that speech. The whole of it runs four minutes and ten seconds. Owen knows where every one of the seconds goes.
 
 The phone was in my left front pocket. At 9:50 the stage manager had put her hand out for it at the foot of the steps. For seventeen years Janice had held it in the wing. Janice retired on August 28. I kept it.
 
@@ -452,7 +452,7 @@ He looked at me with the patient face. Then he looked up the street and down it.
 
 "Thanks for getting him," he said. "I was in an assembly." He went back in to his son.
 
-At 4:31 Jo wrote *Kevin says he's got him. Go see Pancake.*
+At 4:31 Jo wrote *Kevin says he's got him. Text me HOME.*
 
 ***
 
@@ -475,6 +475,8 @@ I opened the gate. He leaned the whole of his weight against my knee. I got one 
 I did not know it was flat that way. I have carried him up those three steps every morning since he could not do them.
 
 "You like carrying him," Rita said. She went back in.
+
+I texted Jo one word, HOME.
 
 ***
 
@@ -572,9 +574,9 @@ She put her phone face up between us and scrolled. It was my texts. *11:27. 12:0
 
 "I sent them on the hour."
 
-"Huh."
+"I checked it on the hour," she said. "Between loads."
 
-She turned the phone over.
+She turned the phone face down and kept her hand on it.
 
 "Vili showed me at lunch," she said. "On his phone. Him and Manny and Dad, on Mrs. Halvorsen's piano bench on her lawn."
 
@@ -618,7 +620,7 @@ I put it in my pocket.
 
 She looked at me across her table.
 
-"We," she said.
+"We will stay with him today," she said.
 
 She texted Vili with her thumb. I read it upside down. *Take Burlingame. I'm off today.*
 

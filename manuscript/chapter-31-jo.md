@@ -90,13 +90,13 @@ Owen came up the walk with his backpack on one shoulder and his phone already ou
 
 “You didn't send it to him?”
 
-“No.”
+“No, bud.”
 
 “He gets up at five. He'd have been out with Pancake.” He was already working it out. “From Woodside, northeast is over the bay. He'd have a better sky than you. Can I send it to him? From your phone.”
 
 If it came from my phone, it came from me.
 
-“No,” I said.
+“No,” I said. It came out the way I talk to my crew.
 
 His face came down like a roll-up door, from the top. He didn't argue. He looked at the dots on his screen and didn't say anything.
 
@@ -184,7 +184,7 @@ Every answer I'd had for him since the pads started with thank you. I hadn't sen
 
 She shifted the bag on her arm.
 
-“You're thinking they'd stay for the money. They have their own. Careers. Houses they paid for themselves. That's who the matchmaker finds him. Nobody stays for a present, Ms. Silveira. Not one that's the last thing he gives you.” She looked at me. “Abby liked two of them. Neither one said goodbye to her.”
+“You're thinking they'd stay for the money. They have their own. Careers. Houses they paid for themselves. That's who the matchmaker finds him. Nobody stays for a present, Ms. Silveira. With him the present is the goodbye.” She looked at me. “Abby liked two of them. Neither one said goodbye to her.”
 
 She said it in order, without any heat. She'd had it ready a long time.
 
@@ -196,7 +196,7 @@ He'd never taken me to Napa. He'd taken me to a dog park in Los Gatos. I'd drive
 
 She took a manila envelope out of her bag and set it on my desk. She squared it to the edge. I'd seen her daughter do that, and her daughter's father.
 
-“And if it doesn't end,” she said. “When I married him, nobody asked me to sign anything. There was nothing to sign. He's known you three months. He paid off your house. The next thing he pays for is a ring.”
+“And if it doesn't end,” she said. “When I married him, nobody asked me to sign anything. There was nothing to sign. He's known you three months. If there's a ring, it comes with this.”
 
 At *ring* my hand moved on the desk. I didn't want it doing that for a word out of her mouth. I put it flat on the envelope to keep it still.
 
@@ -250,7 +250,7 @@ She looked at me for a while.
 
 “Will you let it end?”
 
-“I'll talk to him,” I said. “Not tomorrow at seven.” I could have stopped there. “You drove up from Menlo Park for your kid. I'd have done it.”
+“I'll talk to him,” I said. “Not tomorrow at seven.” I could have stopped there. “You drove up from Menlo Park for your kid. I respect that.”
 
 “He'll let you go now,” she said. “He always does.”
 
@@ -484,9 +484,7 @@ By the time I'd done the dishes Owen was asleep, with his door open a foot.
 
 I sat at my counter with the light over the stove on and nothing else. The fleece was on the back of the chair. I put it on. It still smelled like his dog and the cold at his gate. I wanted him at my counter so bad my stomach hurt.
 
-On the terrace at Ventana he'd turned his hand over under mine and held on, and looked at me, and waited. I passed him the bread.
-
-Kevin used to pass me the salt.
+On the terrace at Ventana he'd turned his hand over under mine and held on, and looked at me, and waited. I passed him the bread, the way Kevin used to pass me the salt.
 
 I took my phone into the bedroom. I didn't open his thread. I plugged it in on the nightstand face up and turned the ringer all the way up.
 

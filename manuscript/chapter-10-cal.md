@@ -92,7 +92,7 @@ I went to the cab. I was there before I had decided to move. She had the door op
 
 “No.” She had it out before I finished asking. “How bad is your car?”
 
-“It has 1,100 miles on it. It will not miss a headlight.”
+“It has 1,340 miles on it. It will not miss a headlight.”
 
 I looked at her anyway. She would not look at me. She was looking past me at my car, at whatever she had done to it. I did not turn around. Her hand went to the back of her head and came away. She glanced at her fingers. So did I. There was nothing on them.
 

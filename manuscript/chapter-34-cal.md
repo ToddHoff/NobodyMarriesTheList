@@ -80,7 +80,7 @@ She ate it before she opened her own bag. She ate it in four bites, looking at t
 
 “You broke the yolk,” she said.
 
-“Yes.”
+“I have not made one before.”
 
 “Next time leave it.” She took the fourth bite. “It runs into the bread.”
 
@@ -184,7 +184,7 @@ In September 2012, the month before I paid off her house, she had bought a piano
 
 Abby had come every summer until she was fourteen. She had sat at this bench with her book open on the stand. She had never told me.
 
-Everybody hides things.
+In May I had told Jo that my mother did not hide things.
 
 I did not know whether she could play. I did not know whether she still could.
 
@@ -202,9 +202,9 @@ It had not been on her estimate. On any other job she would have had the paper o
 
 “Four-wheel dolly,” she said. “Two straps. Every pad we've got left.” She turned back to me. “It's about four hundred pounds. Up a ramp, the low end's the heavy end. Two on the low end.”
 
-“Yes.”
+“Put me on the low end.”
 
-“You're low,” she said. “With Vili.”
+“No piano man,” she said. “You bet you're on the low end. With Vili.”
 
 Vili looked at her. He had been on the low end of everything I had watched him carry for three months. He looked at me before he went and got the dolly.
 
@@ -328,7 +328,7 @@ She said it before I could.
 
 “Yes.”
 
-“I say it to everybody. I said it to my dad in July, and he drove the sixteen-footer for a week on those knees.” She stopped. “That one's on me. The house was still mine to say.”
+“I say it to everybody. I said it to my dad in July, and he drove the sixteen-footer for a week on those knees.” She stopped. “That one's on me. But it was my house. I get to be wrong about my own house.”
 
 She was right. I had known it at 3:12 in the afternoon on August 7. I had sent it anyway.
 
@@ -406,7 +406,7 @@ She was quiet for a second. Then she said, “My dad said in the truck, what you
 
 She looked at me when she said it. I did not look away.
 
-“In April I moved one in San Carlos. Kept his books nineteen years. He never put her on the payroll. I made the bed for her in the new place.” She stopped. “I walk every house last. By myself. Nobody moves me out of mine.”
+“In April I moved one in San Carlos. Kept his books nineteen years. He never put her on the payroll. I made the bed for her in the new place.” She stopped. “I walk every house last. By myself. That's why I was paying off mine myself. So nobody could ever move me out of it.”
 
 I thought of line seven. *Comfortable being looked after.*
 
@@ -474,7 +474,7 @@ I wanted to say it back. My heart was going, so I waited.
 
 It was after four when she sat up.
 
-“The hearth,” she said.
+“One more,” she said. “The hearth.”
 
 The three boxes had been on it with no tape on them for fourteen weeks.
 
@@ -482,11 +482,11 @@ I knelt on the hearth. The top one was the Mother's Day box. It had gone out in 
 
 I opened it myself. I cut the tape with the key on the red yarn.
 
-Inside was a smaller box in good paper. Inside that was something white and smooth, about the size of a loaf of bread, with one round button on the top and a cord wrapped under it.
+Inside was a smaller box in good paper. Inside that was a tablet for video calls, with a stand. A card said it had been set up for her, with one contact.
 
-I turned it over. I did not know what it was. Someone good at it had chosen it.
+I turned it on. The one contact said *Office of C. Brennan.*
 
-“It's a humidifier,” Jo said. “For a bedroom. You put water in the top.”
+Jo read it over my shoulder. She did not say anything.
 
 “Blue,” I said. Then: “All three. Blue.”
 
@@ -564,7 +564,7 @@ She sat back down.
 
 “We're movers.”
 
-“She handed me a tray five days a week for three years. I made sure the other boys did not know she was mine.”
+“She handed me a tray five days a week for three years. In the line I called her ma'am, like everybody else.”
 
 “And nine?”
 
@@ -590,7 +590,7 @@ She held on to the card.
 
 “How much?”
 
-“The first year, two thousand two hundred and eleven dollars. The last one went in 2022. After that the state made the meals free.”
+“The first year, two thousand two hundred and eleven dollars. The last one went in 2020. After that the meals were free.”
 
 “Janice did that?”
 
@@ -616,11 +616,9 @@ Jo turned the card over in her hands.
 
 “I do not know. She never said. And I never asked her.”
 
-Jo turned the card over in her hands again. “You still owe me one,” she said. “From the sixth course.”
+Jo turned the card over in her hands again. “You still owe me one,” she said. “From the sixth course. Your robot. What's it for?”
 
-I knew which one.
-
-“She had fifteen minutes at ten-thirty,” I said. “Any call she had to make, she made then, from the phone on the wall by the dish room. The doctor's office. The district, about her hours. Most of the fifteen minutes she was on hold.”
+“My mother got one break a day,” I said. “Fifteen minutes, at ten-thirty. She called the doctor's office then, or the district about her hours, from the phone on the wall by the dish room. She spent most of her break on hold.”
 
 She waited.
 
@@ -630,19 +628,49 @@ She waited.
 
 “No. She told me she did not mind the music.”
 
+“Why Remy?” Jo said.
+
+“It is short and easy to spell.”
+
+She tipped her head at the front door. “Remington.”
+
+“A reporter wrote that in 2014. I did not correct him.”
+
+“You told the man in Tulsa,” she said. “I'm asking you.”
+
+I looked at the boxes with the blue tape on them.
+
+“My father's name was Jeremy,” I said.
+
+I had not said it out loud since I was five.
+
+“He left that year. Nobody told me why. The first time my mother stopped talking was that week.”
+
+Jo waited.
+
+“That fall she brought a dog home from the county shelter. She let me name him.”
+
+“What kind of dog?”
+
+“Brown. Part beagle. Nobody knew the rest.” I could feel the brick under me. “He waited at the front door every day at 3:10. My mother was still at work. He slept on my feet. In the nine days, he was who I talked to.”
+
+“And she let you call him that.”
+
+“She called him in from the yard every night for seven years. She never once asked me why.” I looked at my hands. “He died when I was twelve. I have had a dog ever since.”
+
 Jo looked at the back of the card. There were nine lines on it now, in her capitals, struck. Twelve was not one of them. She put the card back in my shirt pocket herself and pushed it down with two fingers. She left her hand there on my chest and pressed once.
 
 ***
 
 At 5:52 that evening I locked the front door of my mother's house with my key. The shadow of the house was halfway across Remington. Next door Pat Dolan was in her front window, not pretending she was not watching.
 
-I had the yellow phone under my arm and the piano books in my other hand. Jo had her clipboard. She had written something on it in the front room before we left and had not shown me.
+I had the yellow phone under my arm and the piano books in my other hand. Jo had the three blue boxes against her chest, with her clipboard on top. She had written something on it in the front room before we left and had not shown me.
 
 On the walk she stopped.
 
 “Walk me to my truck,” Jo said.
 
-I walked her to her truck. It was forty feet. Her father's name was on the door. She opened it and put the clipboard on the seat face up. I read it upside down, because I cannot help it.
+I walked her to her truck. It was forty feet. Her father's name was on the door. She opened it and set the boxes on the seat, with the clipboard on top, face up. I read it upside down, because I cannot help it.
 
 Under *GARAGE. LOCKED. OWNER SAYS EMPTY.* she had written in pencil that afternoon: *1 PIANO. OWNER CALLED IT.*
 
@@ -652,7 +680,7 @@ Then she took hold of my shirt, over the pocket with the card in it, and pulled 
 
 My heart was going again. I waited.
 
-“Go home to your dog,” she said.
+“Go home to Pancake,” she said.
 
 ***
 

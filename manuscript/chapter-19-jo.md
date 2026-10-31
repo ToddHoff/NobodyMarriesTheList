@@ -286,7 +286,7 @@ Gil had left masks and fins on the sand, and a stack of vests. Cal put one on an
 
 The ocean at home is fifty-five degrees and the color of primer. This one was warm all the way down. I put my face in it. The whole reef was crackling, like bacon in a pan. Light came down through the water and lay on the sand in nets that moved. There were yellow fish, hundreds of them, turning all at once. There was a black one with a white stripe that came right up to my mask and looked in, like it had a question about the estimate.
 
-Owen came up next to me, pulled his snorkel out and said a word. It was the one from Sunday night. It had all the vowels. He got through every one of them.
+Owen came up next to me, pulled his snorkel out and said a word. It was the one from Sunday night. It had twelve vowels. He got through every one of them.
 
 “That's the state fish,” he said. “I practiced.”
 
@@ -390,7 +390,7 @@ Owen was across the hall. I slept in my room and Cal slept in his.
 
 ***
 
-Before it was light on Tuesday I made sandwiches in his kitchen. On the way in from the airport I'd had the car stop at a store in Kīhei. I paid with my own card. The food in his refrigerator was going to the pantry on Thursday. I wasn't taking it off them.
+Before it was light on Tuesday I made sandwiches in his kitchen. On the way in from the airport I'd had the car stop at a store in Kīhei. I paid with my own card. Everything in his refrigerator went to the food pantry on Thursday. Somebody was counting on it.
 
 I made twelve, plus one for Gil. Two pilots, Dr. Okamura, four men on the ground lines, the three of us, and two more. There are always two more people than anybody tells you. Sausage and cheese on sweet bread, buttered out to the edge.
 
@@ -418,7 +418,7 @@ Owen nodded. She'd passed.
 
 I handed out the sandwiches. The pilots looked at each other. The men on the ground lines said thank you, ma'am, and ate them right there with the lines in their other hands. Cal watched me do it. He didn't offer to help. He knows by now.
 
-Getting it here had taken a phone call to the governor. Cal had told me on the plane that he'd promised to build something in Hilo. I didn't ask what.
+It had come over on a ship. Flying it over the park had taken a waiver from the FAA and a phone call to the governor. Cal had told me on the plane that he'd promised to build something in Hilo. I didn't ask what.
 
 This was a zeppelin in a cow pasture at first light, and a scientist with forty-one volcanoes giving her Tuesday to a nine-year-old, and four men holding ropes so my son could go up.
 

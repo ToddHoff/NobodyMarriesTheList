@@ -4,9 +4,9 @@
 
 ~~8. No kids. Wants them~~
 
-On Thursday I packed a dead woman's kitchen in Westlake by myself, in fog so thick I'd driven over with my headlights on at seven in the morning. My nose was peeling from Maui. Every time I wiped it on my sleeve I was back on that lanai.
+On Thursday I packed a dead woman's kitchen in Westlake by myself. The fog came in off the ocean and sat on the house all day. My nose was peeling from Maui. Every time I wiped it on my sleeve I was back on that lanai.
 
-Her son had flown in from Phoenix. He sat in the garage with the door up, on a folding chair, with his phone, coming in every hour to ask if I needed anything. I've cleared a lot of houses for people's children. They'll go through their mother's closet and her jewelry and her desk with a box of tissues. They leave the kitchen to me.
+Her son had flown in from Phoenix. He sat in the garage with the door up, on a folding chair, with his phone, coming in every hour to ask if I needed anything. I've cleared a lot of houses for people's children. They'll go through their mother's closet and her jewelry and her desk with a box of tissues. The kitchen they call in one word. He'd said blue for all of it before I had the first box built.
 
 I built two dish packs on her counter and taped the bottoms in an H. Plates on edge, cups rim down, glasses in their own cells. I can do a kitchen like hers in five hours if nobody talks to me. Nobody did. The house was so quiet I heard the furnace come on twice before noon, in July.
 
@@ -62,7 +62,7 @@ I wanted it so much my scalp itched. Sweat was running into my eyes. I'd put my 
 
 He waited. Most people start talking.
 
-“Your mother lived in it hot,” I said. “Every summer since 1960. We can do two more Saturdays.”
+“Your mother lived here without it,” I said. “Every summer since 1960. We can do two more Saturdays.”
 
 He looked down the hall at the glass.
 
@@ -92,7 +92,7 @@ Vili looked down the hall. The frames were done, the hall was swept twice, and C
 
 “Caltrain. It stops in San Bruno.”
 
-“I've been to San Bruno, boss.”
+“I'll tell your dad you took the train.”
 
 He went back to the cab and got my cooler off the seat and carried it up the walk and set it on the step. He picked it up again, a couple of inches, and let it down.
 
@@ -180,7 +180,7 @@ I turned my head on the slab and looked at him. He was looking at the ceiling. H
 
 “You haven't changed a bit,” I said.
 
-“My mother said that,” he said. “She meant it as a complaint.”
+“My mother said that,” he said. “She did not mean it as a compliment.”
 
 I didn't say anything to that. His mother's his business. I looked back up at the beams running out over the windows. His arm was an inch from mine on that cold floor. I could feel the heat coming off it. I didn't move mine. I lay there and wanted him, sweaty and red-eared on his mother's floor in the middle of a job. My whole body knew where his arm was. If I moved an inch I'd stop being on a job. I'd just told Vili we were behind.
 
@@ -244,7 +244,7 @@ I'd seen him sit like that once before, at the rim, next to Owen, for an hour an
 
 My phone was in my back pocket. I'd slept almost two hours. There was a text from Owen I'd slept through.
 
-*Grandpa says it counts.*
+*Grandpa says my volcano counts.*
 
 Owen was sleeping over at my father's. My father had asked for him on Friday, for the videos. He doesn't say what he thinks until he's sure. He'd watched them seven times. Then he said it to my son, not to me. I lay there in a bed that wasn't mine with my son's text on my chest and my eyes stinging. I didn't wipe them. It was dark.
 
@@ -254,11 +254,9 @@ I didn't get up.
 
 “You owe me one,” I said.
 
-“Yes.”
+“Yes. Any line.”
 
 “Eight.”
-
-He didn't ask what I meant.
 
 He'd heard me say something about him to my sister that I hadn't said to him. I was owed one of his. I'd found the piano on that lanai. I'd been afraid ever since that eight was a second one. If he wanted a baby, that was the end of it. I'm forty-four. I'm done having kids. You can't strike that one with a pencil.
 
@@ -310,7 +308,7 @@ He didn't say Owen. He could have. It would have been easy. If he'd said he didn
 
 “Give me the card,” I said.
 
-He took it out of his shirt pocket and got up on his knees and handed it to me. I turned on the lamp clamped to the desk. We both squinted. On the back, in my pencil, the lines went down in order, one through six, all struck. Seven wasn't on it. He still couldn't tell me why. I wrote eight under six. *No kids. Wants them.* Then I drew the line through it.
+He took it out of his shirt pocket and got up on his knees and handed it to me. I turned on the lamp clamped to the desk. We both squinted. On the back, in my pencil, there were six lines, all struck. Seven wasn't on it. He still couldn't tell me why. I wrote eight at the bottom. *No kids. Wants them.* Then I drew the line through it.
 
 I handed it back. He looked at it for a while before he put it away.
 
@@ -336,7 +334,7 @@ He took my boots off. He got down off the bed to do it, kneeling on his mother's
 
 He didn't say anything at all for a long time. His watch was face down on the desk.
 
-So I didn't run it either. I'd run it last time, all of it. I'd liked that fine. This time I let him take as long as he took. It was a long time. His hands were careful until they weren't. My shirt went somewhere. His went on the floor with the card in the pocket. The air through the slider was cool on my skin where his mouth had just been. Every time I noticed it, he put his mouth back. He got my jeans off. When he was inside me he went still and looked at me for a long time. I was the one who couldn't wait.
+I didn't tell him what I wanted this time. Last time I had, in plain words. I'd liked that fine. This time I let him take as long as he took. It was a long time. His hands were careful until they weren't. My shirt went somewhere. His went on the floor with the card in the pocket. The air through the slider was cool on my skin where his mouth had just been. Every time I noticed it, he put his mouth back. He got my jeans off. When he was inside me he went still and looked at me for a long time. I was the one who couldn't wait.
 
 I kept count at first. I always do. What he'd given me, what I'd give back, how to even it. Somewhere in there I lost count. I didn't go back for it.
 

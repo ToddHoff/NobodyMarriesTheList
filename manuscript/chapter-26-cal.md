@@ -2,11 +2,15 @@
 
 **Cal**
 
-In the garage, after she said *Or nothing*, I asked her where she wanted to sign it. She said anywhere my office could not find me. There is no cell signal at Castle Rock. I told her there was a waterfall.
+“Where would you like to sign it?” I said across her tailgate.
+
+“Anywhere your office can't find you.”
+
+“Castle Rock has no cell signal,” I said. “There is a waterfall.”
 
 “I'll drive,” she said.
 
-She picked me up in Woodside at 4:47 that afternoon. Pancake watched us go from the front window. The park does not allow dogs.
+She picked me up in Woodside at 4:47 that afternoon, with three and a half hours of light left. She had changed her shirt since the garage. Her hair was down. Pancake watched us go from the front window. The park does not allow dogs.
 
 At the top of 84, where it crosses Skyline, she pulled in at Alice's Restaurant. It is a low wooden building at a crossroads in the redwoods. It was built in 1918 as a general store for loggers. Thirteen motorcycles were backed in along the front of it at one angle, their engines ticking as they cooled. The men who rode them stood around in leather with gray in their beards, holding coffee and pointing at each other's machines. There was an old silver Porsche with a man asleep in the passenger seat. Over the redwoods I could smell the grill.
 
@@ -24,11 +28,23 @@ At the top of 84, where it crosses Skyline, she pulled in at Alice's Restaurant.
 
 “Course you did.” She got out.
 
-She came back with two burgers in a paper bag and set them on my knees.
+She came back with a paper bag and set it on my knees. The bag was hot through my jeans and going clear in two places. A white box went on the dash. The cab filled up with garlic fries.
+
+“Every burger in there is named after a motorcycle,” she said. “I got you the Hog. Two patties. You've got a rock to climb.”
+
+“What did you get?”
+
+“The Harley. It has sausage on it.”
 
 “What do I owe you?” I said.
 
 “A waterfall.”
+
+I put it under the half a linguiça sandwich I had owed her since May 16. At the winery she had carried her own bag. At SFO she had carried hers and Owen's and let me carry Owen. Two hours before, across her tailgate, she had made me put my name in every place hers was. *Mutual. Or nothing.* Her own books ran one way.
+
+We ate on her tailgate in the lot, with the bikes ticking beside us. The Hog came apart in my hands. Jo ate the Harley bent over the paper so whatever fell would land in it. When she was done she wiped her fingers on my jeans.
+
+Skyline runs south along the top of the ridge, half an hour of it to the park. For the first miles the redwoods came down to the shoulder and met over the road. The light under them was green. They gave out all at once onto open hilltop, the grass gone gold in the sun, a few oaks standing in it. To the west the hills went down fold after fold to the Pacific. The ocean was silver in the late sun, with the fog lying offshore in a long white bank. Through the gaps on the other side was the valley where I made my money, flat and gray under its haze. The road went back into the trees and out again the whole way south. Jo drove with her window down and her elbow out. Every time the trees gave out, she looked west.
 
 At the entrance to the park a sign said the gate locks at sunset. Jo read it, drove past it and parked on the shoulder with two wheels in the dirt.
 
@@ -48,7 +64,7 @@ At 2:05 this afternoon, after her truck went down the ramp, I opened it and read
 
 I had not told Jo about the letters. They were owed to three other people.
 
-She turned to the second page. I watched her read it. She had changed her shirt since the garage. Her hair was down. I kept my hands in my pockets.
+She turned to the second page. I watched her read it. The wind off the ridge kept laying her hair across the page. She held it back with the hand that had the pencil. I kept my hands in my pockets.
 
 She stopped at section four and put the point of the pencil on it.
 
@@ -70,7 +86,7 @@ Section five was where I had copied her people onto my side. *Jo Silveira will s
 
 “I cannot sign for Abby,” I said. “She tells people what she thinks of me.”
 
-“Good.”
+“I like that about her.”
 
 She held out the pencil. I drew the line through *family members* in mine. My line was not as straight. She wrote her initials beside hers in square capitals, JS. I wrote CB beside mine. There was a gray smear of pencil along the side of her hand where it had dragged across the paper. I wanted to put my mouth there.
 
@@ -126,7 +142,7 @@ She sat on the tailgate and pushed one foot into a shoe.
 
 “It is a crash pad. It is what you land on when you come off.”
 
-It folds in half and has shoulder straps. It weighs ten pounds. I had the burgers in the shoe bag and was reaching for the pad when she lifted it off the seat and got her arms through the straps.
+It folds in half and has shoulder straps. It weighs ten pounds. I had the pie in the shoe bag and was reaching for the pad when she lifted it off the seat and got her arms through the straps.
 
 ***
 
@@ -144,7 +160,7 @@ Jo walked once around it. She put her head into the biggest cave and looked at t
 
 “Alone.”
 
-“Yes.”
+“Yes. It was the best part of the week.”
 
 She looked at the cave a little longer. Then she slid the pad off, crawled in, and sat with her back against the far wall and her knees up.
 
@@ -186,11 +202,11 @@ She laughed. She put her hand over her mouth and laughed into it.
 
 “You quoted me a waterfall off a job you did seventeen years ago,” she said.
 
-“Yes.”
+“Yes. You may adjust the estimate.”
 
 She stood at the rail with the pad on her back and looked at the dry streak a while longer. I looked at her. A strand of her hair was stuck to the chalk on her cheek, where she had pushed it back with her hand. I took it off with one finger. She let me.
 
-Goat Rock is a hundred feet of sandstone at the end of the ridge, a mile from the road. We got there at 7:58. Climbers rope up on the front of it. From the back there is a way to the top with hands and feet.
+Goat Rock is a hundred feet of sandstone at the end of the ridge, a mile from the road. We got there at 7:58, twenty minutes before the sun went down. Jo had been watching the light since the falls. Climbers rope up on the front of it. From the back there is a way to the top with hands and feet.
 
 She went first. I had planned to go first. She was at the top before I had decided where to put my second foot.
 
@@ -206,11 +222,7 @@ I put it away. I took off my watch and put it in my pocket too.
 
 She sat down on the rock with her knees up. I sat down beside her and opened the bag. Her shoulder was against my arm. The pad was behind us.
 
-Somebody at Alice's had written on the foil in marker. Mine said BMW. Hers said JALOPY.
-
-“It's got Wagyu,” Jo said. “Don't get used to it.”
-
-I had finished mine before she had hers unwrapped. She looked at my empty foil and gave me half of hers.
+It was a slice of cherry pie from Alice's, with one fork in the box. She ate the first bite and handed me the fork. We passed it back and forth until the box was empty.
 
 “You told me about the red one,” she said.
 

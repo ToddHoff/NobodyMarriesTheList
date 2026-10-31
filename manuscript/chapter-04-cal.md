@@ -14,7 +14,7 @@ My grandfather bought it new in 1960 for $21,500. I own a watch that cost more. 
 
 My mother worked the cafeteria line at that school for thirty years. Every day she handed me my tray, I thanked her exactly as I thanked the woman next to her.
 
-She paid $612 a month on the house until 2012, when I paid it off. I had considered that the end of the subject.
+In 1990 she took a loan against it. She paid $612 a month on that until 2012, when I paid it off. I never asked her what the money had been for. I had considered that the end of the subject.
 
 At 6:21 my phone rang. It was Dawn Pruitt.
 

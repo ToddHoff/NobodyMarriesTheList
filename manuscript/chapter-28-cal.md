@@ -16,7 +16,7 @@ On the rock she had told me to say it again when my pulse was normal. At her hoo
 
 She had told me when to say it. I had said it when she told me to. What came after that, she had not said. I had nothing to work from.
 
-On Sunday at her counter I had read *skip Aug* in her handwriting under her NOV 2036. In July she had turned that statement around so I could read it right side up. On Sunday she turned it face down. Nineteen hundred dollars was not going on her house in August. She had not said why.
+On Sunday at her counter I had read *skip Sept* in her handwriting under her NOV 2036. In July she had turned that statement around so I could read it right side up. On Sunday she turned it face down. Nineteen hundred dollars was not going on her house in September. She had not said why.
 
 At 5:38 I carried Pancake up the last three steps. He cannot do those anymore. He put his chin on my shoulder while I did it, the way he does in the car.
 
@@ -26,7 +26,7 @@ Janice came in at 8:30 with a folder.
 
 “There's a charge from a shop in Carmel,” she said. “Saturday. A shirt, pants, a sweater, socks and a toothbrush. Delivered to Big Sur. And a bag of dog food.”
 
-“Yes.”
+“Yes. It was a good Saturday.”
 
 She looked at me over the folder.
 
@@ -42,7 +42,7 @@ At 11:52 Remy put a line on my screen.
 
 I typed *I will decide on Friday.*
 
-On Thursday night on 84 it had told me how the other eleven went. Each of them had ended within fourteen days of a large gift. I counted fourteen days from Friday on the edge of my desk with one finger. It came to August 21. Abby moves into her dorm on the eighteenth. The last Saturday at my mother's house is the twenty-second.
+On Thursday night on 84 it had told me how the other eleven went. Each of them had ended within fourteen days of a large gift. I counted fourteen days from Friday on the edge of my desk with one finger. It came to August 21. Abby moves into her dorm on the eighteenth. The last Saturday at my mother's house is the twenty-second. In May I had told Jo I wanted it empty before Abby left. I had the wrong month.
 
 I opened her thread. It said what it had said at 5:04.
 
@@ -428,7 +428,7 @@ I had a board call at eleven and two people at one. I did both. Nobody on the ca
 
 Between them I sat with it.
 
-In July her last payment had been November 2036, when she would be fifty-five. On Sunday I had found *skip Aug* under it, which moved it to December. A transmission was four months of her nineteen hundreds. Hillsborough had taken another two and a half. On Sunday on a deck over the canyons she had started to stack our plates until I put my hand over hers. Her father was driving her loads on his knees so that she would not have to ask anyone for a driver.
+In July her last payment had been November 2036, when she would be fifty-five. On Sunday I had found *skip Sept* under it, which moved it to December. A transmission was four months of her nineteen hundreds. Hillsborough had taken another two and a half. On Sunday on a deck over the canyons she had started to stack our plates until I put my hand over hers. Her father was driving her loads on his knees so that she would not have to pay a temp driver on top of the transmission.
 
 In June, in my mother's back yard, Owen asked me nine questions. Question six was whether I take days off. He told me his mother had not had one since he was born. He told me she would take one when the house was paid. He told me that in November she had fallen asleep on her kitchen floor with the sponge in her hand. He had put the blanket on her and gone to bed. In Hawaii she took three. I was there for all of them.
 

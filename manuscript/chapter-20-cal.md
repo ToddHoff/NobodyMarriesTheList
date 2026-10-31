@@ -2,17 +2,17 @@
 
 **Cal**
 
-At 4:58 on Thursday morning I turned my watch face up. It had been face in since the Saturday before, when Jo turned it over in her bed. The watch had my board meeting at nine.
+At 4:58 on Thursday morning I turned my watch face up. It had been face in since the Saturday before, when Jo turned it over in her bed. The watch had my staff meeting at nine.
 
-Since Saturday night I had not known the time without asking someone. On Maui I asked Owen. He told me to the minute, then how many minutes it was until we could go back in the water. On the Big Island the time was whatever the volcano was doing. I would have predicted that not knowing would bother me. I had gone two whole days without wanting to know.
+Pancake was waiting at the door. Rita had walked him for three days. He took me down the drive to the gate at a pace that made his position on that clear. While he inspected the bottom of his post, I nearly asked Owen what time it was. On Maui Owen had told me to the minute, with the minutes left until we could go back in the water. On the Big Island the time had been whatever the volcano was doing.
 
-Pancake was waiting at the door. Rita had walked him for three days. He took me to the end of the road and back at a pace that made his position on that clear.
+I had slept four hours and fifty minutes. I did not need the watch to tell me. My body was still on a lanai with the doors open to the water.
 
-I had slept four hours and fifty minutes. Nothing had to tell me. On Monday night on Maui I slept six hours with the doors open to the water. On Wednesday I was up at four, because my body was still in Woodside with the dog. This morning, back in Woodside with the dog, my body wanted the water.
+It was Thursday. On Maui Gil would be carrying last week's food out to his truck for the pantry. I knew which drawer the sweet bread went in.
 
-Today, on Maui, Gil would carry last week's food out to his truck for the pantry and fill the refrigerator again. I knew which drawer the sweet bread went in.
+At 6:10 I opened my laptop at the kitchen counter. There were 1,904 unread messages. Janice had flagged eleven and numbered them in the order she wanted them answered. The first was the caterer, asking whether we wanted the salmon again. The eleventh was from Janice. It said *Welcome back.* None of the eleven needed me. I answered them in her order anyway.
 
-At 6:10 I opened my laptop at the kitchen counter for the first time since Monday. There were 1,904 unread messages. Janice had been through all of them on Tuesday and left eleven for me, flagged, in the order she wanted them answered. I read the eleven twice before I answered any of them. None of them needed me. Janice flags what needs me. That week nothing had. She had flagged eleven anyway, so that I would have something to do with my hands on Thursday morning. I answered them in her order. It took fifty-one minutes. Twenty-nine hours before, I had been sitting on the ground at four thousand feet.
+The sweatshirt Jo had packed for me was on the stool beside me. It still smelled like a match right after you strike it.
 
 Janice was at my door at 8:30 with her glasses pushed up into her hair.
 
@@ -48,7 +48,7 @@ Jo did not write on Thursday. I had not expected her to. She had three days of w
 
 At 8:52 on Friday night my phone lit up.
 
-*Tomorrow, 7. It's going to be hot. Bring water for the dog.*
+*Tomorrow, 7. It's going to be hot. The dog gets the hall. It's the coolest room.*
 
 I read it three times. She had been thinking about my dog.
 
@@ -66,13 +66,13 @@ That was as close as she was going to come. I took it. I went to bed.
 
 ***
 
-On Saturday morning the car said seventy-one degrees on Remington at 6:52. I had parked across the street, where I have parked since June 6. I had on number thirty-eight. I had a gallon of water and a bowl for Pancake, and my lunch, which I had made at 5:40 with the butter out to the edge. I had decided in the car that I would not bring up Hawaii unless she did.
+On Saturday morning the car said seventy-one degrees on Remington at 6:52. I had parked across the street, where I have parked since June 6. I had on number thirty-eight. I had Pancake's bed under one arm, and my lunch, which I had made at 5:40 with the butter out to the edge. I had decided in the car that I would not bring up Hawaii unless she did.
 
 It was the first Saturday on Remington since June 27. July is her busy month. She had booked paying loads on the Fourth, the eleventh and the eighteenth.
 
 Her truck turned onto Remington at 6:59. Vili was driving. He backed it in on one pass and got down. Jo came around the front with the clipboard already in her hand.
 
-Vili went to the back and pulled the door up. He looked at the house, and at me on the curb with a gallon of water, and at her.
+Vili went to the back and pulled the door up. He looked at the house, and at me on the curb with a dog bed, and at her.
 
 “Forty minutes down 101,” he said, “for a man who takes ten minutes on a lamp.”
 
@@ -84,9 +84,9 @@ He went for the runners. On Monday he had run both her trucks in Burlingame whil
 
 I could have paid for his Saturday. I had the number before he reached the runners: a day at time and a half, and something on top for Burlingame. I kept it to myself. He had given up his Saturday for her, not for me.
 
-Jo looked at the water.
+Jo looked at the bed.
 
-“Good,” she said. “Put it in the shade. Your old room, then the hall.”
+“Good,” she said. “Hall. We start in your old room.”
 
 “Where is Owen?” I said.
 
@@ -102,7 +102,7 @@ I looked at the room. It held a twin bed, a desk with a lamp clamped to it, and 
 
 She put green on them without a word and went on to the desk.
 
-My mother's house is glass on three sides. It was built in 1960. Nobody ever put air conditioning in it. By ten the thermostat in the hall said eighty-eight. The slab under our feet was the coolest thing in the house. Pancake lay flat on it in the hall with his legs out behind him.
+My mother's house is glass on three sides. It was built in 1960. Nobody ever put air conditioning in it. By ten the thermostat in the hall said eighty-eight. The slab under our feet was the coolest thing in the house. Pancake lay flat on it in the hall, beside his bed, with his legs out behind him.
 
 ***
 
@@ -174,7 +174,7 @@ It was the third time I had heard that sentence in a week. Her sister had said t
 
 “Did you ride it?” Denise said. “The blimp.”
 
-“It's not a blimp. It's got a frame inside.” I heard Jo's ice. “I rode it.”
+“It's not a blimp. It's got a frame inside.” I heard Jo's ice. “I *flew in it*.”
 
 It was my sentence. I said it in her kitchen on Sunday, when she called it a blimp.
 
@@ -278,7 +278,7 @@ At 11:45 I walked Denise to her car. She put the tote on the passenger seat and 
 
 “I do not know.”
 
-It was true. Remy had a plan for what came after. I had not read it. What I had was a house to empty and two Saturdays to empty it in. When it was empty, there would be nothing in it that needed a mover.
+It was true. Remy had a plan for what came after. I had not read it. What I had was a house to empty and two Saturdays to empty it in, the fifteenth and the twenty-second. Jo had paying loads on the first and the eighth. When it was empty, there would be nothing in it that needed a mover.
 
 She looked at me for some time. She has her sister's eyes. Hers move more.
 
@@ -304,11 +304,11 @@ She poured. I waited for it.
 
 “You want to know that?”
 
-“Yes.”
+“Word for word.”
 
-“You've never asked.”
+“You've never asked. Every time, you asked me what to send.”
 
-“No.”
+“I am asking now.”
 
 She was quiet long enough that I looked at the screen to see whether the call had dropped. It had not. Across the street Vili came out of my mother's house with a lamp in each hand and looked at my car.
 
@@ -330,19 +330,17 @@ I counted while she read. Three of them had said generous, a fourth very generou
 
 “Cal. You know what a woman means when the best thing she can tell me about a man after four months is that he was generous?”
 
+It sounded like a number that was too good. I could not find what was wrong with it.
+
 “No.”
 
-“She means she never met him. She met the packages.”
+“It means she spent four months with Remy.”
 
-The car was hot. I had left the windows up. Across the street Vili had put the lamps on the truck and gone back in, leaving the front door of my mother's house open on the atrium.
-
-I went down the seven. I could not see their faces. I could see the inn in Napa, and the boxes. Remy had chosen the boxes. I had approved them in about a second each. Each of the seven had written to thank me for them. I had approved the replies.
+I ran the seven. I could not see their faces. Every one of them was the same weekend in Napa. Remy had chosen the boxes. I had approved them in about a second each. Each of the seven had written to thank me for them. I had approved the replies.
 
 “What do I do with that?” I said.
 
 “You don't have to do anything with it. You asked me what they said.” She poured. “Let me ask you one. What does Joanna do when you're wrong?”
-
-I did not have to look for it.
 
 “On the first Saturday I used her tape gun wrong and cut my thumb,” I said. “She said, let me see it. She taped it and gave me thirty-six more boxes to build.”
 
@@ -398,7 +396,7 @@ She let the tape run back into the case. It went in with a snap.
 
 “I heard all of it from the milk.”
 
-She looked at the frames instead of me. Her face was still red at the top of her collar, with sweat at her hairline. The hall was the hottest place in the house. It was three feet wide. I was close enough to see the peeling place on her nose and the freckles under it that had not been there two weeks ago.
+She looked at the frames instead of me. Her face was still red at the top of her collar, with sweat at her hairline. By noon even the hall was hot. It was three feet wide. I was close enough to see the peeling place on her nose and the freckles under it that had not been there two weeks ago.
 
 “Then you heard me say you threw up.”
 
@@ -436,7 +434,7 @@ Abby looked at her for a second. Then she smiled with her whole face. I had not 
 
 “My father used his hand,” Jo said.
 
-They were in the atrium for ten minutes. Abby told Jo she moves into her dorm at Cal Poly on the eighteenth of August, for architecture. I had it as September. It was on my refrigerator. I had not read it. It was twenty-four days. I had been counting on September without knowing I was counting on anything.
+They were in the atrium for ten minutes. Abby told Jo she moves into her dorm at Cal Poly on the eighteenth of August, for architecture. I had it as September. It was on my refrigerator. I had not read it. It was twenty-four days.
 
 She wanted to know about the house. Jo has moved more Eichlers than Abby had been inside. Jo showed her where the posts carry the roof and where the beams run out past the windows. She told her the heat was hot water in copper pipes in the slab, so never to let anybody drill the floor.
 
@@ -512,7 +510,7 @@ She hung the robe back on its hook over all of it.
 
 “You were here for his,” she said.
 
-“Yes.”
+“Yes.” I put my finger on her nine, in my mother's ballpoint.
 
 I could have found out where I was for every one of her lines. It is all on a calendar. Janice would have it by the end of the day. I did not need Janice for her nine. On most days in 2017 I was somewhere with a podium.
 
