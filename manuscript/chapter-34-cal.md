@@ -92,6 +92,8 @@ She wiped her fingers on her jeans. Then she opened her own bag and took out her
 
 At 1:35 in the afternoon the rest of the green was in the truck: both tables and the chairs, the bowls, nine boxes from the kitchen marked in Jo's capitals.
 
+It was the tenth Saturday of ten.
+
 “Walk-through,” Jo said, and went into the house by herself.
 
 Last Saturday she had gone into the house by herself at the end and stayed nine minutes. I had not known what she did in there. I stood in the atrium where she had left me and watched her through the window.
@@ -452,7 +454,7 @@ I would have signed it on the hood of her truck. It would have let me give her t
 
 I have sat across tables from people telling me yes since I was twenty-three. I know what they do with their hands when they mean it. She had both of hers at her sides, open.
 
-I did not have a sentence. There was no next thing. I said the only thing I had.
+I did not have a sentence ready. I had two words.
 
 “Thank you.”
 
@@ -545,6 +547,8 @@ Jo shut her eyes.
 “What sentence?”
 
 “*You, Calvin. Not Janice.*”
+
+“I never thanked her,” I said. “Not once, out loud. I sent her things so I would not have to call.”
 
 She opened her eyes and got up off the hearth. I thought she was going out to her truck. She went into the kitchen, to the yellow phone, and she reached up and slid it up off its plate, and unclipped the cord from the jack with her thumbnail, and wrapped the cord around it twice. She came back and held it out to me in both hands.
 
@@ -670,7 +674,7 @@ On the walk she stopped.
 
 “Walk me to my truck,” Jo said.
 
-I walked her to her truck. It was forty feet. Her father's name was on the door. She opened it and set the boxes on the seat, with the clipboard on top, face up. I read it upside down, because I cannot help it.
+I walked her to her truck. It was forty feet. Her father's name was on the door. She opened it and set the boxes on the seat, with the clipboard on top, face up. I read it, because I cannot help it.
 
 Under *GARAGE. LOCKED. OWNER SAYS EMPTY.* she had written in pencil that afternoon: *1 PIANO. OWNER CALLED IT.*
 

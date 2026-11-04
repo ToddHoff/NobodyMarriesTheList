@@ -406,7 +406,7 @@ She turned her head. She was quiet for a while.
 
 “Why's it on there?”
 
-I knew why. The reason was across the street from my mother's house. I had walked past it with the dog that morning.
+I knew why. The reason was across the street from my mother's house. I had walked past it with Pancake that morning.
 
 “I cannot tell you yet,” I said.
 

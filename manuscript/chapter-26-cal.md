@@ -262,7 +262,7 @@ I have a word for most things. Since May I had been trying to find the one for t
 
 I had nothing written down. I bring a card to everything that matters and run what is on it until I know where each line will land. Everything I have said that mattered since 2009 I said first to Janice, or to a room, or to the mirror in a hotel bathroom. The only card I had on that rock was in my shirt pocket. It was hers. Seven of my lines were struck through on the back of it in her pencil.
 
-I could not run this one. She might laugh into her hand, as she had at the falls. She might say nothing at all, get up and drive me home down Skyline. I would sit beside her for forty minutes with it said. In May Remy had told me how long my relationships last. It was four point one months. It was twelve weeks to the day since the Pied Piper. My pulse was in my neck. I put my hand flat on the rock beside her. It was still warm.
+I could not run this one. She might laugh into her hand, as she had at the falls. She might say nothing at all, get up and drive me home down Skyline. I would sit beside her for forty minutes with it said. In May Remy had told me how long my relationships last. It was four point one months. It was twelve weeks to the day since the Oak. My pulse was in my neck. I put my hand flat on the rock beside her. It was still warm.
 
 At 8:19 I tried the plain word. It held.
 

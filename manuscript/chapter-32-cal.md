@@ -2,7 +2,7 @@
 
 **Cal**
 
-At 2:06 on Tuesday morning I was sitting on the floor of the lobby at SAGE, on Charter Street in Redwood City, with my phone in my hand. My dog was on the other side of a door with a keypad on it.
+At 2:06 on Tuesday morning I was sitting on the floor of the lobby at SAGE, on Charter Street in Redwood City, with my phone in my hand. Pancake was on the other side of a door with a keypad on it.
 
 There were eleven chairs. I was not in any of them. I had carried him in from the car at 1:52 and put him on the front counter, because there was nowhere else to put him. A woman in blue scrubs came around the end of the counter with a gray stretcher and said his name before I had told her what it was. It was on his tag. Two of them took him through the door. I sat down on the floor beside it. That was as close as they would let me go.
 
@@ -204,7 +204,7 @@ She nodded. She pulled her knees up and put her arms around them. On the televis
 
 “One at a time. He did them.”
 
-I knew what she was doing. She does it in a house before she touches anything. She walks it first and asks the owner where the heavy things are and what is wrong with the stairs. I had watched her do it in my mother's house in May with a clipboard against her chest. She was doing it with my dog.
+I knew what she was doing. She does it in a house before she touches anything. She walks it first and asks the owner where the heavy things are and what is wrong with the stairs. I had watched her do it in my mother's house in May with a clipboard against her chest. She was doing it with Pancake.
 
 I did not say anything about the envelope on my hall table.
 
@@ -448,7 +448,7 @@ I had wanted to ask her since the bar. I had never asked.
 
 “What did they do?” Dawn said.
 
-“They learned my schedule. My dog's name. Abby's.”
+“They learned my schedule. Pancake's name. Abby's.”
 
 “And you?”
 
@@ -506,7 +506,7 @@ I sat on the step.
 
 I had sent Jo five hundred and twenty-one thousand dollars from my desk. It took less than a minute.
 
-She had sat on a hospital floor at two in the morning in my fleece and put her hand on my dog.
+She had sat on a hospital floor at two in the morning in my fleece and put her hand on Pancake.
 
 I knew which one I was. I had not done the work.
 
@@ -530,7 +530,7 @@ I heard her breathe once, the way my mother did on the voicemail before *Calvin*
 
 At 6:56 that morning I pulled into Stephanie's driveway in Menlo Park in a clean shirt. Abby was on the front step with one bag and her phone, her mother behind her in the door with her arms folded, in a sweater, with her sleeves turned back twice.
 
-Abby came down the walk and got in and put the bag between her feet. She looked at the back seat, at the lamp belted in, and at the empty place on the seat where the dog rides.
+Abby came down the walk and got in and put the bag between her feet. She looked at the back seat, at the lamp belted in, and at the empty place on the seat where Pancake rides.
 
 “Where's Pancake?”
 

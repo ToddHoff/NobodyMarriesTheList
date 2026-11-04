@@ -30,7 +30,7 @@ Vili and Manny took the cooler out to the tailgate. Vili looked at me, and then 
 
 I eat apart from the crew on every job, because they need forty-five minutes a day to talk about me. They've earned it.
 
-I picked the atrium for the bench and the sun. Best of all, the dog was on the far side of the house.
+I picked the atrium for the bench and the sun. Best of all, Pancake was on the far side of the house.
 
 From the bench I could see straight through the living room, in one wall of glass and out the other, to the back yard. He was lying against the back door with his nose on the track. He was an old golden retriever, the pale kind, about the color of his name, with a white face. That put two panes of glass and a living room between us. That's about right for me and a dog.
 
@@ -38,15 +38,15 @@ He had been out there since before I came. Twice that morning I had seen Cal go 
 
 He went out again while I unwrapped my sandwich. This time I watched.
 
-He turned on the hose bib by the fence and let it run until it was cold. Then he crouched down in his new boots with his two hands cupped together for the dog to drink out of. He filled them again. He did it five times, with his cuffs still turned back.
+He turned on the hose bib by the fence and let it run until it was cold. Then he crouched down in his new boots with his two hands cupped together for Pancake to drink out of. He filled them again. He did it five times, with his cuffs still turned back.
 
-Early that morning, with the neighbor's boxes on the hearth, I had turned around at that sink to ask him about the cabinets. His boots were on the hall carpet with the toes against the aluminum strip. I looked at the yellow phone on the wall. I couldn't have told you why. It was the one thing in that kitchen that looked like somebody had used it every day. I didn't ask him about it then. He hadn't set foot past that strip since.
+Early that morning, with the neighbor's boxes on the hearth, I had turned around at that sink to ask him about the cabinets. His boots were on the hall carpet with the toes against the aluminum strip. I looked at the yellow phone on the wall. It was the one thing in that kitchen that looked like somebody had used it every day. I didn't ask him about it then. He hadn't set foot past that strip since.
 
 There was a kitchen thirty feet from him with thirty bowls in it. He wasn't going in there for one.
 
 That was seven. It went in the wrong column.
 
-How a client waters his dog is no business of mine. Lunch is the one forty-five minutes in my day I don't owe anybody. I sat on the bench with one end of the foil open and watched him fill his hands again.
+How a client waters Pancake is no business of mine. Lunch is the one forty-five minutes in my day I don't owe anybody. I sat on the bench with one end of the foil open and watched him fill his hands again.
 
 I put my sandwich down and went into the kitchen. It's a job site. I can touch what I like as long as it stays in the house. In any kitchen a woman set up before 1980, the mixing bowls are left of the stove, second shelf, nested by size. I took the middle one and filled it at the sink.
 
@@ -58,7 +58,7 @@ I slid the back door open six inches and pushed the bowl through with my boot.
 
 He looked at the bowl, and then at the six inches. His hands were dripping.
 
-“Thank you.”
+“Thank you. I did not know where she kept them.”
 
 “It goes back in the cabinet after.”
 
@@ -188,9 +188,9 @@ I was twenty-six. It was a garage in Pacifica, where the owner said “he's frie
 
 “None of them will. Sit down, Cal.”
 
-Cal sat. The dog let out a breath that went on for a while and gave me more of his weight. He was warm through my jeans. I could feel his ribs going in and out against the exact place.
+Cal sat. Pancake let out a breath that went on for a while and gave me more of his weight. He was warm through my jeans. I could feel his ribs going in and out against the exact place.
 
-Cal tore a corner off his half and tossed it across the atrium. My father's linguiça landed on the pavers. The dog didn't look at it.
+Cal tore a corner off his half and tossed it across the atrium. My father's linguiça landed on the pavers. Pancake didn't look at it.
 
 “He does this,” Cal said. “He finds the one person in a room who would rather he did not and leans on them.”
 
@@ -206,23 +206,23 @@ Cal tore a corner off his half and tossed it across the atrium. My father's ling
 
 “He held still for forty minutes. He had come to ask me for money.”
 
-With a dog on my bad leg and my heart going, I laughed. The dog didn't move.
+With a dog on my bad leg and my heart going, I laughed. Pancake didn't move.
 
 I did not pet him. I ate the rest of my half with a dog against my leg and didn't move the leg.
 
-Every part of me that had been in that garage in Pacifica wanted to move that leg. I could feel where each stitch had gone in. If I moved it, Cal would be up off that bench to take his dog off me. I had just told him to sit. I counted the dog's breathing against my calf. Somewhere past thirty my heart quit going like the white truck on a hill.
+Every part of me that had been in that garage in Pacifica wanted to move that leg. I could feel where each stitch had gone in. If I moved it, Cal would be up off that bench to take Pancake off me. I had just told him to sit. I counted Pancake's breathing against my calf. Somewhere past thirty my heart slowed down.
 
-Cal Brennan was looking at my shin and his dog with the look from the tape measure. He had the sense not to say anything.
+Cal Brennan was looking at my shin and Pancake with the look from the tape measure. He had the sense not to say anything.
 
-I'd first seen that look in a hotel bar, with his hand on top of my head. I had stopped hearing the bar. Now I stopped hearing Vili and Manny out at the tailgate. My face went hot. I kept my eyes on the foil in my lap.
+I'd first seen that look at the Oak, with his hand on top of my head. I had stopped hearing the bar. Now I stopped hearing Vili and Manny out at the tailgate. My face went hot. I kept my eyes on the foil in my lap.
 
 “Eleven forty-five,” I said. “You were done at eleven.”
 
 “I moved my one o'clock.”
 
-He didn't get up, and neither did the dog.
+He didn't get up, and neither did Pancake.
 
-I could have sent him home. His four hours were up. The coats could sit with no tape on them till next Saturday. With any other client that's what I'd have done. I sat there with his dog on my bad leg and didn't want him to go. I wasn't about to say so.
+I could have sent him home. His four hours were up. The coats could sit with no tape on them till next Saturday. With any other client that's what I'd have done. I sat there with Pancake on my bad leg and didn't want him to go. I wasn't about to say so.
 
 “Then we do the coats,” I said.
 
@@ -234,11 +234,11 @@ I had told Dawn no eight days before. At the counter with the cereal I went back
 
 ***
 
-The phone went that night, after I had my boots off.
+The phone buzzed that night, after I had my boots off.
 
 I didn't know the number, but I knew whose it was before I opened it. My cell number was on the paperwork I had given him that morning.
 
-*Thank you for today. At eight you read three labels I would rather nobody had read. You didn't look at me once. Pancake meant no offense; he leans on the people he intends to keep. I owe you half a sandwich. I hope your boots are off. Cal*
+*Thank you for today. At eight you read the slips on three boxes I would rather nobody had read. You didn't look at me once. Pancake meant no offense; he leans on the people he intends to keep. I owe you half a sandwich. I hope your boots are off. Cal*
 
 I read it standing up. Then I sat down and read it again.
 
@@ -246,7 +246,7 @@ It was right. The sweet peas had been right too. It asked me for nothing.
 
 There was a semicolon in it. I've been getting messages from men since I was sixteen. That was my first semicolon.
 
-At lunch he'd said the dog hadn't told him why. By that night he knew. *He leans on the people he intends to keep.* In three years nobody had said anything that nice about me. He'd blamed it on the dog.
+At lunch he'd said Pancake hadn't told him why. By that night he knew. *He leans on the people he intends to keep.* In three years nobody had said anything that nice about me. He'd blamed it on Pancake.
 
 I read it a third time. That's when I got annoyed. I had gone through a woman's coats all morning and kept my face shut about every one. I had done fine. Now I was on a kitchen stool in my socks with my stomach doing what it did at the bar. A man who says “noted” had no business writing that.
 
@@ -264,6 +264,6 @@ His answer came back in under ten seconds.
 
 I laughed out loud in an empty house. That one I would have known in the dark.
 
-He'd kept my count. He had carried it around for a week and handed it back to me with the next number on it. I sat on the stool with my face hot and read the long one and the short one again.
+He'd kept my count. He had carried it around for a week and handed it back to me with the next number on it. I sat on the stool with my knees pulled up and read the long one and the short one again.
 
 I turned the phone face down on the counter. I had seen that done once.

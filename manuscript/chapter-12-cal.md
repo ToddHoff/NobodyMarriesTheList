@@ -2,13 +2,13 @@
 
 **Cal**
 
-On Saturday Jo's son asked me nine questions in my mother's back yard, with my dog's leash in his hand.
+On Saturday Jo's son asked me nine questions in my mother's back yard, with Pancake's leash in his hand.
 
 Eleven minutes earlier his mother had taken hold of my shirt in the hall and told me to bend down. I could still feel where her hand had been, two buttons below the collar. I answered all nine with my back to the house, because my face was not under control.
 
 He read them off his phone.
 
-“Question one. Can I pet your dog?”
+“Question one. Can I pet Pancake?”
 
 “Ask Pancake. Do you know how?”
 
@@ -30,7 +30,7 @@ He is nine. My daughter was nine in 2017. I was not here for that line either.
 
 I remembered the last of mine. I was twelve and told her I was too old for it. She made me stand there in my socks anyway. Fourteen years later she started a column for Abby next to mine. She never mentioned it in the four times I made the drive in her last five years.
 
-Jo watched from inside the sliding door with her arms crossed. Her hair was half out of its tie. My hand had been in it in the hall. She watched her son and the dog, except twice, when it was me. I counted.
+Jo watched from inside the sliding door with her arms crossed. Her hair was half out of its tie. My hand had been in it in the hall. She watched her son and Pancake, except twice, when it was me. I counted.
 
 When Pancake had done his two laps he went to the door and leaned on it, where her leg was.
 
@@ -38,7 +38,7 @@ When Pancake had done his two laps he went to the door and leaned on it, where h
 
 “He leans on the one person in a room who would rather he did not.”
 
-Owen looked from the dog to his mother.
+Owen looked from Pancake to his mother.
 
 “Question six,” he said. “Do you take days off?”
 
@@ -166,7 +166,7 @@ Janice had brought Jo the long way around. They were standing at the edge of the
 
 “I counted thirty-four gifts in your mother's hutch,” she said, quietly. “Every one said *Love, Cal*. None of them were from you. That was.”
 
-My ears went hot. I put my hands in my pockets, which I do not do.
+I looked around for something to approve. I put my hands in my pockets, which I do not do.
 
 She looked down the floor and took in the desks and the stairs.
 
@@ -230,7 +230,7 @@ Janice looked at her for some time before she nodded. In seventeen years I have 
 
 “There are two. I had to start a second.”
 
-Jo laughed. I felt it under my sternum, where I had felt it at dinner. She turned to me still smiling, with the lines at the corners of her eyes that a billboard would have taken out. I had been waiting since Saturday to see them again.
+Jo laughed. She turned to me still smiling, with the lines at the corners of her eyes that a billboard would have taken out. I had been waiting since Saturday to see them again.
 
 “Owen got through nine of his questions on Saturday,” she said. “He sent me with the other two.”
 
@@ -256,7 +256,7 @@ She nodded, the way she nods when a count comes out right, and started to turn b
 
 It was true enough to let me walk her to the elevator and keep Saturday. All I had to do was stop talking.
 
-The line about the dog was Janice's. Jo had used it to answer her son. Owen checks what he is told.
+The line about Pancake was Janice's. Jo had used it to answer her son. Owen checks what he is told.
 
 “Janice does,” I said.
 
@@ -276,9 +276,9 @@ Jo stopped smiling. Her eyes stopped first. Her mouth took about two seconds lon
 
 Jo turned to Janice.
 
-“The line about the dog,” Jo said.
+“The line about Pancake,” Jo said.
 
-“He told me he did not know why the dog does it,” Janice said. “I had a guess.”
+“He told me he did not know why Pancake does it,” Janice said. “I had a guess.”
 
 “The one about a house answering your footsteps.”
 
@@ -320,7 +320,7 @@ I did not have an answer. She waited for one, then quit waiting.
 
 Janice paused. It was the eighth time in seventeen years.
 
-“Ms. Silveira,” she said. “He told me every one of those things. The labels, the dog, your father's chair. I wrote them down.”
+“Ms. Silveira,” she said. “He told me every one of those things. The labels, Pancake, your father's chair. I wrote them down.”
 
 “I know what he told you,” Jo said. “I was there.”
 

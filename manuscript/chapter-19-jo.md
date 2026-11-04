@@ -84,7 +84,7 @@ I don't count the two days I took when my mother died, or the one I take every y
 
 “That's not the point.”
 
-He waited. He's gotten good at waiting since May.
+He waited. He's gotten good at waiting.
 
 I thought about Vili running both trucks in Burlingame, and Denise on the phone with the client when he ran late. I thought about my son at the window of a zeppelin. I thought about three days.
 
@@ -160,13 +160,9 @@ There was a roof, wide and low, with dark wood under it and black stone walls on
 
 A wind came off the water through the gap, warm and salty, and lifted my hair off my neck on its way out to the gate. I've never been in a house that let the weather walk through it.
 
-Owen touches a doorframe twice going into any house. There was no frame. He touched the stone twice.
-
 The floor was koa, a gold wood with the grain running through it in waves. The boards were a foot wide and twenty feet long. Each board was most of a tree. The living room ran sixty feet. On the ocean side it had no wall. The doors were pocket doors, twelve feet high. Every one of them was slid back into the wall. The room went straight out onto a stone terrace. The terrace went out to a lawn. The lawn went down to a strip of white sand. The sand went into water so clear I could see the rocks on the bottom from the house. Past the rocks the water turned blue, then a blue so dark it was nearly purple. Out in the purple a little island lay in a half circle, like a bangle somebody had taken off and left on a dresser. Behind it was a big brown island with nothing on it at all.
 
 My bag slid off my shoulder onto the koa. I didn't check the floor for a scratch.
-
-“You could back a truck in here,” I said, “and not touch a thing.”
 
 Cal stood beside me with his hands behind his back. He looked at his own living room like a client on a walkthrough. It was the first time he'd seen it too.
 
@@ -188,11 +184,11 @@ It was my first day off in nine years. I walked his house like I was going to qu
 
 I opened every door. I do that before I give back keys.
 
-Five bedrooms, every bed made with the corners tucked. Nobody had ever sat on one to take off a shoe. A closet of beach towels folded in thirds. Good towels in every bathroom. Not one of them had ever been wet. I've cleared two hundred houses. Everybody has good towels nobody uses. His mother had six. He had a house of them.
+Five bedrooms, every bed made with the corners tucked. Nobody had ever sat on one to take off a shoe. A closet of beach towels folded in thirds. Good towels in every bathroom. Not one of them had ever been wet. He had a house of them.
 
 “This one's his,” Gil said, at the last door.
 
-The big bedroom had no wall on the ocean side either. The bed faced the water. The pillows had never had a head on them. The closet was bigger than my kitchen. The only thing hanging in it was a white robe with the tag still on the sleeve.
+The big bedroom had no wall on the ocean side either. The bed faced the water. The pillows had never had a head on them. The closet was bigger than my kitchen. The only thing hanging in it was a white robe, with the belt tied in a bow at the front the way a hotel leaves it.
 
 A library. Floor to ceiling, with a ladder on a rail. I took a book down and opened it an inch. The glue in the spine crackled. Nobody had ever opened one of them. I put it back.
 
@@ -208,15 +204,15 @@ The pool had no far edge. The water ran to a stone lip and went over. Past the l
 
 I looked over the lip. There was the trough, and a grate, and the pump housing tucked in under the lawn where you'd never see it. Whoever built it had thought about where the water went. I'd have liked to shake his hand.
 
-I've done houses in Atherton that yell at you about what they cost. This one didn't say a word. Somebody with taste had built it. Then nobody had come.
+I've moved houses in Atherton that yell at you about what they cost. This one didn't say a word. Somebody with taste had built it. Then nobody had come.
 
-The refrigerator was full. Milk with a Thursday date. A papaya cut in half under plastic. Portuguese sausage, which they put on everything here. A loaf of Portuguese sweet bread in the drawer, the same kind my father buys.
+The refrigerator was stocked for five people. Milk with a Thursday date, two gallons of it. Two dozen eggs. A ham, steaks in butcher paper, a whole fish wrapped in paper. Cheese, butter, juice in glass bottles. Papaya, pineapple and mango, cut and under plastic. Portuguese sausage. At home we call it linguiça. A loaf of Portuguese sweet bread in the drawer, the same kind my father buys.
 
 “They stock it Thursday,” Gil said behind me.
 
 “And?”
 
-“The old goes to the food pantry. Six years.” He looked at the refrigerator the way I'd look at a truck somebody else had loaded. “We keep it ready.”
+“The old goes to the food pantry. Six years. We keep it ready.”
 
 “Six years of milk.”
 
@@ -236,7 +232,7 @@ On my way back through the house I checked the back of the bathroom door. I alwa
 
 “What are you looking for?” Gil said.
 
-“Habit.”
+“Kids' heights,” I said.
 
 There was nothing written on it. Nobody had ever stood against it to be measured.
 
@@ -262,8 +258,6 @@ I'd known since May that he had eleven billion dollars. I'd known it the way you
 
 It hadn't crossed my mind since May. I'd been too busy not owing him for things.
 
-It came up on me the way the truck tops a hill I've forgotten is there.
-
 So I let myself have one minute of it.
 
 Owen here every summer, brown as a penny. My father in a chair on that lawn, with both his knees done by somebody good. Denise in that pool in her earrings. No payroll on Friday. Owen at whatever college he wanted, not the one my spreadsheet picked. November 2036 would be a thing I'd said once in my kitchen. It would take him one word. He wouldn't have to get out of the water.
@@ -272,7 +266,7 @@ And me, asleep at seven in the morning. Nobody in my family has slept until seve
 
 That was the minute. Then I went looking for the piano.
 
-It wasn't hard to find. I couldn't pay him back for a house like that. All I could do was lean on him, me and my kid, with our whole weight.
+It wasn't hard to find. I could never pay him back for a house like that. All I could do was lean on him, me and my kid, with our whole weight.
 
 ***
 
@@ -284,7 +278,7 @@ Gil had left masks and fins on the sand, and a stack of vests. Cal put one on an
 
 “I am a buoy. That is the idea.”
 
-The ocean at home is fifty-five degrees and the color of primer. This one was warm all the way down. I put my face in it. The whole reef was crackling, like bacon in a pan. Light came down through the water and lay on the sand in nets that moved. There were yellow fish, hundreds of them, turning all at once. There was a black one with a white stripe that came right up to my mask and looked in, like it had a question about the estimate.
+The ocean at home is fifty-five degrees and the color of primer. This one was warm all the way down. I put my face in it. The whole reef was crackling, like bacon in a pan. Light came down through the water and lay on the sand in nets that moved. There were yellow fish, hundreds of them, turning all at once. There was a black one with a white stripe that came right up to my mask and looked in.
 
 Owen came up next to me, pulled his snorkel out and said a word. It was the one from Sunday night. It had twelve vowels. He got through every one of them.
 
@@ -294,7 +288,7 @@ Past the reef the sand went down in a long slope until there wasn't any bottom. 
 
 Owen grabbed my arm.
 
-The turtle came up out of the blue like it was riding a liftgate, slow and level. Its shell was the size of a card table, brown and gold, with a few barnacles on one edge. It went to a rock and put its face against it and started eating. I could hear it scrape.
+The turtle came up out of the blue, slow and level. Its shell was the size of a card table, brown and gold, with a few barnacles on one edge. It went to a rock and put its face against it and started eating. I could hear it scrape.
 
 Owen backed off. He kicked backward, with his hands up.
 
@@ -310,7 +304,7 @@ None of us said anything when we came up. Owen took his mask off and looked at t
 
 I came up the sand last, in the black suit from Target I've owned since Owen was in kindergarten, with my mask pushed up on my head and my hair down my back. Cal was sitting on the sand working the buckles on his vest. He stopped working them. He watched me all the way up the beach. I could feel exactly where he was looking.
 
-He got up and carried the vests to Gil's stack ahead of me. The muscles in his back moved with every step. That was Castle Rock, all those Saturdays he'd told me about.
+He got up and carried the vests to Gil's stack ahead of me. The muscles in his back moved with every step. That was Castle Rock.
 
 I didn't reach for a towel.
 
@@ -360,9 +354,9 @@ I'm from San Bruno. We have the planes. I'd heard about the Milky Way. I'd never
 
 Owen thought about it. “You don't know any of them.”
 
-“I have never looked.”
+“I have never paid attention.”
 
-Owen fell asleep in the middle of telling us which ones he'd name. Cal picked him up off the towel. He bent his knees to do it and kept him close to his chest. I'd have hired him. He carried him up the lawn and into the house. I heard him trying doors until he found the right bedroom.
+Owen fell asleep in the middle of telling us which ones he'd name. Cal picked him up off the towel. He bent his knees to do it and kept him close to his chest. He carried him up the lawn and into the house. I heard him trying doors until he found the right bedroom.
 
 He came back out and lay down next to me on the towel.
 
@@ -378,7 +372,7 @@ I laughed. He waited until I was done.
 
 “He asked me on the thirteenth of June. On the fifteenth I called Dr. Okamura.”
 
-I did the dates. I can't help it. The fifteenth was a Monday. The next day I sat in his parking garage and read thirty-two messages out loud. He didn't know I was there. The same day I had him sign for his seven on a found sheet in my sixteen-footer.
+I did the dates. I can't help it. The fifteenth was a Monday. The next day I sat in his parking garage and read thirty-two messages out loud. He didn't know I was there. The same day I had him sign a found sheet for the seven things he'd done himself.
 
 He'd been working on a volcano that whole week. He could have led with it. I'd have had to answer a volcano. He sent me four words about a sandwich instead. I let them sit three days. He didn't send a second one.
 
@@ -398,7 +392,7 @@ Gil came in and watched me wrap them.
 
 “First time anybody's used it,” he said.
 
-We flew to the Big Island before sunup, forty minutes over water into the sunrise. Behind us the top of Haleakalā stood up out of the clouds, pink. Ahead of us the Big Island ran up from the water like a loading ramp, two mountains so wide and so slow I couldn't tell where they started, with their tops above the clouds and the first sun lying across them. The airship was waiting in a field outside Hilo, tied by its nose to a mast on the front of a truck. It was white. I paced it off without meaning to. Nine of my big trucks nose to tail, with some left over.
+We flew to the Big Island before sunup, forty minutes over water into the sunrise. Behind us the top of Haleakalā stood up out of the clouds, pink. Ahead of us the Big Island ran up from the water, two mountains so wide and so slow I couldn't tell where they started, with their tops above the clouds and the first sun lying across them. The airship was waiting in a field outside Hilo, tied by its nose to a mast on the front of a truck. It was white. I paced it off without meaning to. Nine of my big trucks nose to tail, with some left over.
 
 In 2009 I watched one of these go over 101 every week from my cab. I'd looked it up so many times Denise asked if I was saving for it. I didn't say anything now. I stood there with a grocery bag of sandwiches until Owen pulled on my sleeve.
 
@@ -420,13 +414,13 @@ I handed out the sandwiches. The pilots looked at each other. The men on the gro
 
 It had come over on a ship. Flying it over the park had taken a waiver from the FAA and a phone call to the governor. Cal had told me on the plane that he'd promised to build something in Hilo. I didn't ask what.
 
-This was a zeppelin in a cow pasture at first light, and a scientist with forty-one volcanoes giving her Tuesday to a nine-year-old, and four men holding ropes so my son could go up.
+This was a zeppelin in a cow pasture at first light, and a scientist with forty-one volcanoes giving her Tuesday to a nine-year-old, and four men holding ropes so my son could meet a volcano.
 
 The airship never sat down. It hung on its engines a foot off the grass with a little set of stairs under the door. Every time two of us went up the stairs, the men on the ground took two bags of lead shot off, to keep it even. It was the cleanest load-in I've ever watched.
 
 Then the men let go of the lines. The ground went down.
 
-That was all. Nobody pushed back in a seat. Nothing roared. I've been in freight elevators that made more fuss. I looked out. The truck was a toy. The men were looking up at us with their hands over their eyes. I'd missed the part where we left. Our shadow went across the pasture, nine trucks long, and over a fence and into the trees.
+That was all. Nobody pushed back in a seat. Nothing roared. I looked out. The truck was a toy. The men were looking up at us with their hands over their eyes. I'd missed the part where we left. Our shadow went across the pasture over a fence and into the trees.
 
 Inside it was one long room with windows down both sides and a big curved one around the back. One window on each side opened. Owen had his open before the pilot finished telling us we could, and put his whole head out. I held his belt. I'd have held it if he were thirty.
 
@@ -486,7 +480,7 @@ My face went hot at a thousand feet.
 
 ***
 
-Then we went up the mountain toward the top, over black ground and green ground and black again. The steam came first, out of cracks in the ground in long white rows. Then the ground fell away under us all at once. We were over the crater. Heat came in Owen's window like opening the back of the truck at three o'clock in August. The whole airship rose a little on it, the long room all at once, like my father's boat lifting on a wake.
+Then we went up the mountain toward the top, over black ground and green ground and black again. The steam came first, out of cracks in the ground in long white rows. Then the ground fell away under us all at once. We were over the crater. Heat came in Owen's window. The whole airship rose a little on it, the long room all at once, like my father's boat lifting on a wake.
 
 I measure everything by eye. I've done it since I was a kid in the cab with my father. I couldn't put a number on that hole. It went on for miles. The walls were cliffs, gray and tan, with layers in them. The floor was black and shining, like a parking lot after rain. Down in one end of it were two black hills with steam coming off the tops, like they were breathing.
 
@@ -542,9 +536,9 @@ I stayed on the bench with him. He'd had the zeppelin put on a ship and sent acr
 
 ***
 
-We landed late that morning. After lunch Dr. Okamura drove us up to the top in her own truck, which had a cracked windshield and a dashboard full of rocks. She took us out to a place on the rim with a rope across it and a ranger who knew her name. From there the crater lay out in front of us. The two hills were down at the far end of the floor, a couple of miles off. The north one was still spilling.
+We landed late that morning. After lunch Dr. Okamura drove us up to the top in her truck, which had a cracked windshield and a dashboard full of rocks. She took us out to a place on the rim with a rope across it and a ranger who knew her name. From there the crater lay out in front of us. The two hills were down at the far end of the floor, a couple of miles off. The north one was still spilling.
 
-Every few minutes it did something I didn't have a word for. The red would rise up inside the top of it, bringing a roar up with it, louder and louder, like a truck with a hole in the muffler going up a grade. Then it would stop dead. The red would drop out of sight. Then it would come back up and spill a little more.
+Every few minutes it did something I didn't have a word for. The red would rise up inside the top of it, bringing a roar up with it, louder and louder. Then it would stop dead. The red would drop out of sight. Then it would come back up and spill a little more.
 
 “Gas pistoning,” Dr. Okamura said. “She's clearing her throat.”
 
@@ -556,7 +550,7 @@ She taught him the way my father taught me on the trucks. One thing, then someth
 
 Late in the afternoon it was still clearing its throat. Then Dr. Okamura looked at her phone for a long time.
 
-“The tilt is still going up,” she said. She turned her phone so Owen could see it. A line went up the screen like a ramp. “That's the ground swelling. When it's full, she goes, and the line falls off a cliff. It may be tomorrow afternoon.”
+“The tilt is still going up,” she said. She turned her phone so Owen could see it. A line went up the screen. “That's the ground swelling. When it's full, she goes, and the line falls off a cliff. It may be tomorrow afternoon.”
 
 “We fly home tomorrow,” Owen said.
 
@@ -574,11 +568,11 @@ It was cold at the rim. Nobody tells you a volcano is cold. It's four thousand f
 
 Then he quit talking.
 
-He goes quiet when he's told no. Kevin could go quiet from a Tuesday to a Sunday and pass you the salt the whole time. Owen sat with his knees up and looked at the crater and was gone.
+Owen sat with his knees up and looked at the crater and was gone.
 
 I had the words ready. *Next time, bud.* They never work. I've said them a hundred times.
 
-I waited for Cal to make a call. I'd have bet the truck he could get somebody on the phone about a volcano. He'd gotten a governor. He didn't take his phone out. He sat down on the cold ground next to my son, in his good pants. He sat there.
+I waited for Cal to make a call. He could have gotten somebody on the phone about a volcano. He'd gotten a governor. He didn't take his phone out. He sat down on the cold ground next to my son, in his good pants. He sat there.
 
 I looked at my watch eleven times. He didn't look at his once. He'd worn it face in since Saturday.
 
@@ -628,7 +622,7 @@ Owen held his arm out in front of him and didn't move it.
 
 Owen looked at it a while longer. Then he turned his arm over and let the wind have it.
 
-I don't take anything home from a job. Not a pencil. I've never told Owen that. He had it anyway.
+I don't take anything home from a job. I've never told Owen that. He had it anyway.
 
 I had my hand flat on my own chest. I didn't know when I'd put it there.
 
@@ -642,7 +636,7 @@ Owen sat back down on the ground next to Cal. I sat down on his other side, on t
 
 “It counts,” Cal said.
 
-It went for three hours. We stayed for all of it. Then it quit, both vents at once, like a truck when you turn the key. It was so quiet I could hear Owen breathing.
+It went for three hours. We stayed for all of it. Then it quit, both vents at once. It was so quiet I could hear Owen breathing.
 
 Then the people along the rope started to clap. They clapped for a long time. You clap for a volcano. I didn't know that.
 
@@ -660,7 +654,7 @@ On Wednesday I woke up and the room was full of light. I looked at my watch. It 
 
 I've never done that. Not when Owen was a baby. Not on Christmas. I lay there for a while and let it be past seven.
 
-I took my coffee down to the beach. Gil was on the sand with his. Cal and Owen were out in the water up to their chests. Cal had been up since four. His body thought the dog was waiting.
+I took my coffee down to the beach. Gil was on the sand with his. Cal and Owen were out in the water up to their chests. Cal had been up since four. His body thought Pancake was waiting.
 
 “Put your ears in,” Owen was saying. “Your ears are the problem.”
 
@@ -714,7 +708,7 @@ I didn't ask him who wanted that one. Not on an airplane.
 
 I knew how that card worked by now. Every line he'd explained to me had somebody under it. If I asked about eight, he'd tell me. I'd have to hear it with my son asleep on his arm.
 
-On the lanai I'd found the piano I'd been looking for since May. It was the money. I'd never be able to pay him back for a house like that. All I could do was lean on him. I hadn't thought to look on the card for a second one.
+On the lanai I'd found the piano I'd been looking for since May. It was the money. I hadn't thought to look on the card for a second one.
 
 I looked at the two of them. He'd be good at it. I'd watched him carry my son up a lawn without waking him. Some woman with time left was going to find out how good.
 

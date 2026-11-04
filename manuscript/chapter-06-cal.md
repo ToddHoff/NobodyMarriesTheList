@@ -8,17 +8,17 @@ At 9:07 that Saturday night, Remy asked me to approve a message.
 REMY · 9:07 PM
 Draft to J. Silveira, from Janice.
 "Thank you for today. At eight you
-read three labels I would..."
+read the slips on three boxes..."
 Approve?
 ```
 
 I opened it and read all of it, which I do not usually do.
 
-At 7:30 I had given Janice eleven minutes on the day, with times. I had told her about the labels, the dog and the half sandwich. I had told her that Pancake has never said why he leans on people.
+At 7:30 I had given Janice eleven minutes on the day, with times. I had told her about the labels, Pancake and the half sandwich. I had told her that he has never said why he leans on people.
 
 Janice had an answer for that. It was in the draft, after a semicolon. *He leans on the people he intends to keep.*
 
-It was a better message than I would have sent: warmer than I am, with my facts in it. That has been true of every message Janice has written for me since 2009. Since 2019 I have approved about three hundred things a day without reading them.
+It was a better message than I would have sent: warmer than I am, with my facts in it. That has been true of every message Janice has written for me since 2009. Since 2019 I have approved about forty things a day without reading them.
 
 I tested Janice's sentence. At lunch I had told Jo what Pancake does and that I did not know why. By 9:07 Janice had a why. It failed on the senator, because Pancake had no intention of keeping the senator. On Jo the result was not in. One failure and one open case is not a result I would approve at work. I wanted it to be true of her.
 
@@ -82,11 +82,11 @@ I did not get her name. When her hand went over the phone, I heard nobody else i
 
 ***
 
-On Tuesday I moved a product review. I had not moved one before.
+On Tuesday I put off a product review meeting so I could drive to San Jose. I had never put one off before.
 
-On October 6, at 2:14 in the afternoon, I was in one. I did not come out of it. Remy took my mother's call. I did not think of that when I moved this one. I thought of it at a red light in San Jose and sat through the green.
+On October 6, at 2:14 in the afternoon, I was in one. I did not come out of it. Remy took my mother's call. I did not think of that when I put this one off. I thought of it at a red light in San Jose and sat through the green.
 
-I walked Pancake at five in the morning and was in San Jose by ten. There is a neighborhood there called Little Portugal. I did not ask Remy for the best bakery in it. I drove down the street until I found a door with nine people over seventy waiting outside. I stood behind them for fourteen minutes. Farther along, the white towers of a church stood up over the roofs. The people in line were all speaking Portuguese at once. Inside, the air was warm and smelled of yeast and burnt sugar. The case ran the length of the room. Most of it was round loaves of sweet bread with shining tops. The custard tarts at the end were scorched black in spots, every one of them. The woman behind the counter called every customer *querida* or *querido*. When it was my turn she called me *querido* too. I wanted her to say it again.
+I walked Pancake at five in the morning and was in San Jose by ten. There is a neighborhood there called Little Portugal. I did not ask Remy for the best bakery in it. I drove down the street until I found a door with nine people over seventy waiting outside. I stood behind them for fourteen minutes. Farther along, the white towers of a church stood up over the roofs. The people in line were all speaking Portuguese at once. Inside, the air was warm and smelled of yeast and burnt sugar. The case ran the length of the room. Most of it was round loaves of sweet bread with shining tops. The custard tarts at the end were scorched black in spots. The woman behind the counter called every customer *querida* or *querido*. When it was my turn she called me *querido* too. I wanted her to say it again.
 
 At the counter I asked for sausage and egg on a sweet roll. I may have pointed. I paid with my phone, because I do not carry a wallet. I drove north with a paper bag on the passenger seat of a car I have owned for three years and driven 1,100 miles.
 
@@ -206,9 +206,9 @@ He turned to me. “Those your boots?”
 
 “Yes, sir.”
 
-“Who's breaking them in?”
+“Blisters yet?”
 
-“I am.”
+“Two.”
 
 The boots were Janice's work. The blisters were mine, one on each heel.
 
@@ -232,7 +232,7 @@ I lifted on two.
 
 “That was two.”
 
-“Yes.”
+“It seemed like the right time.”
 
 “Put it down.”
 

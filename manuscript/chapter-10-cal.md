@@ -185,7 +185,7 @@ I did not ask what she had been looking at. On the first Saturday my boots had s
 
 I opened it while she was gone. The cards were in my mother's hand, in blue ballpoint. In the top corner of each one she had written how many it served. On the older cards the number was 2. It had a line through it and a 1 beside it.
 
-I left that house in 2003. I looked for a date on the corrections. There was not one.
+I left that house in 2003. I looked for a date on the corrections. Not one.
 
 On the newer cards my mother had written 1 from the start, in the same blue ballpoint. I did the arithmetic from 2003, because it was the only date I had. It came to twenty-two years.
 
@@ -253,7 +253,7 @@ She put the sandwich down and held out her hand. I gave her the card. She took t
 
 “I moved her to another school. I have lived by line six ever since. Remy only wrote it down.”
 
-I had not told that to anyone who was not paid to hear it. I told it to her on a bench in my mother's atrium with her knee against mine. It took less time than I had always assumed it would.
+I had not told that to anyone who was not paid to hear it. I told it to her on a bench in my mother's atrium with her knee against mine. She had not signed anything.
 
 When I finished, her knee was where it had been.
 

@@ -20,9 +20,9 @@ Vili took the sixteen-footer and Manny. I followed them down 101.
 
 “He says he sends you the calendar every year.”
 
-“He does.”
+“Regular as the garbage truck.”
 
-I have never opened it. Every August I file it with the others. I know when Owen's school starts and when it lets out, so the rest of Kevin's year is Kevin's. This year the rest of it had a graduation in it. He had sent it like always. I'd had since August to find out. I found out last night.
+I have never opened it. Every August I file it with the others. I know when Owen's school starts and when it lets out, so the rest of Kevin's year is Kevin's. This year graduation fell on one of my Sunnyvale Saturdays. Owen knew before I did.
 
 “Job rules,” I said. “Go.”
 
@@ -44,13 +44,13 @@ I have never opened it. Every August I file it with the others. I know when Owen
 
 “It's my phone. Dad gave it to me.”
 
-“It was your father's phone. Now it's yours. In that house, it stays in your pocket.”
+“It was your father's phone. In that house, it stays in your pocket.”
 
 “What if he wants to see my app?”
 
 “He won't.”
 
-“He might. I made it with his thing.”
+“He might. I made it with Remy.”
 
 My son talks to that thing every day. He tells it what he wants and argues with it when it's wrong. I have never said one word to it.
 
@@ -62,7 +62,7 @@ My son talks to that thing every day. He tells it what he wants and argues with 
 
 “Vili says he has a dog that leaned on you.”
 
-“Vili talks. The dog stays on his side of the door. You stay on yours.”
+“Vili talks. Pancake stays on his side of the door. You stay on yours.”
 
 The app is dogs. It has every dog he has ever met, in order. For a kid whose mother isn't good with dogs, he has a list you have to scroll.
 
@@ -120,7 +120,7 @@ He opened his mouth and shut it.
 
 “All right,” he said.
 
-I'd done that number lying awake. That man brings three lunches when you tell him two. If Owen came home with anything, a glass of water or a turn with the dog, I wanted it paid for before it was given.
+I'd done that number lying awake. That man brings three lunches when you tell him two. If Owen came home with anything, a glass of water or a turn with Pancake, I wanted it paid for before it was given.
 
 He put out his hand to my son. Kevin taught Owen to shake, one pump, looking at the man.
 
@@ -148,9 +148,7 @@ I'd have bet the truck he would present to my son. Owen would have loved it. My 
 
 I'd said that five weeks ago, over a plate of shrimp. I'd been sure it went right by him. He had it word for word. Owen looked up at me to see whether it was true. I let him look and went up the walk.
 
-The front door of that house opens on the atrium. Owen touched the frame twice going through. He does that at every house. Cal watched him do it and didn't ask. In nine years, neither have I.
-
-From the atrium you can see through the front room and out the back windows. The dog was lying against the back door with his nose on the track.
+The front door of that house opens on the atrium. From the atrium you can see through the front room and out the back windows. Pancake was lying against the back door with his nose on the track.
 
 Owen looked at me before he took the phone out.
 
@@ -198,9 +196,9 @@ My father tells that one every Christmas.
 
 “That's asleep. It doesn't count.”
 
-“And does that one count?” he said, and nodded at the dog.
+“And does that one count?” he said, and nodded at Pancake.
 
-Owen looked at the dog for about four seconds.
+Owen looked at Pancake for about four seconds.
 
 “He's second.”
 
@@ -208,11 +206,11 @@ Owen looked at the dog for about four seconds.
 
 “That's why I have to.” He turned around to me. “Can I ask him if I can go out there?”
 
-“No. He's a client. And the dog stays on his side of the door.”
+“No. He's a client. And Pancake stays on his side of the door.”
 
 Owen put the phone in his pocket without arguing. He goes quiet when he's told no, the part of him that comes from his father. I've watched for it in him since he could walk.
 
-Cal looked at me, then at his dog. He kept quiet too.
+Cal looked at me, then at Pancake. He kept quiet too.
 
 Any other client would have said it was fine. They always do: he's no trouble, let him come out. So I end up saying no twice, to my own kid, in their house. Cal had his own dog on the other side of his own back door. He let my no stand. He wanted to say yes. It was all over his face.
 
@@ -230,7 +228,7 @@ I taped the box and wrote BATH on it and stood there a minute with the marker. I
 
 Voices carry in that house. It's glass on a slab.
 
-“Mind the teeth,” Cal said, out in the atrium. “I cut my thumb on that the first day.”
+“Mind the teeth on the tape gun,” Cal said, out in the atrium. “I cut my thumb on them the first day.”
 
 “I've been doing it since I was six.”
 
@@ -240,7 +238,7 @@ My son laughed out loud. He does not laugh for strangers.
 
 I couldn't see Owen from the bathroom. That breaks rule one. I didn't go out. If I went out there they would stop. I wanted to hear what my son would say to that man when I wasn't standing there.
 
-“You have looked at my dog nine times,” Cal said. “What is the ask?”
+“You have looked at Pancake nine times,” Cal said. “What is the ask?”
 
 “I'm not allowed to ask you anything. You're a client.”
 
@@ -248,7 +246,7 @@ Cal took a second with that.
 
 “If you were allowed, how many questions would there be?”
 
-“Eleven. One is can I pet your dog.”
+“Eleven. One is can I pet Pancake.”
 
 “I see. Then tell me what is wrong with this box.”
 
@@ -318,7 +316,7 @@ He meant the pencil. I took it from behind my ear and gave it to him.
 
 Owen got back under my hand. Cal drew the line along the edge of it, the pencil passing the side of my finger close enough that I felt it go. Then he wrote beside the line in capitals, slowly. He took a long time over the O. OWEN 9.
 
-The last hand on my own head had been his. The first night, at the Pied Piper, with my own tape. I'd told myself it was nothing like my father's. This time my hand was on my son's head. My throat went tight. I kept my eyes on the door.
+The last hand on my own head had been his. The first night, at the Oak, with my own tape. I'd told myself it was nothing like my father's. This time my hand was on my son's head. My throat went tight. I kept my eyes on the door.
 
 “That's carpenter's pencil,” I said. “It won't rub out.”
 
@@ -340,7 +338,7 @@ Green goes with the owner. Wherever he took that door, my son's name was going w
 
 That left the two of us in the hall where he had held up his grandmother's hutch. He still had my pencil.
 
-“He has looked at my dog fourteen times now,” Cal said. “He has eleven questions for me and has informed me that he is not allowed to ask one, because I am a client.”
+“He has looked at Pancake fourteen times now,” Cal said. “He has eleven questions for me and has informed me that he is not allowed to ask one, because I am a client.”
 
 “That's my rule.”
 
@@ -350,7 +348,7 @@ I'd lain awake over what he would give my son, so I could pay for it ahead of ti
 
 “The back yard,” I said. “You stay on the leash with him.”
 
-“Yes.”
+“He is eleven. He does not pull.”
 
 He held out the pencil. I didn't take it. I had stood in that hall with him once before, with a hutch for an excuse. The last time I kissed him had been ten days ago, on a curb in Los Gatos. I had thought about it every day since, including at three in the morning in my own kitchen.
 
@@ -374,7 +372,7 @@ He bent down.
 
 I pulled him the rest of the way by his shirt and kissed him. His hand went into my hair and pulled the tie half out. His other hand found the small of my back and stayed there. He kissed me slower than he had on the curb, slow enough that my knees went loose. I held on to the shirt. For about a minute I quit listening for my son. I don't do that.
 
-“Mom.”
+“Mom!”
 
 Owen was at the end of the hall, where Vili had stood with the dolly. He had the phone in one hand and the tape gun in the other.
 

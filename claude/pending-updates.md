@@ -1,5 +1,18 @@
 # Nobody Marries the List: Pending Updates
 
+Last updated: Monday, November 2, 2026, 4:25 PM PST. **Pending:** the November 2 section just below (chapter 17) still has to go into the book plan (file and doc) and the character sheet (file and doc). Everything below it was applied by October 20 and is kept as a record.
+
+## November 2: chapter 17 (in the chapter files and the manuscript doc; not yet in the plan or character sheet)
+
+- Plan, the 17 entry: the bedrooms talk is on the back step after supper, not in the hot tub. The evening at the fire pit and the hot tub: gas fire on a curved stone bench; the Silver Mountain Pinot and his cellar ("Most of the bottles in my cellar were better at the winery."); she leans on him instead of getting her sweatshirt; the coyotes ("Two. A pair, most likely."; "Two's plenty."); the bats; the pool house (spa, teak, swimsuits with tags; she takes a towel, not a suit); they go in naked ("Turn around."; "Nobody had told me not to."); Janice's board-dinner toast, then his own, "To the guest room"; "Nobody's seen me naked in three years." / "When you say."; no moon, the stars, Venus over the ridge; the walk up with every window lit; he lifts Pancake up the three back steps; "Why the guest room?" "Ask me at my house." "Saturday." The kiss at the guest room door and the 2:10 door stand. Morning adds "Maybe you found yours the second time around."
+- Plan, chapter 18 entry: the Saturday was set in 17, at his back door; Thursday he texts to ask what time and what to bring.
+- Plan, the "the dog" rule (Todd, November 2): when it refers to Pancake, the page says Pancake.
+- Character sheet, who-knows row 17, Jo: his house is lit every night and he has never come home to it dark; he carries Pancake up the back steps; he has a wine cellar; the pool house nobody uses; he asked why the guest room and she told him to ask at her house on Saturday. Cal: her house is dark half the week and she turns the radio on so somebody is talking; nobody has seen her naked in three years; she knows Janice's toasts when she hears them.
+- Character sheet, Cal's house: pool house set up like a spa (two bathrooms, steam room, showers inside and out, two sinks with blow dryers, a teak wall, towels and swimsuits for guests); a wine cellar; Rita leaves every light on. Claude's additions, to strike if wrong.
+- Claude's additions to strike if wrong (also in the handoff): the cellar; the pool house layout; the radio in Jo's kitchen; Vili's mirror; Rita leaving the lights on.
+
+## Earlier header (October 20)
+
 Last updated: Tuesday, October 20, 2026, 11:00 AM PDT. **Everything in this file has now been applied**, the "October 19, 11:16 PM: chapter 35" section included (to the plan and character sheet files and docs on October 20 at 11:00 AM, when everything was written to Todd's folder). Nothing is pending. Kept as a record.
 
 **October 18, 11:20 PM: everything below (down to the October 19 section) has been applied.** The plan and character sheet files were rebuilt from the docs, which carry every item. Kept as a record.

@@ -188,7 +188,7 @@ I gave it to her. She held it beside a green card in a box on the counter. It wa
 
 Everybody above me on the sheet had written the hour and a word. *11, dentist. 10:30, sick.* I wrote *11:07* and *Fever, 101.6.*
 
-She read it upside down. Then she looked at me again.
+She read it. Then she looked at me again.
 
 "He told me not to call you," she said. "When I couldn't get his dad. He said you were on at ten." She tipped her head at the hall. "I told him it's not up to him. It's up to the card."
 
@@ -262,7 +262,7 @@ There is a gray lockbox on Jo's gate, the kind realtors hang on doorknobs. Owen 
 
 I turned around and looked at the street. A plane went out over the hill from the airport, climbing. Behind me four buttons clicked. The box let go.
 
-When I turned back he had the key. He went up the walk and over her step. At the front door he touched the frame twice with two fingers, as he does at every door. Then he went in.
+When I turned back he had the key. He went up the walk and over her step. Then he went in.
 
 I took him down the hall to his room. It was his room, so I thought it was where he would want to be. He got into his bed in his clothes and turned to the wall. I let down his blinds. I put the basin on the floor by his head, where the school had put it.
 

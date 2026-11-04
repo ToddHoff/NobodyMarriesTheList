@@ -26,7 +26,7 @@ He was standing at the top of the gangway with his hands in his jacket pockets, 
 
 “I have been here since 4:26.”
 
-“Where's the dog?”
+“Where's Pancake?”
 
 “He is at home. I walked him at 3:40. He was not in favor of it.”
 
@@ -76,7 +76,7 @@ Kevin always brought the wine.
 
 Cal held the cooler in both hands and waited to be told where it went.
 
-The tide was nearly all the way out. Low at Oyster Point was a minus tide, right around sunup. The gangway went down to the docks as steep as a ramp off the back of a truck.
+The tide was nearly all the way out. Low at Oyster Point was a minus tide, right around sunup. The gangway went down to the docks steeper than my father's knees liked.
 
 My father went down it backward with a hand on each rail. I went down below him, backward too, one step under his feet.
 
@@ -146,7 +146,7 @@ The sun came up somewhere behind the overcast. We never saw it. The gray over us
 
 I had the jib sheets. On this boat I'm crew. My father calls it. I pull when he says.
 
-He steered and gave Cal the names of things. Port. Starboard. Sheet. Halyard. Cal said every one back once, like a new man on my crew saying back an address. Every question he asked my father was about the boat.
+He steered and gave Cal the names of things. Port. Starboard. Sheet. Halyard. Cal said every one back once. Every question he asked my father was about the boat.
 
 We went under the Bay Bridge. I take loads to Oakland on its lower deck. The bottom of it is gray steel crossed every which way, a long way up, with rust in the seams. Then we were out the other side and the city was right there, lights on here and there in the towers, close enough that I could read the clock on the Ferry Building. It said four minutes after seven.
 
@@ -156,7 +156,7 @@ Past the Ferry Building the wind went soft under the city. My father started the
 
 Past Alcatraz there was nothing in front of us but the bridge. It gets bigger the whole way in. Just when you think you're close, it gets bigger again. Cal had quit saying the names of things back.
 
-From the water you can see there's nothing under the road. I move weight for a living. That's what gets me every year. Two towers stand up out of the bay seven hundred and forty-six feet. The road hangs between them off two cables, four thousand two hundred feet of it. I looked that up the first year, when I was twelve. Under the overcast the orange was the only color anywhere. The water was gray, the sky was gray, the Marin hills were gray-brown. The bridge looked lit from inside, like running lights on a truck at five in the morning.
+From the water you can see there's nothing under the road. I move weight for a living. That's what gets me every year. Two towers stand up out of the bay seven hundred and forty-six feet. The road hangs between them off two cables, four thousand two hundred feet of it. I looked that up the first year, when I was twelve. Under the overcast the orange was the only color anywhere. The water was gray, the sky was gray, the Marin hills were gray-brown. The bridge looked lit from inside.
 
 Slack water at the Golden Gate was 7:44. My father had us under the middle of the bridge right on it, with the main up and the engine turning slow. He's done it that way every year since 1994.
 
@@ -296,6 +296,14 @@ Cal held on a second before he let go. He'd had that handshake before. My son ga
 
 We ate at the kitchen table, the six of us, with the platter in the middle and the window open to the yard.
 
+“Frank,” Cal said. “Where are the Silveiras from?”
+
+“São Miguel,” my father said. “My grandfather, in 1913.”
+
+“Have you been?”
+
+“Once. It rained.”
+
 “Grandpa,” Owen said, “is Cal good at the boat?”
 
 “No,” my father said.
@@ -326,7 +334,7 @@ Kevin laughed and shook his head. “Everybody does the back one. The forward cl
 
 He put his fork down. His ears had gone red.
 
-I've seen his ears go red at the Pied Piper and on his mother's slab and at the end of his ex-wife's table. I'd never seen it happen over another man, at my father's table, over where you tie up a boat.
+I've seen his ears go red at the Oak and on his mother's slab and at the end of his ex-wife's table. I'd never seen it happen over another man, at my father's table, over where you tie up a boat.
 
 I felt that one in my knees. I had to look at my chicken.
 

@@ -86,7 +86,7 @@ I had two reasons ready if he asked. Manny sleeps better against a door. Vili ba
 
 Vili didn't ask.
 
-Manny was asleep by the airport. He always is.
+Manny was asleep by the airport. As usual.
 
 That left Cal in the middle of the bench with his knees up, because the middle seat in a sixteen-footer is built for a man with no legs. Vili folds up in it every morning like a lawn chair. His thigh was against mine from the yard to Millbrae. There isn't four feet anywhere in that cab. I'd thought about that when I put him there.
 
@@ -104,7 +104,7 @@ He says everything back. He's putting it in a file. I've had men on my crew for 
 
 “I ate at five.”
 
-“Eat again at nine. You'll want it.”
+“Eat again at nine. You'll want it. And every time you come out to the truck, you drink a water. Whether you want one or not.”
 
 “I did not bring anything.”
 
@@ -200,7 +200,7 @@ I didn't touch him. Today he was payroll. Manny was coming across the lawn with 
 
 ***
 
-Lunch is at eleven on every job I run. We ate on the Delgados' curb in the shade of the big truck, the four of us, with our backs against the wheels.
+“Lunch,” I yelled. We ate on the Delgados' curb in the shade of the big truck, the four of us, with our backs against the wheels.
 
 He'd made his own lunch. I checked the bread before I could stop myself. Both pieces, out to the edge.
 

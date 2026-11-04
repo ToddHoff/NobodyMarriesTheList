@@ -52,7 +52,7 @@ He'd asked.
 
 He'd asked me on Sunday about a volcano. Now he was asking about air. Until him I don't think anybody in my life had asked me before they spent money on me.
 
-I know what seventy-two by three o'clock looks like. I've seen it at estate sales in Atherton. Spot coolers on dollies, hoses run out the sliders, a man in a company shirt walking around with a meter. It roars like a truck idling in the next room. By three you'd have to shout to tell a man green or blue.
+I know what seventy-two by three o'clock looks like. I've seen it at estate sales in Atherton. Spot coolers on dollies, hoses run out the sliders, a man in a company shirt walking around with a meter. By three you'd have to shout to tell a man green or blue.
 
 And I'd be standing in his cold air. The last two Saturdays I'd be working in it.
 
@@ -148,7 +148,7 @@ Cal came out of his room with a ribbon in each hand and found me there. He stood
 
 He put the ribbons on the hall table. Then he lay down on the floor beside me, with his head by my head and his feet going the other way. Pancake came and lay down on his other side and sighed through his nose.
 
-We lay there. A plane went over, high, going somewhere cold. I could hear Cal breathing and the dog breathing, and the house ticking in the heat.
+We lay there. A plane went over, high, going somewhere cold. I could hear Cal breathing and Pancake breathing, and the house ticking in the heat.
 
 “What were they for?” I said. “The ribbons.”
 
@@ -240,7 +240,7 @@ I'd never heard him say that about the time. He knows it to the minute. On a job
 
 I could see it. It was face down.
 
-I'd seen him sit like that once before, at the rim, next to Owen, for an hour and a half.
+I'd seen him sit like that once before, at the rim, next to Owen, for an hour.
 
 My phone was in my back pocket. I'd slept almost two hours. There was a text from Owen I'd slept through.
 
@@ -284,7 +284,7 @@ I didn't say anything. I let him go at his own speed.
 
 “I have watched it four hundred and twelve times.”
 
-My stomach went over like a hand truck off a curb.
+My stomach went over.
 
 I've got a phone full of Owen at two. I hardly look at them. I was there.
 

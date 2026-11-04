@@ -20,7 +20,13 @@ The first time I took it out, I wasn't going. Jobs run long. I'd text him from t
 
 The second time, I was forty-four years old and arguing with a toothbrush in my own bathroom in the dark. I put it back and zipped the bag.
 
-*Guest room,* I'd written him on Sunday.
+The Pinot from Silver Mountain was on the floor of the cab in a box. I wasn't walking into his house empty-handed.
+
+On Sunday he'd written, *You paid four times on Summit Road. There is nothing to pay for at my house. Will you come Tuesday at six?*
+
+I read it twice at my counter. He'd found the one place I couldn't get my wallet out.
+
+*Guest room,* I'd written back.
 
 *Yes,* he'd written back.
 
@@ -36,11 +42,11 @@ I checked every message for a semicolon. There never was one. Most nights I wrot
 
 ***
 
-His house is at the end of a gravel drive in Woodside, under oaks. I parked the sixteen-footer on his gravel and looked at the house the way I look at any house. Three trucks, if they had anything. There was nothing on the front step. No shoes, no hose, no dog toy. Somebody picked up after a man who didn't leave anything out.
+His house is at the end of a gravel drive in Woodside, under oaks. I parked the sixteen-footer on his gravel and looked at the house the way I look at any house. Three trucks, if they had anything. There was nothing on the front step. No shoes, no hose, no dog toy, no dog poop on the lawn. Somebody picked up after a man who didn't leave anything out.
 
 His gate stood open at the bottom. Past it the drive climbed between split-rail fences. In the field across the road a horse stood in the shade. Somebody rakes this gravel. Under the oaks the air through my window was cooler than Redwood City's and smelled like dry grass and bay leaves.
 
-The house was long and low, gray wood and a lot of glass, set into the hill so you couldn't see all of it from one spot. I've moved a dozen houses in Woodside. Long and low means every box goes the length of it.
+The house was long and low, gray wood and a lot of glass, set into the hill so you couldn't see all of it from one spot. Down the hillside a pool glittered in the sun, beside a gazebo with its cushions still in the plastic.
 
 I'd driven up his drive looking for the piano. A house that size always has one.
 
@@ -48,7 +54,7 @@ I sat in the cab with the engine off for a full minute first. I've sat in a lot 
 
 Every house I walk into, somebody's paying me to be there. I've got a clipboard and a reason. Nobody wonders what I'm doing in the kitchen. Nobody was paying me to walk into this one. If I got out, I was a woman with an overnight bag in a man's driveway. Whoever worked for him was going to see the bag.
 
-The dog came across the gravel first. I stood by my door and let him come. He leaned his whole side on my shin. I let him do that now. I don't know when that started.
+Pancake came across the gravel first. I stood by my door and let him come. He leaned his whole side on my shin. I let him do that now. I don't know when that started. Besides, this is his house.
 
 A woman about sixty came out behind him in a cardigan and put out her hand for my bag.
 
@@ -92,7 +98,7 @@ I looked at the kitchen. There was nothing on the counters but Janice's cards. T
 
 There were two things on his refrigerator. One was a school form of Abby's under a magnet. I don't read what people put on their refrigerators. The other was a white plastic badge on a clip that said FOOD SERVICE and DARLENE. It still had my green tape on it, folded over on itself, the way he'd torn it on May 16. It was the only thing in that kitchen anybody had put out on purpose.
 
-Green goes home with the owner. Most of them have the tape in the trash by the first night. He'd had two months. My eyes stung. I wasn't going to do that in front of Janice Louie.
+Most people peel my tape off before my truck's off their street. He'd kept his two months. My eyes stung. I wasn't going to do that in front of Janice Louie.
 
 “Is there bread?” I said. “I've been up since five. I'd eat a sandwich standing up.”
 
@@ -116,7 +122,7 @@ I watched his hands more than the bread. I'd have told Denise I was checking his
 
 The Thursday before the dog park, on the Delgados' ramp, those hands wouldn't close. He'd sat down when I told him to and looked at them. I wanted them on me. I'd asked for his guest room myself, in writing. I sat on his stool and wanted them anyway.
 
-We ate on his back step with the dog between us and the oaks going dark. He told me the board would ask him about margins for an hour and he would answer the same question eleven ways. I told him about the coffee can. He asked what kind of screws.
+We ate on his back step with Pancake between us. He told me the board would ask him about margins for an hour and he would answer the same question eleven ways. I told him about the coffee can. He asked what kind of screws.
 
 “Wood screws, mostly,” I said. “Some drywall. Two toggle bolts and a dime.”
 
@@ -124,9 +130,7 @@ We ate on his back step with the dog between us and the oaks going dark. He told
 
 “I write down everything. Owen says if he sits still long enough, I'll put him on the found sheet.”
 
-He laughed out loud. The dog lifted his head to see what was wrong with him.
-
-I'd already put him on a found sheet in June. His seven, with his name signed under them. I didn't bring that up on his back step.
+He laughed out loud. Pancake lifted his head to see what was wrong with him.
 
 “How many bedrooms?” I said.
 
@@ -134,21 +138,237 @@ I'd already put him on a found sheet in June. His seven, with his name signed un
 
 “Who sleeps in them?”
 
-The dog put his head on my knee while I waited. I left it there.
+Pancake put his head on my knee while I waited. I left it there.
 
 “Abby sleeps in one. She is at her mother's this week. She starts at Cal Poly in September.” He looked out at the oaks. “The schedule is on the refrigerator.”
 
-That was the form on his refrigerator, then. I'd been a foot from it and hadn't read it. I didn't go back in and read it now. He knew which magnet it was under. I'd have bet my truck he hadn't read it either. Owen's nine. I put that away before I could work out what year I'd be packing his room.
+That was the form on his refrigerator, then. I'd been a foot from it and hadn't read it. I didn't go back in and read it now. He knew which magnet it was under. I'd have bet he hadn't read it either. Owen's nine. I put that away before I could work out what year I'd be packing his room.
 
 “And you.”
 
-“And I sleep in one. The dog sleeps where he likes.”
+“And I sleep in one. Pancake sleeps where he likes.”
 
 “So he's got his pick of five.”
 
 “He picks mine.”
 
-I sat there with that and the dog's head on my knee until the oaks went black. My face burned the whole time. It was dark enough that he couldn't see it.
+When the sun left the oaks, the air off the ocean came over the ridge and the day went cold. He took me down the hill past the pool. There was a fire pit down there with a stone bench curved around it. He turned a knob. The gas caught with a soft whump. Flames came to life all the way around the ring, blue at the bottom and gold on top. I wouldn't burn wood up here in July either.
+
+I'd brought the Pinot from Silver Mountain, the one he'd liked. There was a whole kitchen out there under a roof. He took two glasses and a corkscrew out of the first cabinet he opened.
+
+He tasted it and looked at the glass. “It is as good as it was on the deck,” he said. “Most of the bottles in my cellar were better at the winery.”
+
+That fire was mostly for looks. The warm side of me was the one next to Cal. I had a sweatshirt in the cab. I didn't go get it. I slid down the bench until my shoulder was against his. He held still and let me lean. I leaned on him more than the guest room called for.
+
+Down the canyon one coyote started, a long howl that went up and came down. Another came in under it, yipping. Then the whole canyon was full of them. The hair stood up on my arms.
+
+“How many is that?” I said.
+
+“Two,” Cal said. “A pair, most likely. They sound like ten.”
+
+“Two's plenty.”
+
+They quit all at once. Pancake hadn't even lifted his head.
+
+Bats came out over the pool while the water still had the last of the sky in it. They came down one at a time on the same line, touched the water and went back up. I'd never seen a bat drink.
+
+Past the pool there was a hot tub with its cover on. I'd have bet nobody had had that cover off since it went on.
+
+“I didn't bring a suit,” I said.
+
+“There are some in the pool house.”
+
+The pool house was bigger than my garage, set up like a spa. It had two bathrooms, a steam room and showers inside and out. Along one side ran a stone counter with two sinks and a blow dryer hung beside each one.
+
+One wall was oiled teak, built in, floor to ceiling. White towels sat rolled in the cubbies. The swimsuits had shelves of their own below them, folded by size, men's and women's, every one with its tags on.
+
+I wasn't going to stand in his pool house holding swimsuits up against myself, looking for my size. I took a towel.
+
+I came out of his bathroom in the towel, with my clothes folded under my arm in thirds and then in half. He was at the hot tub with the cover folded back. Steam came off the water into the dark. Somebody was paying PG&E to keep that hot for nobody. He had a towel around his waist. He hadn't taken a suit either.
+
+“Turn around,” I said.
+
+He turned around and looked up into the oaks with his hands at his sides.
+
+I left the towel on the edge and went in. The water was hot enough that I sucked in my breath. The air on my shoulders stayed cold.
+
+“Okay,” I said.
+
+He took his towel off without hurrying and without turning around. I watched him do it. Nobody had told me not to.
+
+He came in across from me. In what was left of the firelight I could see the gray over his ears and not much else.
+
+He'd brought the Pinot over from the fire. He filled both glasses and held his up.
+
+“To a lovely evening,” he said, “and to the company that made it one.”
+
+“That's Janice's.”
+
+He looked at his glass. “She wrote it for my board dinners.”
+
+“Say yours.”
+
+He thought about it longer than a toast should take.
+
+“To the guest room,” he said.
+
+I laughed so hard I nearly put my wine in his water.
+
+Under the water his foot came against mine. He didn't move it. Neither did I.
+
+“Nobody's seen me naked in three years,” I said.
+
+“I still have not. You told me to look at the oaks.”
+
+“You could have peeked.”
+
+“I would like to,” he said. “When you say.”
+
+I didn't answer that. I put my head back on the edge and looked up.
+
+There wasn't a moon. I'd never seen that many stars. In San Bruno you get the airport and the fog.
+
+Low over the ridge one was brighter than the rest and didn't twinkle. I know that one. Some winters it's out over SFO when I unlock the trucks at five.
+
+When I looked over, he wasn't looking at the sky. He didn't look away when I caught him.
+
+We stayed like that, with his foot against mine, until my fingers had gone to prunes. My face burned the whole time. In that water he'd have put it down to the heat.
+
+I got out of his water while I still could. I took my towel and my clothes into his pool house and put them on over wet skin. My shirt stuck to my back.
+
+When I came out he was dressed, with his shoes in his hand and Pancake at his knee. He wasn't headed up the hill. He was standing at the edge of the patio, under the biggest oak on the place.
+
+One limb went out low and long past the patio and set its elbow down in the grass before it went back up.
+
+“That is the loving tree,” he said.
+
+“The what?”
+
+“Mrs. Hollis said that was its name. She sold me the house. Her grandfather bought this land in 1914. On the day I closed she walked me down here and told me a secret.”
+
+“A tree has a secret?”
+
+“She told me the way her grandmother told her. ‘Lay your hand on the old oak and it will take your sorrow and give you rest. Lay two hands on it side by side, and those two will belong to each other as long as the tree stands.’”
+
+“And she believed that.”
+
+“She did it with her husband the night he proposed, in 1958. They were married fifty-one years. Her parents did it before them. Her grandparents did it first. She said it has never been wrong.”
+
+“Three for three.”
+
+“It is a small sample.” He looked at the trunk. “She asked me not to cut it down. She wrote it on the back of the purchase agreement and had me initial it.”
+
+“Can she do that?”
+
+“No. I initialed it. I would have never cut it down anyway.”
+
+“Who moved her?”
+
+“Her grandsons. It took them nine days.”
+
+“I'd have done it in two,” I said. “She'd have wanted the nine.”
+
+“Did you ever try it?”
+
+“No. I thought it was silly.”
+
+“You never put a hand on it?”
+
+“I walk around it to get to the pool.”
+
+“You never brought Abby's mother down here?”
+
+“The lawyers started in 2012. Mrs. Hollis sold me the house three years later.”
+
+“Put your hand up,” I said.
+
+“I would rather not.”
+
+“Why?”
+
+“It is three for three.” He said it to the trunk. “I would rather not be the one who breaks it.”
+
+“You owe me half a linguiça,” I said.
+
+“That is a sandwich.”
+
+“Call this the interest.”
+
+He set his shoes down on the stones.
+
+“She said you do not pull at the bark,” he said. “You put your hand flat and leave it. You shut your eyes. You do not talk.”
+
+The bark was cut up into little gray blocks, deep in between. I put my palm flat on it. It was warmer than the air. The tree had held on to some of the afternoon.
+
+At the height of my shoulder there was a place the size of a hand where it had worn smooth.
+
+“That's hers,” I said. I moved my hand over onto the rough.
+
+He put his hand flat beside mine. The edge of his little finger came against the edge of mine and stayed there.
+
+I shut my eyes.
+
+I could hear him breathing beside me. After a while we were breathing at the same time. I don't know which of us went over to the other one.
+
+“I can feel my pulse in my fingers,” he said. “It is going up.”
+
+“That's not the tree,” I said.
+
+Mine was going up too. I could feel it in the tips of my fingers against the bark, and in the edge of my hand where his was. After a while I couldn't tell whose was whose.
+
+Then something came across from him.
+
+It came in where his little finger lay against mine. I don't have a word for it. It came in quiet, the way somebody comes into the kitchen while you're at the sink, and you know who it is without turning around.
+
+His breath caught. He didn't take his hand away.
+
+Something I'd been carrying since my mother died went out of me through my hand and into the tree. I felt it go. What came into the place it left was his.
+
+I'd had two glasses of my own Pinot. I told myself that was all it was. I'd told myself a lot of things since May.
+
+He leaned toward me, and I was already leaning. We kissed for a long time like that, our hands still flat on the loving tree, with nothing touching but our mouths and our little fingers on the bark.
+
+When we stopped, it got quiet. It was the kind of quiet that's waiting for somebody to say the next thing. I knew what the next thing was. I wasn't ready to hear it, in his voice or mine.
+
+“Four for four,” I said.
+
+He didn't say it was a small sample.
+
+When we let go, Pancake was asleep with his head resting on Cal's shoes.
+
+We went up the hill in the dark at Pancake's speed. I needed to talk about anything that wasn't that tree. Every window in the house was lit.
+
+“Do you leave them all on?”
+
+“All right,” he said. “The windows.” He looked up at them. “Rita does. I come home after dark.”
+
+I could have kissed him again just for that. “Every night?”
+
+“I have not come home to it dark since I bought it.”
+
+“Mine's dark half the week,” I said. “Owen's at Kevin's. I turn the radio on in the kitchen so somebody's talking.”
+
+He didn't say anything to that. He walked closer, so his arm brushed mine.
+
+At the back step Pancake stopped and looked at the three steps. Cal set his shoes down and lifted him up them, front end and then the back. He did it without looking to see whether I'd seen.
+
+At the top he turned around.
+
+“May I ask you something?”
+
+“You can ask.”
+
+“Why the guest room?”
+
+He'd let me have it with no reason since Sunday.
+
+“Ask me at my house,” I said.
+
+“When?”
+
+“Saturday.”
+
+“Saturday,” he said.
 
 Then he walked me to the guest room. He'd shown it to me when I came in, so I'd know where my bag was going. He hadn't touched the bag.
 
@@ -164,11 +384,11 @@ So I let him ask. Then I let him.
 
 He kissed me like a man with nowhere to be in the morning. He had the board at eight. My back was against his guest room door. I had a handful of his shirt and didn't remember taking it. My whole body had an opinion about the guest room.
 
-He was the one who stopped. He stood with his forehead against mine, breathing like he'd brought something heavy up a flight of stairs. He'd asked me the one thing he walked me down the hall to ask. He left the rest to me.
+He was the one who stopped. He stood with his forehead against mine, breathing hard. He'd asked me the one thing he walked me down the hall to ask. He left the rest to me.
 
 I went in anyway. I shut the door on him in his own house and lay down on a bed with seven pillows on it.
 
-His house was quieter than the empty one in Redwood City. I couldn't hear a refrigerator. I could hear one owl in the oaks.
+His house was quieter than the empty one in Redwood City. I couldn't hear a refrigerator. I could hear one owl in the oaks. Five low hoots, then nothing, then the same five. Nothing answered it.
 
 I'd told myself the guest room was about my ground. A car had come to my curb in June that said *the usual.* I wasn't going to be the usual in this house.
 
@@ -178,7 +398,7 @@ I didn't sleep. Owen was at his father's till Sunday. My crew wasn't till seven.
 
 In the middle of the night I was in his hall in my T-shirt with my hand up to knock on his door.
 
-There was light under it. I could hear the dog's tags on the floor. I could hear a page turn. He was awake too, reading something, a door away from me.
+There was light under it. I could hear Pancake's tags on the floor. I could hear a page turn. He was awake too, reading something, a door away from me.
 
 I had a sentence ready. I'd had it since midnight. It started with *I know what I said.*
 
@@ -188,7 +408,7 @@ Knocking is asking. I stood there with my hand up and couldn't do it.
 
 If Denise had told me she did that, I'd have laughed at her for a week. I put my hand down. I went back to the guest room and got under all seven pillows. I called myself every name I call Vili when he backs into a pole.
 
-Toward morning I heard the gravel. He was walking the dog.
+Toward morning I heard the gravel. He was walking Pancake.
 
 I listened to the two of them go down the drive. I was still listening when they came back.
 
@@ -212,9 +432,9 @@ I took my hand off the pan. I sat on the stool on the other side of the island a
 
 It was the hardest thing I did all week.
 
-He read the recipe out loud, one step at a time. He cracked the first egg on the edge of the island and got shell in the bowl. He went after it with a spoon, then with his fingers, then with half the shell, which works. He looked up at me when it worked like he'd found the stud in a wall on the first try.
+He read the recipe out loud, one step at a time. He cracked the first egg on the edge of the island and got shell in the bowl. He went after it with a spoon, then with his fingers, then with half the shell, which works. He looked up at me when it worked like he'd found the stud in a wall on the first try. My brain said, *Maybe you found yours the second time around.* I ignored my brain.
 
-I've seen that look on new men, the first time a load goes in square. Nobody had ever aimed it at me over a bowl of eggs. I wanted to go around the island and kiss him with the shell still in his hand.
+Nobody had ever aimed that look at me over a bowl of eggs. I wanted to go around the island and kiss him with the shell still in his hand.
 
 I didn't say a word. My hands stayed where they were.
 

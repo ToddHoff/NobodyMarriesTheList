@@ -10,7 +10,7 @@ I'd have paid for a print.
 
 Under it were two words. *Brennan's mover.*
 
-The slab was still cool under my back. Cal's head was against mine the wrong way round, his feet toward the kitchen and mine toward the bedrooms. The dog was snoring in the closet where the boxes had been. Cal's mouth was in my hair. I could feel him breathe in it. I'd been lying on his mother's floor for twenty minutes wanting to roll over and put my mouth on his neck. I still wanted to.
+The slab was still cool under my back. Cal's head was against mine the wrong way round, his feet toward the kitchen and mine toward the bedrooms. Pancake was snoring in the closet where the boxes had been. Cal's mouth was in my hair. I could feel him breathe in it. I'd been lying on his mother's floor for twenty minutes wanting to roll over and put my mouth on his neck. I still wanted to.
 
 “I know who to call,” he said. “It could be gone by midnight. Do you want that?”
 
@@ -242,17 +242,17 @@ He was going to make me say the whole thing.
 
 I put the phone down on the table.
 
-Tonight I'd said *can you*, at midnight, at my own table, to a man with eleven billion dollars. I'd asked him to read. I sat there and waited for it to cost me something. My face was hot.
+Tonight I'd said *can you*, at midnight, at my own table, to a man with eleven billion dollars. I'd asked him to read. I sat there and waited for the bill. My face was hot.
 
 Half an hour later one headlight came up my street.
 
-I watched him from the front window. He parked behind my pickup, went around to the back door of his car and lifted the dog down off the seat, sixty-four pounds, the way you'd lift a box you've been told is glass. The dog came up my walk and over my front step on his own.
+I watched him from the front window. He parked behind my pickup, went around to the back door of his car and lifted Pancake down off the seat, all sixty-four pounds, slow. Pancake came up my walk and over my front step on his own.
 
 “I said bring nothing,” I said.
 
 “He is not a thing.”
 
-I let them in. The dog went past me into my kitchen like he'd been there before.
+I let them in. Pancake went past me into my kitchen like he'd been there before.
 
 I filled Owen's cereal bowl at the sink and put it down by the back door. He drank it dry. I filled it again.
 
@@ -262,7 +262,7 @@ Cal sat down at my table and looked at the laptop. Then he pushed it square to t
 
 He used the arrows.
 
-The dog went under the table and lay down on my feet. He was warm all the way through my socks. I left my feet where they were.
+Pancake went under the table and lay down on my feet. He was warm all the way through my socks. I left my feet where they were.
 
 He read on the laptop. I answered on my phone. He'd read one, say “No,” and go to the next while I pasted my sentence under it and signed it. Every so often he'd stop and read one twice.
 
@@ -310,11 +310,11 @@ Gary Roth, Pacifica, March. I'd put a two-hour job ahead of him in San Bruno. It
 
 I answered Gary Roth before Cal could go on. *You're right. I put two jobs on that morning and I didn't call you. I should have. Jo Silveira, owner.*
 
-Cal read it upside down on my phone and went back to the laptop.
+Cal read it over my hand and went back to the laptop.
 
 In the three hundred and twelve there were nine people. He finished a little before three. The pad had nine names on it in his capitals.
 
-He stood up. The dog came out from under the table and leaned on his leg.
+He stood up. Pancake came out from under the table and leaned on his leg.
 
 “I walk him at five,” he said. “And you have Millbrae at seven.”
 
@@ -322,9 +322,9 @@ He stood up. The dog came out from under the table and leaned on his leg.
 
 “It takes forty minutes.”
 
-I walked them out to his car. He lifted the dog back onto the seat and shut the door. Then he looked at me across the roof of the car.
+I walked them out to his car. He lifted Pancake back onto the seat and shut the door. Then he looked at me across the roof of the car.
 
-He could have stayed till half past four. I wanted him to stay. I wanted him in my bed till my alarm, with the dog on the floor, and nobody reading anything. I'd already asked him for one thing tonight. I didn't know how many asks I had in me. I wasn't going to find out in my own driveway at a quarter to three.
+He could have stayed till half past four. I wanted him to stay. I wanted him in my bed till my alarm, with Pancake on the floor, and nobody reading anything. I'd already asked him for one thing tonight. I didn't know how many asks I had in me. I wasn't going to find out in my own driveway at a quarter to three.
 
 “You've got one headlight,” I said. “Somebody's going to write you a review.”
 
@@ -348,11 +348,11 @@ I took it to my pickup, got in and shut the door. Denise stood on the steps and 
 
 Fourteen pages, stapled in the corner.
 
-CONFIDENTIALITY AND NON-DISCLOSURE AGREEMENT. Calvin Brennan, the Disclosing Party. Joanna Silveira, the Recipient. It was the first one of these I'd ever seen. My address was on it, my house in San Bruno, and the yard's. The date we met was on it, May 7, and the Pied Piper.
+CONFIDENTIALITY AND NON-DISCLOSURE AGREEMENT. Calvin Brennan, the Disclosing Party. Joanna Silveira, the Recipient. It was the first one of these I'd ever seen. My address was on it, my house in San Bruno, and the yard's. The date we met was on it, May 7, and the Oak.
 
 I read contracts. I read every page of every one, because the piano is always in the part nobody reads. I took the pencil from behind my ear and read this one the same way.
 
-I wasn't to say anything about him to anybody. Not about his health, his money, his house, his company, his daughter or his dog. Not to post a word or a picture of him, anywhere, including any business listing. That one was for my company page. I wasn't to say anything about him ever, as long as I lived, whether we were seeing each other or not. If I did, I'd owe him two hundred and fifty thousand dollars for each time.
+I wasn't to say anything about him to anybody. Not about his health, his money, his house, his company, his daughter or Pancake. Not to post a word or a picture of him, anywhere, including any business listing. That one was for my company page. I wasn't to say anything about him ever, as long as I lived, whether we were seeing each other or not. If I did, I'd owe him two hundred and fifty thousand dollars for each time.
 
 On page five it said the Recipient would see to it that her employees, agents and family members did the same.
 
@@ -370,7 +370,7 @@ I found out one of their names on page nine. Everywhere else it said the Recipie
 
 I sat there with the pencil. Ms. Holcomb. She'd had ten days.
 
-I sat in my own truck with Denise watching through the windshield and wondered whether she'd met him at the Pied Piper too, at the same table, for forty-five minutes, and whether she'd been on time.
+I sat in my own truck with Denise watching through the windshield and wondered whether she'd met him at the Oak too, at the same table, for forty-five minutes, and whether she'd been on time.
 
 The fourteen pages were the San Mateo mother again. The right length, clean, sure of themselves. Wrong about my name.
 

@@ -24,7 +24,7 @@ She was at her desk with her glasses pushed up into her hair. She took them down
 
 “Then keep them short,” Janice said. “She already knows what you sound like.”
 
-I knew what I sounded like. The one about the dog was hers. When Jo read that one, her voice went on the last word.
+I knew what I sounded like. The one about Pancake was hers. When Jo read that one, her voice went on the last word.
 
 Janice had stopped on Tuesday, when Jo told her she already had her sister's name. I had been standing there. I had heard it as a correction. Janice had heard an instruction. She had followed it before I knew there was one.
 
@@ -142,7 +142,7 @@ My mother graduated from high school in 1972. She told me so when I was nine.
 
 I read the form twice. Nobody in the room said anything. Pancake was at the back door with his nose on the track. In the hall, Manny's tape gun stopped.
 
-She was born in March 1954. In April 1970 she had been sixteen for about a month. A girl in Grade 10 that April would have graduated in 1972. She had given me the right year.
+She turned sixteen in March 1970. A month later she was out of school. Her class graduated in 1972, without her. She had given me the right year.
 
 I had asked her once, at nine. I do not remember why I asked. I remember that she answered before I had finished the question.
 
@@ -254,7 +254,7 @@ I had been waiting since 5:35 for her to ask.
 
 She nodded and unwrapped her own. We ate without talking. The sky stayed white over the atrium. Pancake came out, stood in front of her, and leaned his whole side against her shin. She did not pet him. She did not move the leg.
 
-I wanted to be where the dog was. I stayed on my end of the bench.
+I wanted to be where Pancake was. I stayed on my end of the bench.
 
 At 11:40 she folded her foil into a square and stood up. She did not say anything about Tuesday. Neither did I.
 

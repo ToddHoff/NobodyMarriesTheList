@@ -6,7 +6,7 @@ It's on my fridge, under the magnet from the yard. He mailed it to me in August,
 
 1. ~~5'8″ or taller~~ *5/7*
 
-He measured me in the bar at the Palace with my own tape. Sixty-two and a quarter. I own six ladders.
+He measured me in the bar at the Oak with my own tape. Sixty-two and a quarter. I own six ladders.
 
 2. ~~Age 30 to 36~~ *5/7*
 

@@ -66,7 +66,7 @@ A plane was coming over her house. I heard it through the phone, low and tearing
 
 “Then I will find out at seven.”
 
-“He says bring the dog.”
+“He says bring Pancake.”
 
 Pancake had taken nine minutes at the post that morning.
 
@@ -92,7 +92,7 @@ The call had lasted four minutes and twelve seconds.
 
 On Friday it would be month four.
 
-At 9:30 I sat down at the counter with my laptop. On Saturday she had let me get one night at Ventana. She had paid for the dog herself, a hundred and fifty dollars on her own card. She had said yes to the room. It was the first night she had let me pay for that was not for Owen. I took it as a number I could build on.
+At 9:30 I sat down at the counter with my laptop. On Saturday she had let me get one night at Ventana. She had paid for Pancake herself, a hundred and fifty dollars on her own card. She had said yes to the room. It was the first night she had let me pay for that was not for Owen. I took it as a number I could build on.
 
 Kevin has Owen from Sunday. I worked it to the hour. We would leave on Tuesday the eleventh at nine. It is eleven hours to Tokyo going and about nine and a half coming back. The date line hands the day back on the way home. We would land at SFO on Friday the fourteenth at 10:40 in the morning. Abby comes to me at five.
 
@@ -394,7 +394,7 @@ At 9:00 on Friday morning Remy put it on my screen.
 
 I read it three times. I did not open the options. Fourteen days from today was August 21. I sat at my desk with my hands flat on it until 10:06.
 
-At 10:06 I typed the name of her lender and her loan number. I had read them upside down on her table on July 18 and again on Sunday at her counter. I read everything with a number on it. Under them I typed the balance from her July statement, $518,395.69, and the rate.
+At 10:06 I typed the name of her lender and her loan number. I had read them upside down on her table on July 18 and again on Sunday at her counter. Under them I typed the balance from her July statement, $518,395.69, and the rate.
 
 *The lender accepts payments to a loan from anyone. It gives the payoff figure only to the borrower or someone she authorizes. Statement balance: $518,395.69. Interest at 7.000 percent: about $99.42 a day. A wire of $521,000.00 with the loan number in the reference exceeds the statement balance by $2,604.31. The lender applies it, refunds any excess to the borrower and mails her the release of the lien. Routed to J. Louie for processing. Approve?*
 

@@ -6,7 +6,7 @@
 
 Vili waited until Manny was asleep, which is how I knew it was coming.
 
-Manny goes out against the passenger door with his hood up somewhere around the airport, on every job. Vili sat in the middle seat and watched him go. By the San Mateo Bridge he had his hands folded in his lap.
+Manny starts snoring against the passenger door with his hood up somewhere around the airport, on every job. Vili sat in the middle seat and watched him drop off. By the San Mateo Bridge he had his hands folded in his lap.
 
 “So I thought you liked him,” he said.
 
@@ -78,7 +78,7 @@ Asking him whether the four-wheel dolly was on the truck would have ended it. Bu
 
 “What did I say?”
 
-“You said at least you knew you were married.”
+“You said at least he came home.”
 
 I didn't remember saying it. It sounded like me.
 
@@ -96,7 +96,7 @@ I tried to think of one thing I had asked him for. What came was the water heate
 
 When a job ran late, the porch light was on when I pulled in. Kevin left it on for me. I never turned it on for him.
 
-The big hangar at Moffett was coming up on the left, the one they built for an airship before my father was born. For years it stood there with the siding off, nothing but frame, like a truck somebody had stripped for parts. They'd finished putting its skin back on that winter. Years ago a zeppelin flew out of there and sold rides. I used to watch it from this seat.
+The big hangar at Moffett was coming up on the left, the one they built for an airship before my father was born. For years it stood there with the siding off, nothing but frame. They'd finished putting its skin back on that winter. Years ago a zeppelin flew out of there and sold rides. I used to watch it from this seat.
 
 “Okay,” Vili said. “So here's what I think.”
 
@@ -124,7 +124,7 @@ Manny woke up at the Fremont Avenue exit and said something about his neck in tw
 
 It wasn't the end of it for me. I drove the last mile with both hands on the wheel, building the case against Vili. He had met the man twice. He was twenty-nine. He had never been married, or paid a mortgage, or sat across a kitchen table from somebody who was in the room and gone. I had it finished by Bernardo: a good case.
 
-The trouble was, Vili was right. Six years ago on 280, in the rain, on the Thursday of one of Kevin's quiet weeks, I pulled over for a load with nothing wrong with it. I got out and put my hand on every strap, every one of them tight. I got back in the cab and cried for about four minutes. Then I drove to Los Altos and did the job. I had not thought about it since.
+The trouble was, Vili was right. Six years ago on 280, in the rain, on the Thursday of one of Kevin's quiet weeks, I pulled over for a load with nothing wrong with it. I got out and put my hand on every strap. They were all tight. I got back in the cab and cried for about four minutes. Then I drove to Los Altos and did the job. I had not thought about it since.
 
 ***
 
@@ -138,7 +138,7 @@ The boots had a week on them. The gray shirt was one of the other thirty-nine. H
 
 “On Tuesday you said next time, ask. This was next time.”
 
-So my sister had talked to him twice. Both times she'd kept it to herself. Denise tells me everything. Whatever my crew won't say to my face, I hear from her by Friday. I'd take it up with her on Tuesday.
+So my sister had talked to him twice. Both times she'd kept it to herself. Denise tells me everything. Whatever my crew won't say to my face, I hear from her by Friday. I'd take it up with her later.
 
 Vili took two of the bags and handed one back to Manny. He looked into his own, then at me. It was two of everything. I knew what that look was worth. I wasn't paying it.
 
@@ -180,7 +180,7 @@ I didn't have a night. Owen came back in the morning for seven days, so it would
 
 The job that day was the hutch.
 
-It stood at the end of the bedroom hall, six feet of dark oak with glass doors on top. He had boxed the dishes out of it the Saturday before, in boxes with an H on every bottom. The dog was at the back door, watching. I had left the mixing bowl out there for him.
+It stood at the end of the bedroom hall, six feet of dark oak with glass doors on top. He had boxed the dishes out of it the Saturday before, in boxes with an H on every bottom. Pancake was at the back door, watching. I had left the mixing bowl out there for him.
 
 “Green or blue?” I said.
 
@@ -196,7 +196,7 @@ He put the blue tape on himself. He tore it clean.
 
 “It's two pieces,” I told him. “The top lifts off the base. There are four screws in the back nobody ever knows about. We take the drawers out, then the base. Nothing rides with anything in it.”
 
-There were three drawers. The bottom two held tablecloths. The top one I knew before I had it all the way open, because I had described it to him in a hotel bar.
+There were three drawers. The bottom two held tablecloths. The top one I knew before I had it all the way open, because I had described it to him at the Oak.
 
 It was bread ties. There were hundreds of them, sorted by color into a muffin tin, and a ball of rubber bands the size of a grapefruit. Behind the muffin tin, squared against the back of the drawer, was a stack of paper slips with a rubber band around it.
 
@@ -330,7 +330,7 @@ If anything happened, I was going to have to start it.
 
 I have been in tighter spots than that with heavier furniture. I never wanted to stay in one.
 
-I put my hand flat on his chest. I told myself I was making room. His heart was going like a truck in low gear. He looked down at my hand and then at my mouth, and I had already started up onto my toes.
+I put my hand flat on his chest. I told myself I was making room. His heart was going hard. He looked down at my hand and then at my mouth, and I had already started up onto my toes.
 
 “Boss.”
 

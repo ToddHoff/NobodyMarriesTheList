@@ -202,11 +202,11 @@ Nine lines in my capitals. Nine lines through them.
 
 I put my spoon in the bowl.
 
-“At the fence in June you asked me who wanted *comfortable being looked after*. I said, ‘I send things. I like it when they are used.’”
+“At the fence in June you asked me who wanted *comfortable being looked after*. I told you about my mother's clock.”
 
 “I remember.”
 
-“That was half of it.” He had his hands flat on the table on either side of the card. “I wanted someone who would use what I sent. Then I would not have to come. I could pick it out from the back of a car and never be in the room.”
+“That was half of it. I heard it through the wall.” He had his hands flat on the table on either side of the card. “I wanted someone who would use what I sent. Then I would not have to come. I could pick it out from the back of a car and never be in the room.”
 
 He said it to my face.
 
@@ -316,7 +316,7 @@ Outside it was cold and dripping. The streetlight at the corner had a ring aroun
 
 At the corner there's a signpost. Pancake stopped at it and put his nose to the bottom of it and stayed there.
 
-Cal stopped. He stood with the leash slack and looked at the fog where the ridge is. He waited for his dog.
+Cal stopped. He stood with the leash slack and looked at the fog where the ridge is. He waited for Pancake.
 
 I stood next to him with my hands pulled up inside the sleeves of his fleece.
 

@@ -38,9 +38,9 @@ I followed her into the kitchen and stood in front of the drawer she wanted.
 
 She put both hands on my hips and walked me backward across the kitchen until a chair at the table caught me behind the knees. I sat. One corner of her mouth went up.
 
-Nobody steers me. People who work for me ask where I would like to sit. Then they ask Janice. I could still feel each of her thumbs through my shirt, one on either side.
-
 “Stay there,” she said.
+
+I am not used to being ordered around. I sat. I could still feel each of her thumbs through my shirt, one on either side.
 
 The chair put my shoulder against the frame of the back door. There was pencil on it.
 
@@ -92,7 +92,7 @@ She laughed until she had to wipe her eyes with the dish towel.
 
 She ate with both hands and her elbows on the table. A plane went over. The glasses in her cupboard rang against each other. She did not look up.
 
-“Who's got your dog?” she said.
+“Who's got Pancake?” she said.
 
 “Rita has him. She is sleeping at the house tonight. She will walk him at five.”
 
@@ -166,7 +166,7 @@ I found the scar on the back of her left calf with my hand, a ridge about as lon
 
 I kept my hand there.
 
-I had known since the first night that a dog bit her on a job when she was twenty-six. I had not known which leg. On the first Saturday my dog came through a door she had left open and leaned his whole side against her left shin. She ate the rest of her lunch without moving it. It was this leg.
+I had known since the first night that a dog bit her on a job when she was twenty-six. I had not known which leg. On the first Saturday Pancake came through a door she had left open and leaned his whole side against her left shin. She ate the rest of her lunch without moving it. It was this leg.
 
 She came down over me and took me in slowly. She watched my face the whole while. I let her see it. Her breath went short. Then she quit being careful. So did I. A jet went over, climbing. The window hummed in its frame. I did not look up. Once, low, against my neck, she laughed at something I never found out.
 
@@ -188,7 +188,7 @@ The clock on her side of the bed said 11:14. I do not sleep in other people's ho
 
 The clock on her side said 7:02. It was light. For about four seconds I did not know whose ceiling it was. Then I knew. I lay there a while and listened to her house. A cupboard shut. The coffee maker finished and clicked off.
 
-The last time I had seen was 11:14. I had meant to be awake at five, when Rita would be walking my dog in Woodside. Somewhere between the two I had stopped waiting. I could not find the minute.
+The last time I had seen was 11:14. I had meant to be awake at five, when Rita would be walking Pancake in Woodside. Somewhere between the two I had stopped waiting.
 
 The bed was empty beside me. I could smell coffee. My watch was still turned around on my wrist. I left it that way.
 
@@ -212,7 +212,7 @@ She looked at me over the glasses.
 
 The mug said SILVEIRA MOVING & ESTATE and had a chip out of the rim. I stood at the end of her table with it and waited to be asked.
 
-Her mortgage statement was on the table under her pen. I read it upside down. I read everything with a number on it. The lender's name was at the top. The loan number was under it. The principal balance was $518,395.69. The interest rate was 7.000 percent. At the bottom was the coupon. In the box for additional principal she had written *1,900.00* in pen. Down the margin, circled twice, she had written *NOV 2036*.
+Her mortgage statement was on the table under her pen. I read it upside down. The lender's name was at the top. The loan number was under it. The principal balance was $518,395.69. The interest rate was 7.000 percent. At the bottom was the coupon. In the box for additional principal she had written *1,900.00* in pen. Down the margin, circled twice, she had written *NOV 2036*.
 
 I had read it to the bottom before I asked myself whether I should. The night before, I had read her custody calendar off her refrigerator without asking.
 

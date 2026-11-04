@@ -36,7 +36,7 @@ I stood in the hall and looked at the closet door. I could have opened it at 6:4
 
 Her truck turned onto Remington at 7:14. It was the sixteen-footer. She backed it into the driveway in one pass and sat in the cab for a minute before she got down.
 
-There was dust on her from the knees down and in the creases of her shirt. She had pad lint in her hair on one side. Her face was tired in a way I had not seen on a Saturday. I wanted to take the lint out of her hair. I put my hands in my pockets.
+There was dust on her from the knees down and in the creases of her shirt. She had pad lint in her hair on one side. I had never seen her tired on a Saturday. I wanted to take the lint out of her hair. I put my hands in my pockets.
 
 “Belmont ran long,” she said. “Two loads.”
 

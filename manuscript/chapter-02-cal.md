@@ -38,11 +38,13 @@ She took the pencil down and pulled the card over. Under the first line she wrot
 
 I did not have an answer. Remy does not show its work unless you ask. I had not asked.
 
-Thirty-six was five years under me. Thirty was eleven years under me and twelve over my daughter.
+I was forty-one. My daughter was eighteen. The bottom of the range was halfway between us, to within six months.
 
-She slid the card back with two lines on it, both crossed out. She was forty-four. She had gray coming in over her left ear that she had done nothing about and lines at the corners of her eyes from years of looking at things in full sun. On a billboard we take those out first. When she smiled, I looked at them more than at anything else in the bar. I had specified against all of it. Sitting there, I could not have told you what I had against it.
+She slid the card back with two lines on it, both crossed out. She was forty-four. She had gray coming in over her left ear that she had done nothing about and lines at the corners of her eyes from years of looking at things in full sun. On a billboard we take those out first. When she smiled, they went deeper. I looked at them more than at anything else in the bar. I had specified against all of it. Sitting there, I could not have told you what I had against it.
 
-My watch tapped my wrist. *Heart rate 104. No workout detected.* It looks like a steel watch with two hands. There is one of it. Our hardware group built it for me around a Swiss movement, so that Remy could reach me in a meeting without anyone seeing a screen. The words come up under the crystal and go away.
+My watch tapped my wrist. *Heart rate 104. No workout detected.*
+
+It looked like a conventional steel watch. Two hands, silver dial, no visible complications. The case was machined from a single block of titanium, and the movement was something our hardware group had spent two years developing. The dial was a layered sapphire display, invisible until Remy needed it. Then the hands moved aside, and information appeared beneath the surface, suspended inside the watch. It ran on a combination of wrist-generated energy and a miniature reserve cell. I had never plugged it in. I did not even know where the charging port was. It did not need one.
 
 I put my hand in my lap.
 
@@ -108,9 +110,9 @@ By then she had put a second twenty on the table. A third came later. I have a t
 
 “The last one. What did she do?”
 
-“She asked whether I would consider rehoming my dog.”
+“She asked whether I would consider rehoming Pancake.”
 
-“On a first date.”
+“On a first date!”
 
 “She asked at minute thirty-one. I asked for the check at thirty-two. It is the only one I have ended early.”
 
@@ -126,7 +128,7 @@ I waited for the rest of it. I had heard the rest at minute thirty-one.
 
 “Then you would have asked the same thing.”
 
-“No.” She said it flat. “He was there first. You go stand where the dog isn't.”
+“Of course not.” She said it flat. “He was there first. You go stand where Pancake isn't.”
 
 The woman at minute thirty-one had told me she loved dogs. She had two. She wanted mine gone because he is old and he sheds.
 
@@ -154,7 +156,7 @@ I had nothing in fourteen years to file that under.
 
 She did not say anything kind. I was grateful. People say kind things to me and then I have to do something with them.
 
-“I can tell you what's in it,” she said. “I don't need to see it. A drawer of bread ties and rubber bands. Every card that ever came with your name on it. A box of your old trophies somewhere in the back. Kids never take it. And one dish.”
+“I can tell you what's in it,” she said. “I don't need to see it. A drawer of bread ties and rubber bands. Every card that ever came with your name on it. A box of your old trophies somewhere in the back. And one dish.”
 
 “There is a dish.”
 
@@ -184,7 +186,7 @@ I looked at the card. I squared it to the edge of the table. She watched me do i
 
 She was smiling when she said it. I had been waiting since minute thirty-eight to see that again.
 
-“The daughter who named the dog,” she said. “How old is she now?”
+“The daughter who named Pancake,” she said. “How old is she now?”
 
 “She is eighteen. Her name is Abby. She got into Cal Poly for architecture. She came off the waitlist.”
 
@@ -196,7 +198,7 @@ I had said that sentence four times that week, once in a board meeting. At that 
 
 She pulled the napkin out from under her beer and passed it across. She did not look away and she did not look harder. She waited until I had used it.
 
-The four times before, somebody had said congratulations. Each time I had said thank you and gone on to the next thing. Jo had asked about the girl who named the dog.
+The four times before, somebody had said congratulations. Each time I had said thank you and gone on to the next thing. Jo had asked about the girl who named Pancake.
 
 “What does she want to build?”
 
@@ -214,7 +216,7 @@ She was leaving for San Luis Obispo in the middle of September. That was four mo
 
 She did the subtraction faster than I would have liked. “You were twenty-three.”
 
-“Yes.”
+“It is what you do after you get married.”
 
 “You were a kid yourself.”
 
@@ -264,7 +266,7 @@ I would not have thought of her car. At minute forty-five my car comes for me. I
 
 Jo was looking at the phone. “Is that who crosses her sevens?”
 
-“Yes.”
+“She writes one for everybody I meet.”
 
 “What did she want?”
 
@@ -290,7 +292,7 @@ I wanted to put my hand back where it had been. I put it in my pocket instead, o
 
 “Before I walked in, I sent my sister your name and where I'd be.”
 
-“Why did you?”
+“Why do that?”
 
 “Because you're a man I'd never met.” She said it without heat. “She didn't need the picture. She drives under it.”
 
@@ -352,4 +354,4 @@ I called Dawn Pruitt at midnight. I got her machine.
 
 The reservoir was going by on the right, flat and black.
 
-“Eleven of the twelve are wrong,” I said. “She says the house is a job. I would like to take her to dinner.”
+“Two of the twelve are wrong so far,” I said. “She says the house is a job. I would like to take her to dinner.”

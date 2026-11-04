@@ -8,7 +8,7 @@ I have sent men home for sitting in a truck on my time.
 
 I got off his elevator, walked to my truck and shut the door. I waited to cry. I didn't. I wanted a dolly and a flight of stairs.
 
-Upstairs I had stood at the edge of his floor and watched him stop a thing that was going out to forty million phones on Thursday. He did it in one sentence, at the volume I use to tell Vili which truck. It was about the boxes he'd sent his mother. The last one was still on her hearth with no tape on it.
+Upstairs I had stood at the edge of his floor and watched him stop a thing that was going out to forty million phones on Thursday. He did it in one sentence. It was about the boxes he'd sent his mother. The last one was still on her hearth with no tape on it.
 
 I'd stood there with my clipboard and been proud of him, like he was one of my crew. Then I asked him Owen's other question like it was nothing. I had already told my son the answer.
 
@@ -16,7 +16,7 @@ After a while I took out my phone.
 
 There were thirty-two. I went through them the way I go through a closet, every one, out loud.
 
-*Thank you for today. At eight you read three labels I would rather nobody had read. You didn't look at me once.*
+*Thank you for today. At eight you read the slips on three boxes I would rather nobody had read. You didn't look at me once.*
 
 “Hers,” I said.
 
@@ -34,7 +34,7 @@ There were thirty-two. I went through them the way I go through a closet, every 
 
 I had read that one to Vili at a red light on Grand Avenue. I had thought about it in every empty house since.
 
-The one about the dog I didn't read out loud. I had read it three times in my kitchen the first night. *He leans on the people he intends to keep.* I'd thought that was about me. A woman I met an hour ago wrote it.
+The one about Pancake I didn't read out loud. I had read it three times in my kitchen the first night. *He leans on the people he intends to keep.* I'd thought that was about me. A woman I met an hour ago wrote it.
 
 I said “Hers” anyway. I made myself.
 
@@ -108,7 +108,7 @@ I remembered it. He'd been on the sidewalk in suede shoes with his back to his m
 
 I turned the key.
 
-“He's driving to your yard,” she said. “He wanted you told, so that he wouldn't show up unannounced.”
+“He's driving to your yard,” she said. “He wanted me to tell you, so that he wouldn't show up unannounced.”
 
 “I'm not at my yard.”
 
@@ -136,7 +136,7 @@ Denise was down the office steps before I had the brake set.
 
 “HE didn't hit any.”
 
-I got down. My father was in his chair on the dock, on the cushion. Cal Brennan was beside him in the gray shirt with a stack of furniture pads, every one of them folded square.
+I got down. My father was in his chair on the dock, on the cushion. Cal Brennan was beside him in the gray shirt with a stack of furniture pads folded square.
 
 “What did he do?” Denise said.
 
@@ -148,7 +148,7 @@ She had two coffees and gave me one. She had her face ready to be on my side. Sh
 
 “Hers.”
 
-“The one about the dog?”
+“The one about Pancake?”
 
 “Hers.”
 
@@ -206,7 +206,7 @@ I had come ready for the fix. I had a version for a check and a version for an a
 
 “You drove up here to tell me you've got nothing.”
 
-“Yes.”
+“Usually it is typed before I get there.”
 
 Dawn had said to watch what a man does with a no. I hadn't told him no. I'd asked him how, in front of Janice. He'd driven up to my yard to say he didn't have one. When Kevin didn't have an answer, he came home and ate dinner and passed the salt. He didn't talk to me till Sunday.
 
@@ -216,7 +216,7 @@ I took the clipboard off the hook and turned to a clean found sheet. My hands ne
 
 I got my phone out and started at the top.
 
-“‘Thank you for today. At eight you read three labels.’”
+“‘Thank you for today. At eight you read the slips on three boxes.’”
 
 “It is Janice's,” he said.
 
@@ -236,7 +236,7 @@ I had told myself I'd read that one flat, like a packing slip. My voice went on 
 
 If he'd said it was his, I would have written it down. I wanted him to. I'd have put it in his column and never asked him again.
 
-I called out all thirty-two. He knew every one without looking at the screen and didn't claim one of hers. Not even the dog. I wrote 23 on the sheet and 9 under it, pressing hard enough that the numbers came through on the next two pages.
+I called out all thirty-two. He knew every one without looking at the screen and didn't claim one of hers. Not even the one about Pancake. I wrote 23 on the sheet and 9 under it, pressing hard enough that the numbers came through on the next two pages.
 
 “Janice hoped my boots were off,” I said. “Janice told me to get my father a cushion. I bought it.”
 
@@ -298,7 +298,7 @@ I did not step back. Neither did he. My heart was going, but I was not going to 
 
 I had stood on a curb in a dress for that line. I had made him get the number right.
 
-Nine seconds. I can build a box in less. Dawn told me before the first night that I wasn't on that list. That was why I went. I figured a woman who isn't on the list can drink her beer and go home.
+Nine seconds. I can build a box in less.
 
 I hung the clipboard back on its hook with the sheet on it, facing out, where I would see it every time I pulled that door.
 

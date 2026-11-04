@@ -22,13 +22,13 @@ Dawn had called on a Tuesday while I was signing a permission slip.
 
 I was also twenty minutes late.
 
-That was a recliner's fault. A widow in Daly City had kept one hand on a La-Z-Boy until I was already late. The hotel valet took one look at my truck and said a hundred and ten dollars. Oversized vehicle. I told him I'd be forty-five minutes. He said a hundred and ten. I put it in a yellow zone on Minna Street, where the curb said loading until six, and changed my shirt in the cab.
+That was a recliner's fault. A widow in Daly City had kept one hand on a La-Z-Boy until I was already late. The valet took one look at my truck and said a hundred and ten dollars. Oversized vehicle. I told him I'd be forty-five minutes. He said a hundred and ten. I put it in a yellow zone on Minna Street, where the curb said loading until six, and changed my shirt in the cab.
 
 I keep a clean one behind the seat in a dry-cleaning bag. People will let you into their dead mother's house in a clean shirt. The boots I could do nothing about.
 
-At the hotel door I texted my sister, Denise.
+At the door I texted my sister, Denise.
 
-*Going in. Palace Hotel, the bar with the painting. Cal Brennan.*
+*Going in. The Oak, on New Montgomery. Cal Brennan.*
 
 *THE BILLBOARD??*
 
@@ -40,9 +40,9 @@ At the hotel door I texted my sister, Denise.
 
 Vili is my crew lead. He's six foot four and can carry a refrigerator up a flight of stairs by himself.
 
-I came in past a room off the lobby with a glass ceiling glowing amber high up on marble columns and crystal chandeliers hanging down the middle. I was twenty minutes late. I slowed down anyway. I've wrapped chandeliers for estates in Atherton. I'd want two men and a day for one of those.
+The place is called the Oak, for the painting behind the bar. I'd put it at sixteen feet. It's one oak on a gold hill, wider than it is tall, with nothing around it but two cows lying in its shade. If the cows are to scale, the trunk is eight feet through. One limb goes out low and long and sets its elbow down in the grass before it goes back up. Whoever painted it sat in that grass a long time.
 
-The bar is named for the painting behind it, which I'd put at sixteen feet and which shows a piper walking a line of children out of town. Somebody decided that was the thing to look at over a drink.
+I was twenty minutes late. I slowed down anyway. I wanted to put my hand flat on it. I don't touch what isn't mine.
 
 He was at the corner table, reading something in his lap.
 
@@ -52,7 +52,7 @@ He stood when he saw me and, for a second, did nothing else. I know the look. I 
 
 I'd been counting on the billboard to have exaggerated. It hadn't. It had left out the gray coming in over his ears and a front tooth that sat a little behind its neighbor. He had gotten to his feet for a woman in work boots.
 
-My stomach dropped the way it does when the truck tops a hill I'd forgotten was there. I'm forty-four. I hadn't felt that since before I was married. I didn't care to start again in a hotel bar, over a man with a list.
+My stomach dropped the way it does when the truck tops a hill I'd forgotten was there. I'm forty-four. I hadn't felt that since before I was married. I didn't care to start again in a restaurant, over a man with a list.
 
 He put out his hand. Mine has a tape-gun callus across the palm and had, that day, a cardboard cut on the thumb. His was warm and dry. He held on a half second longer than a handshake takes, looking at the cut.
 
@@ -70,7 +70,7 @@ He looked at my boots, then at his watch, doing the subtraction where I could se
 
 “I have what?”
 
-“I book forty-five. You have used twenty.” He said it the way I tell a customer the truck is full. “It is not a penalty. It is arithmetic.”
+“I book forty-five,” he said. “You have used twenty. It is not a penalty. It is arithmetic.”
 
 That was the first reason not to like him. After that handshake I was collecting them.
 
@@ -176,11 +176,11 @@ He had stopped looking at the card. When I tell people what I do, they give me t
 
 “What does he have to carry?”
 
-“He never says.”
+“The heavy end.”
 
 My beer came with six dollars of change. I left the change where it was.
 
-I'd told him more than I tell clients who ask on their own. While I drank, I looked at his hands on the table, because my father would have. They were clean to the wrist. I'd have bet they had never been under the heavy end of anything. I had my answer. I kept looking at them anyway.
+He'd asked about my father because a card told him to. I'd told him more than I tell people who mean it. While I drank, I looked at his hands on the table, because my father would have. They were clean to the wrist. I'd have bet they had never been under the heavy end of anything. I had my answer. I kept looking at them anyway.
 
 The card said not to mention the list. I drew a line through that DON'T.
 
@@ -196,7 +196,7 @@ The card said not to mention the list. I drew a line through that DON'T.
 
 “May I ask why?”
 
-“Seven people on payroll. A nine-year-old. A truck that's started making a noise on hills.” I drank some of my fourteen dollars. “A man who's already crossed me off, I can have a beer with.”
+“You may. Seven people on payroll. A nine-year-old. A truck that's started making a noise on hills.” I drank some of my fourteen dollars. “A man who's already crossed me off, I can have a beer with.”
 
 He took his time with that.
 
@@ -205,8 +205,6 @@ He took his time with that.
 “The what?”
 
 “You drove in from Daly City to buy your own beer. You want something.”
-
-He asked like a man who wants to know what a couch weighs before he picks up his end.
 
 “One line,” I said. “Off the list. In the ten minutes I've got left, I'd like to know one thing I'm not.”
 
@@ -220,7 +218,7 @@ I unzipped the purse again and set the tape measure on the table between us.
 
 “Twenty-five feet of Stanley. You don't take a number on faith, do you?”
 
-“No.”
+“I pay people to check them.”
 
 “Let's measure.”
 
@@ -290,7 +288,11 @@ I'd had two lumpia standing up in a driveway at lunch and nothing since. I took 
 
 “Have one. It's your table.”
 
-He ate it braced, like my son with anything green. Then he took a second one.
+He ate it braced, like my son with anything green. He chewed it for a while.
+
+“They were wrong,” he said.
+
+He pushed the glass across the table to me.
 
 I wondered how many women had sat in this chair across from six shrimp nobody ate. I hadn't been in it long enough to finish a beer. I'd already written on his card and fed him. Denise would want all of it by morning. I knew I wasn't going to give her any.
 
@@ -368,7 +370,7 @@ He looked at the phone, then at the folder. Then he looked at me with the look f
 
 He turned the phone face down.
 
-I have stood in a lot of living rooms while somebody's son checked his phone over his mother's things. I put my purse back on the floor. I wanted him to keep looking at me like that. That was new.
+I have stood in a lot of living rooms while somebody's son checked his phone over his mother's things. I put my purse back on the floor. I wanted him to keep looking at me like that. That hasn't happened since Kevin.
 
 “I will have another,” he told the bartender.
 
@@ -378,7 +380,7 @@ It was an honest question. Cal Brennan had to look into his own glass to answer 
 
 “And for you?” the bartender asked me.
 
-Owen was at his father's until Sunday. There was nobody at my house to know what time I got in.
+Owen was at Kevin's until Sunday. There was nobody at my house to know what time I got in.
 
 I had a six a.m. load in Pacifica. I had four reasons by then. I couldn't have told you which column any of them were in.
 

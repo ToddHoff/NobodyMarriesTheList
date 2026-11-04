@@ -413,7 +413,7 @@ She tore the end off the bread.
 
 The Thursdays were the counselor I had Janice book us. I went to two. Stephanie went to the rest by herself, in a room I had paid for, with a chair in it for me.
 
-I asked her nothing else that night. I paid. In the car I typed what she had said into her contact, word for word, because I did not understand it and I wanted it exactly. I thought that when I understood it I would know what to do about it.
+I asked her nothing else that night. I paid. In the car I typed what she had said into her contact, word for word, because I did not understand it and I wanted it exactly.
 
 I went up to the top of the contact, where it had said X since 2012. I deleted the X and typed Stephanie. From now on Remy would read me her messages by her name.
 
@@ -482,7 +482,7 @@ Dawn did not say she knew. She did not say she was sorry. I heard the half cup g
 
 “Tell me,” she said.
 
-I told her in order, the way I would give it to a board, with the dates. The loan number, read upside down at her table in July. Her dock, and her two noes. The Friday, the wire at 3:12, the amount. Janice at 3:30. Jo on my floor on Wednesday with her tape measure, and the doors of the elevator closing. It took four minutes. Dawn let me get to the end.
+I told her in order, the way I would give it to a board, with the dates. The loan number, off her table in July. Her dock, and her two noes. The Friday, the wire at 3:12, the amount. Janice at 3:30. Jo on my floor on Wednesday with her tape measure, and the doors of the elevator closing. It took four minutes. Dawn let me get to the end.
 
 When I was finished she was quiet for long enough that I said her name.
 
@@ -664,7 +664,7 @@ I thought of the shoebox on my desk. *Calvin, house.* She had not been paying of
 
 I had a minute on the ninth. She died on the eighth.
 
-I sat on the floor of my hall with my dog. I did not get up. I did not know how long. I did not look.
+I sat on the floor of my hall with Pancake. I did not get up. I did not know how long. I did not look.
 
 I played it again. Forty-seven seconds. Then I played it again.
 

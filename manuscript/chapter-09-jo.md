@@ -22,7 +22,7 @@ Cal stopped on the walk and read the side of the truck.
 
 “That's how people end up with storage units,” I said, and went to the window.
 
-I laughed the whole way over. He could have told me he'd picked it. I've had clients stand in their own kitchens and tell me they knew what was in a drawer they hadn't opened in thirty years. This one stood on the walk with his hands at his sides and let me laugh at him. I had to get my face straight at the window.
+I laughed the whole way over. He could have told me he'd picked it. He stood on the walk with his hands at his sides and let me laugh at him. I had to get my face straight at the window.
 
 The man in it had an apron on and a towel over his shoulder. He looked at the dress.
 
@@ -58,8 +58,6 @@ Cal was back before he had turned it.
 
 “There are nine of them,” he said. “They finish at ten.”
 
-In twenty years I've had about five clients walk out to my truck to tell my guys something themselves. At dinner he had typed one line under the table and got a taco truck. He could have typed one more.
-
 We stood at the window while he cooked. It was the first heat I had been near all night that smelled like food.
 
 “How much does a dentist's chair weigh?” Cal said.
@@ -90,7 +88,7 @@ He stood on that for a while.
 
 “I did not say anything about it at your door,” he said. “Nothing I had was good enough.”
 
-The man in the window asked me twice about onions and cilantro. On a job I can hear a dropped screw two rooms away.
+The man in the window asked me twice about onions and cilantro.
 
 I'd stood at my closet before I left and taken the dress off once and put it back on. At the door he had looked at it long enough that I raised my eyebrows at him. Then he didn't say a word about it through twelve courses. I had decided that meant he didn't think much of it.
 
@@ -154,7 +152,7 @@ On a job I eat away from the crew. Nobody watches me do it. I had grease running
 
 “That was the best thing I have eaten tonight.”
 
-I got up and opened the cab. I keep a bag of clean rags behind the seat, next to the shirt. I gave him one and took one. We stood there wiping our hands like two guys at the end of a job.
+I got up and opened the cab. I keep a bag of clean rags behind the seat, next to the shirt. I gave him one and took one. We stood there wiping our hands.
 
 That was when I saw it. With me up on the curb and him down on the asphalt, I was looking straight at his collarbone. Down on the asphalt with him, that's where the top of my head goes.
 
@@ -202,7 +200,7 @@ He was holding still. I had told him to.
 
 He came down.
 
-He tasted like salt. For a second he kissed like a man following an instruction. Then his hand came up to the side of my face and he quit being careful. I felt it all the way down the backs of my legs. I have lifted with those legs for twenty years. They had not done that before.
+He tasted like salt. For a second he kissed like a man following an instruction. Then his hand came up to the side of my face and he quit being careful. I felt it all the way down the backs of my legs.
 
 His other hand still had my rag in it. I could feel it against my back. I hadn't kissed anybody since Kevin. Toward the end with Kevin it was something you did at the door with your keys already out. I kept my hand flat on his chest. I didn't trust it anywhere else.
 
@@ -230,7 +228,7 @@ On the way out I passed the taco truck. Three people in aprons were at the windo
 
 ***
 
-It is forty-five minutes home at that hour. I took 17 to 85 to 280 with the windows down, because the cab smelled like a taco truck and so did I. When the truck made its noise on the grades, I turned the radio up over it.
+It is forty-five minutes home at that hour. I took 17 to 85 to 280 in my pickup with the windows down, because the cab smelled like a taco truck and so did I.
 
 At the last light before the freeway I could still feel where his hand had been on the side of my face. I put my own hand there. The man in the next car saw me do it.
 
@@ -242,7 +240,7 @@ There was a taco truck he'd asked me about before he sent for it. He'd paid for 
 
 I went through it twice. No piano.
 
-That should have settled it. I have cleared two hundred houses. Twice I've walked one and called it clean. Both times I was back the next morning for what I'd missed.
+That should have settled it. Twice I've walked a house and called it clean. Both times I was back the next morning for what I'd missed.
 
 The reservoir went by on my left, flat and black. By my exit I had quit looking and still hadn't texted my sister.
 

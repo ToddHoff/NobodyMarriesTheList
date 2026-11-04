@@ -4,7 +4,7 @@
 
 Jo picked a Wednesday. Before I left the house, I asked my daughter a question.
 
-The Wednesday was June 3. I had told Jo the place would be in Los Gatos, in a room that is open five nights a month. She picked one of the five without knowing it. I checked whether I had arranged that. I had not.
+The Wednesday was June 3. I had told Jo the place would be in Los Gatos, in a room that is open five nights a month. She picked one of the five without knowing it. I checked whether I had arranged that. I had not. In season I take people to the suite at Chase Center. They watch Steph Curry, and I do not have to say much. The Warriors had been out since April.
 
 Abby was at the refrigerator when I came down. She had the door open and was eating out of a container with her fingers, standing up, with Pancake lying across her feet. There was a sheet of paper on the freezer door under a magnet. For three weeks I had taken it for a schedule.
 
@@ -62,7 +62,7 @@ Abby had that from my mother. I had never heard my mother say it. She handed me 
 
 “I did not know that,” I said.
 
-“I know you didn't.” She stepped over the dog. “Have a good dinner. Thanks for asking!”
+“I know you didn't.” She stepped over Pancake. “Have a good dinner. Thanks for asking!”
 
 I heard the exclamation point. With Abby it means a door has closed.
 
@@ -108,9 +108,11 @@ The room is small and low, fourteen tables with candles in glass, and a wall of 
 
 “I picked it. Janice made the call.”
 
-“Huh,” she said, and opened her napkin.
+“I'll allow it,” she said with a smile, and opened her napkin.
 
 The first course was one pea in a glass spoon. The second was an oyster about the size of my thumbnail. The third came under a glass dome full of smoke. When the smoke cleared, there was a radish.
+
+Each course came with its own wine, two ounces in a clean glass, and a woman to tell us about its terroir. Jo tasted every one and left the rest. She had to drive back to San Bruno. I left mine too.
 
 She ate each one in a single bite. Then she put her fork down and looked at the place where it had been. At the oyster she shut her eyes for two seconds. I left mine on its plate until she opened them.
 
@@ -172,7 +174,7 @@ I am not corrected often, and never at dinner.
 
 “I know it is,” she said. “I'm telling you I can hear the difference. That's all.”
 
-Nobody had told me about the shoulders. At the Pied Piper I had talked with her for three hours. The voice had dropped once in all that time, for a stranger. I did not know what I had sounded like for the rest of the night. I had not been listening. I would have liked a recording of it, so that I could find out what I had done and do it again. Under the edge of the table I typed a note to myself: *Remy. Record feature.*
+Nobody had told me about the shoulders. At the Oak I had talked with her for three hours. The voice had dropped once in all that time, for a stranger. I did not know what I had sounded like for the rest of the night. I had not been listening. I would have liked a recording of it, so that I could find out what I had done and do it again. Under the edge of the table I typed a note to myself: *Remy. Record feature.*
 
 She did not go back to her plate.
 
@@ -228,7 +230,7 @@ The lines at the corners of her eyes came out.
 
 “The bread was the fifth course,” I said, faster than I have answered anything in a board meeting.
 
-“I've been up since four-thirty. I moved a dentist's office today, with chairs. I've had eight plates and one roll. I think it comes to about a cup of food.”
+“I've been up since four-thirty. I moved a dentist's office today, with chairs. I've had eight plates and one roll. All together it's about half a sandwich.”
 
 “It is considered one of the best meals in California.”
 
@@ -254,7 +256,7 @@ She looked at the phone, and then at me.
 
 “Then you owe me something to eat.”
 
-“Yes.”
+“I always pay what I owe.”
 
 “All right,” she said. “Tell your robot.”
 
@@ -302,7 +304,7 @@ I moved mine across. She had asked me the same question about six shrimp, twenty
 
 She started on them one at a time, with her fingers. I watched her mouth until she looked up and caught me at it.
 
-I did not look away. I could feel my ears go hot. I let her see that too. There was strawberry at the corner of her mouth. I wanted to take it off with my thumb. After that I wanted my own mouth there, in a room where two tables had already turned around once that evening.
+I did not look away. Neither did she. There was strawberry at the corner of her mouth. I wanted to take it off with my thumb. After that I wanted my own mouth there, in a room where two tables had already turned around once that evening.
 
 “You owe me two lines off that list,” she said. “One for the dinner. One for making me say it.”
 
@@ -320,7 +322,7 @@ She stopped with the last of my strawberries halfway.
 
 “None of them?”
 
-“No.”
+“No. Each one is there because of someone.”
 
 She studied me. I had seen her study a hutch like that, working out where the weight was.
 
@@ -332,7 +334,9 @@ I let her look. I could have said any two of the eight in the voice she had caug
 
 “I keep books.”
 
-“I have met your sister.”
+“Your sister keeps them.”
+
+She laughed. “That's fair.”
 
 There is no check in that room. I had forgotten that it would matter.
 

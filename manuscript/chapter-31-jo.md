@@ -98,7 +98,7 @@ If it came from my phone, it came from me.
 
 “No,” I said. It came out the way I talk to my crew.
 
-His face came down like a roll-up door, from the top. He didn't argue. He looked at the dots on his screen and didn't say anything.
+His face shut. He didn't argue. He looked at the dots on his screen and didn't say anything.
 
 I sat down on the step next to my son and put my hand on his back.
 
@@ -188,7 +188,7 @@ She shifted the bag on her arm.
 
 She said it in order, without any heat. She'd had it ready a long time.
 
-Around the fourth. We'd had a beer at the Palace on the seventh of May. The wire went in on the tenth of August. *He always gives a present before the end,* Janice had said, with her tape gun on the desk.
+Around the fourth. We'd had a beer at the Oak on the seventh of May. The wire went in on the tenth of August. *He always gives a present before the end,* Janice had said, with her tape gun on the desk.
 
 He'd never taken me to Napa. He'd taken me to a dog park in Los Gatos. I'd driven him to Carmel in my truck.
 
@@ -206,7 +206,7 @@ I opened the envelope. It was forty pages, stapled at the corner, with tabs. PRE
 
 I read it standing up.
 
-I read every contract that crosses this desk. You read the parts in capitals first, then go back for the rest. She stood on the other side of the desk the whole time with her bag on her arm. She didn't look at her phone once. I've had clients who couldn't stand still for one box.
+I read every contract that crosses this desk. You read the parts in capitals first, then go back for the rest. She stood on the other side of the desk the whole time with her bag on her arm. She didn't look at her phone once.
 
 Everything he had before the wedding was his. So was everything he made after it. If it ended there was no support. On page eleven I WAIVED it, in capitals. If he died I got nothing, while a trust with Abby's name on it stayed whole. I looked for Owen. He wasn't in it anywhere. He didn't need to be. He's mine.
 
@@ -240,7 +240,7 @@ She looked at it. She didn't take it yet.
 
 “Nobody's asked me anything,” I said. “If he does, he can bring it himself.”
 
-She took it then. She held it against her chest, the way I carry a clipboard.
+She took it then. She held it against her chest.
 
 “Abby says your son ranks dogs,” she said. “Is he ranking Cal?”
 
@@ -482,7 +482,7 @@ Kevin's longest was Tuesday to Sunday. Six.
 
 By the time I'd done the dishes Owen was asleep, with his door open a foot.
 
-I sat at my counter with the light over the stove on and nothing else. The fleece was on the back of the chair. I put it on. It still smelled like his dog and the cold at his gate. I wanted him at my counter so bad my stomach hurt.
+I sat at my counter with the light over the stove on and nothing else. The fleece was on the back of the chair. I put it on. It still smelled like Pancake and the cold at his gate. I wanted him at my counter so bad my stomach hurt.
 
 On the terrace at Ventana he'd turned his hand over under mine and held on, and looked at me, and waited. I passed him the bread, the way Kevin used to pass me the salt.
 

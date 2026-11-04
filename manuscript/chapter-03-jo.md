@@ -158,7 +158,7 @@ He had on the gray shirt. It could have been the same one or one of its brothers
 
 I have met a great many people at the curb of a dead parent's house. Most of them are looking at the house. He was looking at the street.
 
-In daylight he was worse. The sun found the gray over his ears and the front tooth that sits a little behind its neighbor. I'd said no to Dawn an hour before.
+In daylight he was worse. The sun found the gray over his ears. He looked like he'd slept about as much as I had. I'd said no to Dawn an hour before.
 
 “Your machine called my machine at midnight,” I said.
 
@@ -224,7 +224,7 @@ I'd meant to say it once and be square.
 
 “So for seven months you've had the right to walk in that door and do what you like with every spoon in the place.”
 
-“Yes.”
+“I drive by on Sundays.”
 
 “What's kept it shut?”
 
@@ -234,7 +234,7 @@ He looked down at his shoes. They had wet grass on them already.
 
 He hadn't pretended last night either.
 
-I've heard every reason a house sits shut. The lawyer's slow. The brother won't sign. In twenty years nobody has stood at the curb and told me the reason was him. I liked him for it.
+I've heard every reason a house sits shut. The lawyer's slow. The brother won't sign. In twenty years nobody has stood at the curb and told me the reason was him. I had to like him for it.
 
 “Have you got a key on you?”
 

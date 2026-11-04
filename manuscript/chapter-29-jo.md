@@ -14,13 +14,13 @@ I gave it four minutes. I watched a plane come in low over the bay with its ligh
 
 One went right through it.
 
-It came out of nothing over the yard and went the whole way across, over my roof toward the ridge, one long white stroke, faster than anything coming into SFO. It was a box cutter going down the tape on a box. It didn't blink or make a sound. At the very end it went green, for about as long as it takes to say green, before the sky closed up behind it.
+It came out of nothing over the yard and went the whole way across, over my roof toward the ridge, one long white stroke, faster than anything coming into SFO. It didn't blink or make a sound. At the very end it went green, for about as long as it takes to say green, before the sky closed up behind it.
 
 “There,” I said out loud, to nobody, in my socks.
 
 On the screen it was a long white line going up from the hill with the sign on it, green at the top. I sent it to Owen. *Saw one.* He'd be asleep till seven.
 
-Cal would be up. He walks his dog down to his gate at five.
+Cal would be up. He walks Pancake down to his gate at five.
 
 I opened his thread. The last thing in it was his, from Thursday night. *Your father and I folded forty-eight pads.* I hadn't answered it. I put the picture under it. My thumb sat over the arrow until the screen went dark.
 
@@ -224,7 +224,7 @@ Sharon came down the hall and looked at it over my arm.
 
 “That's the mortgage,” she said. “Nineteen seventy-one. Twenty years, and he paid it to the month. Mom made him do it on a Saturday so the street could come.” She put her finger on the glass over the girl. “That's me.”
 
-I looked at him a while. He had his feet set wide, like the low man on a ramp, grinning at the fire with his whole face. He'd made two hundred and forty payments to get to that barbecue.
+I looked at him a while. He had his feet set wide, grinning at the fire with his whole face. He'd made two hundred and forty payments to get to that barbecue.
 
 I've wrapped three or four mortgage burnings over the years. Every one of them was in a driveway. Mine was going to be in mine.
 
@@ -363,7 +363,7 @@ Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked 
 
 Twelve. On the log at Carmel, when he asked me what I wanted, I'd shut my mouth on it. In the margin beside it somebody had checked it off in ink and written my name and a date. *Joanna, May 4.*
 
-Nobody but Dawn Pruitt calls me plain Joanna. She's known me since I carried her mother's dresser. May fourth was three days before she sent me to that bar. Neither of them had told me Dawn checked me off his list before I ever walked in.
+Nobody but Dawn Pruitt calls me plain Joanna. May fourth was three days before she sent me to that bar. Neither of them had told me.
 
 I stood there with the pencil in my hand and everything I'd come up here to say to his face.
 

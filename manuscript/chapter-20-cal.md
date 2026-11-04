@@ -48,11 +48,11 @@ Jo did not write on Thursday. I had not expected her to. She had three days of w
 
 At 8:52 on Friday night my phone lit up.
 
-*Tomorrow, 7. It's going to be hot. The dog gets the hall. It's the coolest room.*
+*Tomorrow, 7. It's going to be hot. Pancake gets the hall. It's the coolest room.*
 
-I read it three times. She had been thinking about my dog.
+I read it three times. She had been thinking about Pancake.
 
-I wrote back that I would. Then I typed that I had missed her on Thursday. I looked at it for some time. Every day I approve about three hundred things that are better written than that. I sent it.
+I wrote back that I would. Then I typed that I had missed her on Thursday. I looked at it for some time. Every day I approve about forty things that are better written than that. I sent it.
 
 At 8:58 she wrote back.
 
@@ -78,11 +78,11 @@ Vili went to the back and pulled the door up. He looked at the house, and at me 
 
 “He's paying for the drive,” Jo said.
 
-“He's not paying for my Saturday.”
+“Nobody pays me enough for a Saturday.”
 
-He went for the runners. On Monday he had run both her trucks in Burlingame while she was over the ocean. On the first piece out she gave him the light end. In eight Saturdays I had never seen Vili on the light end.
+I could have. I had the number before he had finished the sentence: a day at time and a half, and something on top for Burlingame. I kept it to myself. He had given up his Saturday for her, not for me.
 
-I could have paid for his Saturday. I had the number before he reached the runners: a day at time and a half, and something on top for Burlingame. I kept it to myself. He had given up his Saturday for her, not for me.
+Vili went for the runners. On Monday he had run both her trucks in Burlingame while she was over the ocean. On the first piece out she gave him the light end. In eight Saturdays I had never seen Vili on the light end.
 
 Jo looked at the bed.
 
@@ -102,7 +102,7 @@ I looked at the room. It held a twin bed, a desk with a lamp clamped to it, and 
 
 She put green on them without a word and went on to the desk.
 
-My mother's house is glass on three sides. It was built in 1960. Nobody ever put air conditioning in it. By ten the thermostat in the hall said eighty-eight. The slab under our feet was the coolest thing in the house. Pancake lay flat on it in the hall, beside his bed, with his legs out behind him.
+In sixty-six years nobody had put air conditioning in my mother's glass house. By ten the thermostat in the hall said eighty-eight. The slab under our feet was the coolest thing in the house. Pancake lay flat on it in the hall, beside his bed, with his legs out behind him.
 
 ***
 
@@ -186,7 +186,11 @@ Denise laughed so hard she had to put her coffee down on the bench.
 
 “Cal Brennan threw up in a ZEPPELIN.”
 
-“He didn't throw up. He went gray and sat in the back with his eyes shut and my rag. He's had my rag since June.” A pause. “Owen had his whole head out the window. You could hear a dog bark a thousand feet down.”
+“He didn't throw up. He went gray and sat in the back with his eyes shut.”
+
+“And you?”
+
+“A guy pulled off the highway and stood in the road to watch us go over. That was me on 101 in 2009.”
 
 She told it better than it was. I had not known she would tell it at all.
 
@@ -208,7 +212,7 @@ Denise waited.
 
 “That's it?”
 
-“That's it. He sat down next to him in his good pants and didn't say a word for an hour and a half. He didn't look at his watch once.” Her voice went lower. “Kevin goes quiet in the next room. I say *next time, bud*. Nobody's ever sat down next to him, Denise. Me included.”
+“That's it. He sat down next to him in his good pants and didn't say a word for an hour. He didn't look at his watch once.” Her voice went lower. “Kevin goes quiet in the next room. I say *next time, bud*. Nobody's ever sat down next to him, Denise. Me included.”
 
 I put my sandwich down. My watch tapped against my wrist. I turned it face in without reading it.
 
@@ -218,7 +222,7 @@ I had sat down at the rim because I could not think of anything to buy. In June 
 
 I wanted to go out through the screen and sit down on the bench between them. I wanted to tell her I had not known what else to do. I stayed where I was, with Pancake on my feet. If I went out there she would stop talking. I wanted to hear the rest of it more than I wanted to be seen.
 
-“Then it went,” Jo said. “You see it first. You count to nine before you hear it. Fourteen hundred feet. Two of them. I had my hand on my chest like a lady in church. I didn't know I'd put it there.”
+“Then it went,” Jo said. “You see it first. Fourteen hundred feet. Two of them. I had my hand on my chest like a lady in church.”
 
 “You slept,” Denise said. “I can see it on you.”
 
@@ -230,7 +234,7 @@ I wanted to go out through the screen and sit down on the bench between them. I 
 
 I had been in the water since six, failing to float. I had thought she was up on the lanai the whole time, watching me fail. She had been asleep.
 
-Denise did not say anything for a while. Then she said, “Mom would've stood at that rope all night.”
+Denise did not say anything for a while. Then she said, “Mom would've called that a sign.”
 
 Jo did not answer that. Denise let it go.
 
@@ -262,9 +266,9 @@ Denise looked over at the screen. Then she looked through it, at me.
 
 “I have been here since the milk.”
 
-Jo turned around on the bench. Her face went red from the collar up. I had seen it do that once before, at a thousand feet.
+Jo turned around on the bench. She looked at me. Then she looked at her sister. Denise drank her coffee.
 
-“Hall,” she said. She stood up and folded her foil into a square and went in past me without looking at me.
+“Hall,” Jo said. She stood up and folded her foil into a square and went in past me without looking at me.
 
 Denise had looked straight at the kitchen at 11:06 and smiled into her coffee. She had asked about the text at 11:21. I had been arranged. I knew what it looked like. Janice has done it for me since 2009.
 
@@ -272,7 +276,7 @@ At 11:45 I walked Denise to her car. She put the tote on the passenger seat and 
 
 “Two more Saturdays after this one,” she said.
 
-“Yes.”
+“Correct.”
 
 “Then what?”
 
@@ -282,7 +286,7 @@ It was true. Remy had a plan for what came after. I had not read it. What I had 
 
 She looked at me for some time. She has her sister's eyes. Hers move more.
 
-“Find out,” she said, and got in.
+“Figure it out,” she said, and got in.
 
 ***
 
@@ -296,7 +300,7 @@ She picked up on the second ring. When a door closed behind her, the street nois
 
 “I've done it seven times with you. The four before me I can't speak for.”
 
-“Then tell me the seven.”
+“Then tell me about the seven.”
 
 She poured. I waited for it.
 
@@ -320,11 +324,11 @@ She had pulled them before I asked. I have sat across tables from people like th
 
 “The first one said generous. Then lovely. Busy. Generous. Very generous. Kind. The last one said generous. Then she said, he sends the most beautiful things.”
 
-I counted while she read. Three of them had said generous, a fourth very generous. Not one of them had said anything I could not have put on a slide.
+I counted while she read. Three of them had said generous, a fourth very generous. I had been braced for worse.
 
 “None of them were unkind,” I said.
 
-“None of them. Not one of yours needed a minute before she answered.”
+“Not one needed a minute before she answered.”
 
 “Is that good?”
 
@@ -376,6 +380,18 @@ She took a while with that one.
 
 “Because nobody else does,” she said. “When it's over, everybody calls the man.”
 
+“Can I give you some advice?” Dawn said.
+
+“That is why I called.”
+
+“You're allowed to change your mind.”
+
+“About what?”
+
+“About everything. Anything. Who you are. Who you want to be. How you want to act.”
+
+I did not know what to make of that either.
+
 Then she was gone. It was 11:58. I sat in the car with the windows up until I could not breathe in there. Then I went back across the street.
 
 ***
@@ -396,7 +412,7 @@ She let the tape run back into the case. It went in with a snap.
 
 “I heard all of it from the milk.”
 
-She looked at the frames instead of me. Her face was still red at the top of her collar, with sweat at her hairline. By noon even the hall was hot. It was three feet wide. I was close enough to see the peeling place on her nose and the freckles under it that had not been there two weeks ago.
+She looked at the frames instead of me. There was sweat at her hairline. By noon even the hall was hot. It was three feet wide. I was close enough to see the peeling place on her nose and the freckles under it that had not been there two weeks ago.
 
 “Then you heard me say you threw up.”
 
@@ -436,13 +452,13 @@ Abby looked at her for a second. Then she smiled with her whole face. I had not 
 
 They were in the atrium for ten minutes. Abby told Jo she moves into her dorm at Cal Poly on the eighteenth of August, for architecture. I had it as September. It was on my refrigerator. I had not read it. It was twenty-four days.
 
-She wanted to know about the house. Jo has moved more Eichlers than Abby had been inside. Jo showed her where the posts carry the roof and where the beams run out past the windows. She told her the heat was hot water in copper pipes in the slab, so never to let anybody drill the floor.
+She wanted to know about the house. Abby was going to study houses for five years. Jo had been carrying everything out of them for twenty. Jo showed her where the posts carry the roof and where the beams run out past the windows. She told her the heat was hot water in copper pipes in the slab, so never to let anybody drill the floor.
 
 “Grandma said the floor was warm in winter,” Abby said. “I used to lie on it.”
 
-“Everybody lies on it,” Jo said. “I've found kids' drawings under the couches in four of these.”
+“Everybody does,” Jo said. “I've found kids' drawings under the couches in four of these.”
 
-I stood in the hall with a box I did not need to be holding. My daughter was telling a woman I had met in May more about this house than she had told me in eighteen years. She was asking her questions. She was listening to the answers with her head on one side, which is how she listened to her grandmother.
+I listened from the hall this time, where they could see me. My daughter was telling a woman I had met in May more about this house than she had told me in eighteen years. She was asking her questions. She was listening to the answers with her head on one side, which is how she listened to her grandmother.
 
 Abby had come for the kite boy. She told Jo so in the hall. There were nine frames on that wall. Six held Abby. One held me at a podium. Two held people nobody knew, a couple laughing on a beach and a boy with a kite. They had come with the frames.
 
@@ -476,7 +492,7 @@ Pancake came down the hall at the sound, the way he comes to anything that falls
 
 He stayed.
 
-A week ago I found the scar on the back of her calf. She got down on her knees on the floor eighteen inches from my dog, with her back half to him so that she could see the grout. She tore off a length of green tape, wrapped it around her fingers sticky side out and went over the floor with it, square by square, lifting the slivers out of the grout so he would not cut a foot. When the tape was full she folded it on itself and tore another. She did not look up at me.
+A week ago I found the scar on the back of her calf. She got down on her knees on the floor eighteen inches from Pancake, with her back half to him so that she could see the grout. She tore off a length of green tape, wrapped it around her fingers sticky side out and went over the floor with it, square by square, lifting the slivers out of the grout so he would not cut a foot. When the tape was full she folded it on itself and tore another. She did not look up at me.
 
 I did not say anything. If I had, she would have had to answer me.
 
@@ -510,7 +526,7 @@ She hung the robe back on its hook over all of it.
 
 “You were here for his,” she said.
 
-“Yes.” I put my finger on her nine, in my mother's ballpoint.
+“Will you let me do yours?” I put my finger on her nine, in my mother's ballpoint.
 
 I could have found out where I was for every one of her lines. It is all on a calendar. Janice would have it by the end of the day. I did not need Janice for her nine. On most days in 2017 I was somewhere with a podium.
 

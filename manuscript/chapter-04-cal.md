@@ -10,7 +10,7 @@ The house is 15.4 miles from mine. It takes twenty-two minutes. Until that Frida
 
 It is an Eichler on West Remington Drive, a wide street with old trees down both sides. Hers is in the run of Eichlers beside the church on the corner at the Bernardo end, facing the middle school.
 
-My grandfather bought it new in 1960 for $21,500. I own a watch that cost more. They sell for three million now. The buyers are paying for the glass: a back wall that is all window and an atrium in the middle of the house with no roof on it.
+My grandfather bought it new in 1960 for $21,500. I own a watch that costs more. They sell for three million now. The buyers are paying for the glass: a back wall that is all window and an atrium in the middle of the house with no roof on it.
 
 My mother worked the cafeteria line at that school for thirty years. Every day she handed me my tray, I thanked her exactly as I thanked the woman next to her.
 
@@ -60,7 +60,7 @@ I looked at the house. From the car I could see the front door and the edge of t
 
 She poured again.
 
-Over the shrimp Jo had asked about the girl who named the dog. My eyes filled at the table. I had blamed the horseradish. Jo had passed me a napkin and waited until I used it.
+Over the shrimp Jo had asked about the girl who named Pancake. My eyes filled at the table. I had blamed the horseradish. Jo had passed me a napkin and waited until I used it.
 
 “Tell me about her,” Dawn said.
 
@@ -120,7 +120,7 @@ The line went quiet. She had hung up.
 
 It was 6:44. Pancake put his chin on my shoulder from the back seat. I sat with the phone in my hand and looked at my mother's door.
 
-I had walked Pancake at five, as I do. Nobody has ever asked for a meeting at five, so it is the one hour of my day that has stayed mine. After that I had run out of things that were mine to do, so I drove. He rode with his chin on my shoulder from the back seat. In eleven years it is the one habit of his I never tried to correct. At 6:50 I lifted him down from the back seat, sixty-four pounds, and put him in the back yard through the side gate. Jo had told me where she wanted a dog. A gate does the work of a railing.
+I had walked Pancake at five, as I do. Nobody has ever asked me for a meeting at five. By 5:30 I was dressed and standing in my kitchen with my keys. I drove. He rode with his chin on my shoulder from the back seat. I have never tried to break him of it. At 6:50 I lifted him down from the back seat, sixty-four pounds, and put him in the back yard through the side gate. Jo had told me where she wanted a dog. A gate does the work of a railing.
 
 I had a plan for the door. On the sidewalk she had told me that she did not go through a house without the owner. I had been over that sentence for eight days, looking for the edge case. It said nothing about who went in first. I would give her the key. She would open the door. I would come in behind her. Behind her was still in the house. I had run it on the drive down and again in the car. It held every time.
 
@@ -228,7 +228,7 @@ I was standing in my mother's living room.
 
 “Runners,” Jo said, and the big man went past me with the roll.
 
-I stayed where I was, one step inside the door. I put down my hand, which was still out from the pull. My mother's chair was where I had seen it from the atrium. I did not go any closer to it. I waited for the step to cost me something. Jo was still out in the atrium.
+I stayed where I was, one step inside the door. I put down my hand, which was still out from the pull. My mother's chair was where I had seen it from the atrium. I did not go any closer to it. She used to say my name from that chair before I had the door shut behind me. I waited for it. Jo was still out in the atrium.
 
 She stopped on the threshold and smelled the house before she came in. I have since learned that she does that at every job.
 
@@ -387,4 +387,4 @@ Then she saw that I had seen.
 
 “Thirty-six more,” she said.
 
-She went to find Vili. The back of her neck was red all the way down to her collar.
+She went to find Vili. At the end of the hall she turned and looked back at me. She was still looking when Vili said her name.

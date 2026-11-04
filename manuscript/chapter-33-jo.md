@@ -8,7 +8,7 @@ The woman had moved to her daughter's in Sacramento in June and left the kitchen
 
 I like a kitchen by myself. Nobody asks me where to put anything. I do the high cabinets first, standing on the counter in my socks, because if you do the low ones first you're climbing over your own boxes by noon. Glasses go in cell boxes, stems up. Plates go on edge, never flat, with a sheet between each one, because flat plates break and plates on edge don't. I can do a cabinet of plates in ten minutes if nobody talks to me.
 
-Nobody talked to me. The fog never came off the hill. By the third cabinet I'd stopped seeing the plates and was seeing a dog on a padded mat with his head tipped over, leaning it on my hand because he couldn't hold it up himself.
+Nobody talked to me. The fog never came off the hill. By the third cabinet I'd stopped seeing the plates and was seeing Pancake on a padded mat with his head tipped over, leaning it on my hand because he couldn't hold it up himself.
 
 I'd washed that hand twice since. There was still hair in it.
 
@@ -78,7 +78,7 @@ The other two pages were in pen, on paper from a yellow pad, with the ragged edg
 
 He'd spelled approved with one p.
 
-*The car that came for you in June was the plan. There was a weekend in Napa in July. That was the plan too. Abby read it on my phone, upside down. She said, “The usual.” I stopped those two when I saw them. I did not open the rest. I did not ask how it ended until last Saturday night.*
+*The car that came for you in June was the plan. There was a weekend in Napa in July. That was the plan too. Abby read it on my phone. She said, “The usual.” I stopped those two when I saw them. I did not open the rest. I did not ask how it ended until last Saturday night.*
 
 *It ends at month four. There is a gift. Remy picks it. None of the eleven lasted to month five. Each of them ended within fourteen days of the gift. Each of them wrote to thank me for it. Janice answered, and I approved the answer. That was the last I heard from any of them. I did not notice. Remy did.*
 
@@ -232,7 +232,7 @@ My hand on the latch was cold. Five weeks old. I'd had him on my shoulder in tha
 
 It was on my counter, in his printing, under the bank's check. I'd read it three times and been furious at it three times.
 
-He'd known what I'd say because I'd already said it to him. Over a beer at the Palace, before he'd offered me a thing. On my father's dock, the Thursday he came about the truck. About the transmission, the week he found out. I've got it. Kevin heard it from a Costco. Vili hears it every morning.
+He'd known what I'd say because I'd already said it to him. Over a beer at the Oak, before he'd offered me a thing. On my father's dock, the Thursday he came about the truck. About the transmission, the week he found out. I've got it. Kevin heard it from a Costco. Vili hears it every morning.
 
 Nobody had to ask me anything. They all knew the answer.
 
@@ -244,9 +244,9 @@ I drove to Denise's. I don't go to Denise's. Denise comes to me, with two coffee
 
 Rob let me in. He had a dish towel over his shoulder and the TV on in the front room.
 
-“Jo,” he said. “How's the dog?”
+“Jo,” he said. “How's Pancake?”
 
-“The dog's fine.”
+“Pancake's fine.”
 
 “She's in the kitchen.”
 
@@ -318,7 +318,7 @@ Denise didn't say anything. In the front room Rob laughed at the TV. She didn't 
 
 “And Cal,” she said. “Two in the morning. What did you ask him?”
 
-“What he fed the dog.”
+“What he fed Pancake.”
 
 “And why he paid off your house? Did you ask him that?”
 

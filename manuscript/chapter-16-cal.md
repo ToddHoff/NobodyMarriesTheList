@@ -170,7 +170,7 @@ On Thursday Vili had called the dresser on the Delgados' landing. I lifted when 
 
 At the top of 17 she took the exit for Summit Road and turned east along the ridge. The road ran under redwoods, with driveways going off into the trees. When Jo put her window down, the air that came in was ten degrees cooler than the valley and smelled of forest and fog. The sun came down between the trunks in long bars. Her forearms on the wheel went from sun to shade and back.
 
-There was an orchard on a slope beside the road, apple trees in rows with an old barn at the top. The apples on them were small and green. A table by the road had a box on it for money. Nobody was minding it.
+There was an orchard on a hill beside the road, apple trees in rows with an old barn at the top. The apples on them were small and green. A table by the road had a box on it for money. Nobody was minding it.
 
 “Honor box,” Jo said. “In the fall you take your apples and leave the money.”
 
@@ -240,7 +240,7 @@ It lit before I could hold it up.
 
 *Summit Store. This looks like it is for Jo Silveira. You asked me to ask. Approve?*
 
-Jo read it upside down.
+Jo read it.
 
 “It wants to know if you're allowed,” she said.
 
@@ -436,9 +436,19 @@ She did not say anything. I thought of the three boxes on my mother's hearth. Sh
 
 “Why?” she said.
 
-“I do not know.”
+A dog went down the wire and back before I had anything.
 
-“Then it stays on.”
+“When I was ten I bought my mother an alarm clock with my own money,” I said. “It went off at five every morning, on the other side of my wall. I would lie there and hear her turn it off. Every day, the first thing she heard was something I gave her. I think it starts there.”
+
+She turned and looked at me. A big dog came down the wire. Her hand did not close on mine.
+
+She smiled at me, tilting her head the way she does when a client swears a box is empty.
+
+“Isn't that the same clock you marked blue?”
+
+“It is.” I watched the gray dog take its ball back up the fence. “I am not sure of the rest.”
+
+“Until then it stays on.”
 
 Six lines were struck on the back of that card. Standing at that fence, I could not see where seven came from. She would not take it off on a guess.
 
