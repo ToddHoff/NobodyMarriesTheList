@@ -1,4 +1,4 @@
-## Chapter 6
+## Chapter 6: Wrong and Good
 
 **Cal**
 
@@ -54,7 +54,7 @@ Start the usual plan?
 
 I did not open it. I have said yes to that plan eleven times.
 
-“Started. Fourteen items scheduled.”
+“Started. Three items scheduled.”
 
 I did not ask what they were.
 
@@ -158,7 +158,7 @@ I watched her eat the bifana standing up, all of it. I did not think about the p
 
 “That doesn't count,” she said. “You still owe me half a linguiça.”
 
-“Then the debt stands.”
+“The debt stands.”
 
 “It stands.”
 

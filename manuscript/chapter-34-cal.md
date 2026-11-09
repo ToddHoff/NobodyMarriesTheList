@@ -1,4 +1,4 @@
-## Chapter 34
+## Chapter 34: Kitchens Go Last
 
 **Cal**
 
@@ -206,7 +206,7 @@ It had not been on her estimate. On any other job she would have had the paper o
 
 “Put me on the low end.”
 
-“No piano man,” she said. “You bet you're on the low end. With Vili.”
+“I'm not calling a piano man,” she said. “You bet you're on the low end. With Vili.”
 
 Vili looked at her. He had been on the low end of everything I had watched him carry for three months. He looked at me before he went and got the dolly.
 
@@ -378,31 +378,17 @@ I had wanted to know since 1:35. I had not been going to ask her.
 
 I waited.
 
-“The husband sat in his car at the curb all morning. He didn't come in. The son was about sixteen, and he carried his own boxes out to his father's trunk, one at a time.” She was looking at the square on the carpet. “The wife followed my dad room to room. She'd put her hand on a lamp and say, That's mine. The dresser. Mine. She talked the whole time.”
+“The husband sat in his car at the curb all morning. He didn't come in.” She was looking at the square on the carpet. “The wife followed my dad room to room with her hand on everything. That's mine. The dresser. Mine.”
 
-“What did she say?”
-
-“His hygienist. Twenty-six. He'd told her she didn't need to work. Fifteen years she didn't need to work.”
-
-“And money?”
-
-“She hadn't had a pay stub since Nixon. Every card in her purse had his name on it.”
+On the first Saturday I had sat in my car at this curb for forty-one minutes.
 
 “Where did she go?”
 
-“Her sister's. Daly City. The back bedroom and the garage, under a tarp.” Jo's hand went up to her chest, to the chain, and stopped there over her shirt.
-
-“What did you do?”
-
-“When they'd carried the couch out, I lay down on the floor where it had been. In the square. It was the quietest I'd ever been in my life. When I came out the car was gone.”
-
-“And the son?”
-
-“Went with him.”
+“Her sister's garage, under a tarp.” Jo's hand went up to her chest, to the chain, and stopped there over her shirt. “When they'd carried the couch out, I lay down on the floor where it had been. In the square. It was the quietest I'd ever been in my life. When I came out the car was gone.”
 
 She was quiet for a second. Then she said, “My dad said in the truck, what you hear in a house stays in the house.”
 
-“Then you should not tell me.”
+“You should not be telling me.”
 
 “The statute of limitations ran out,” she said. “I'm telling you.”
 

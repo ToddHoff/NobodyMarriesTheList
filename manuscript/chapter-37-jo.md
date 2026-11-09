@@ -1,4 +1,4 @@
-## Epilogue
+## Chapter 37: The Proposal
 
 **Jo**
 
@@ -190,7 +190,7 @@ I read DON'T and laughed out loud. The couple at the next table looked over.
 
 I read ASK again.
 
-"Then ask," I said.
+"So ask me," I said.
 
 I looked for a box. On the table there was his card, Stephanie's envelope, the shrimp and my beer.
 
@@ -293,7 +293,7 @@ I put the purse back on the floor.
 
 Cal lifts him up my front step every time, front end and then back.
 
-"Then we need a ramp," I said.
+"Pancake needs a ramp," I said.
 
 "I will ask your father."
 

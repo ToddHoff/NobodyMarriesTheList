@@ -1,4 +1,4 @@
-## Chapter 24
+## Chapter 24: Serves Two
 
 **Cal**
 
@@ -66,7 +66,7 @@ She ate the first bite and chewed it for a while.
 
 “The card said one hour at three hundred and fifty degrees.”
 
-“Then the card's dry.”
+“The card's dry.”
 
 She ate the rest of the slice and held her plate out for another.
 
@@ -86,7 +86,7 @@ She laughed with her mouth full and had to put her hand over it.
 
 “With him that's Sunday or next July.”
 
-“Then I will take Sunday.”
+“I will take Sunday.”
 
 “Sunday he goes to Mass first. Then he sits in the boat.”
 

@@ -1,4 +1,4 @@
-## Chapter 1
+## Chapter 1: Six Shrimp
 
 **Jo**
 
@@ -16,9 +16,9 @@ Dawn had called on a Tuesday while I was signing a permission slip.
 
 “One drink,” she said. “Forty-five minutes. He came in with a list. Twelve lines. I have three women who match every one.”
 
-“Then you don't need a fourth.”
+“So you don't need me.”
 
-“You're not on it, Jo. That's why I'm calling.”
+“You're not on it, Jo. Nobody marries the list. That's why I'm calling.”
 
 I was also twenty minutes late.
 
@@ -86,7 +86,7 @@ Cal Brennan looked at the twenty.
 
 “It is a fourteen-dollar beer,” he said.
 
-“Then I've got six dollars coming.”
+“I've got six dollars coming.”
 
 “Noted.”
 
@@ -258,7 +258,7 @@ He had stopped telling me what I couldn't write on.
 
 “The list is a document. That is a note card.”
 
-“Then this is my copy.” I slid it across to him. “It's pencil. Rub it out if you want her that bad.”
+“This is my copy.” I slid it across to him. “It's pencil. Rub it out if you want her that bad.”
 
 He tried it with his thumb, which came away gray. The line stayed.
 

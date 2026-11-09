@@ -1,4 +1,4 @@
-## Chapter 19
+## Chapter 19: Older Than Hawaii
 
 **Jo**
 
@@ -92,7 +92,7 @@ I thought about Vili running both trucks in Burlingame, and Denise on the phone 
 
 “There will be two pilots and a woman who looks after the cabin on the plane. A man named Gil keeps the house. On Tuesday there will be Dr. Okamura and the crew that flies the airship.”
 
-“Then I'm making the lunches.”
+“I'm making the lunches.”
 
 “I will tell Gil to send the chef home.”
 
@@ -110,7 +110,7 @@ He came back that afternoon, after Kevin's car had gone, and asked my son in my 
 
 “It is between eruptions right now.”
 
-“Then it's asleep.”
+“So it's asleep.”
 
 “Dr. Okamura says it is resting. She says it might go while we are there. She will not promise.”
 
@@ -456,7 +456,7 @@ Where the black met the ocean there was a beach, black too, with people on it. P
 
 Owen pulled his head in from the window. He looked at the land for a long time.
 
-“Then I'm older than Hawaii,” he said.
+“I'm older than Hawaii,” he said.
 
 “Than that part.”
 

@@ -1,4 +1,4 @@
-## Chapter 10
+## Chapter 10: Most People
 
 **Cal**
 
@@ -245,7 +245,7 @@ She put the sandwich down and held out her hand. I gave her the card. She took t
 
 “No.”
 
-“Then what is it?”
+“Tell me.”
 
 “In March of 2013 a woman I had known for four months sold nineteen hundred words about my custody hearing. It had the name of Abby's school in it. Abby was four.”
 

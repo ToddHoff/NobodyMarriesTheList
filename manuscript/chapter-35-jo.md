@@ -1,4 +1,4 @@
-## Chapter 35
+## Chapter 35: Caldo Verde
 
 **Jo**
 
@@ -190,7 +190,7 @@ He ate the second one slower. Pancake was under the table on my feet, asleep.
 
 “It's going in the white truck. I'm ordering the part in the morning. The shop gets the rest on the first.” I put my spoon down. “My dad's been in that cab since July.”
 
-“Then he is off the truck,” he said.
+“He is off the truck,” he said.
 
 “He's off the truck.”
 
@@ -206,7 +206,7 @@ I put my spoon in the bowl.
 
 “I remember.”
 
-“That was half of it. I heard it through the wall.” He had his hands flat on the table on either side of the card. “I wanted someone who would use what I sent. Then I would not have to come. I could pick it out from the back of a car and never be in the room.”
+“That was half of it. I heard it through the wall.” He had his hands flat on the table on either side of the card. “I wanted someone who would use what I sent. That way I would not have to come. I could pick it out from the back of a car and never be in the room.”
 
 He said it to my face.
 
@@ -274,7 +274,7 @@ He didn't say yes. He took his watch off. He turned it face down and put it on t
 
 “He goes out at five,” he said.
 
-“Then we go out at five.”
+“We go out at five.”
 
 ***
 

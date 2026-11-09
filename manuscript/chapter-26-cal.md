@@ -1,4 +1,4 @@
-## Chapter 26
+## Chapter 26: Two Pages
 
 **Cal**
 
@@ -12,7 +12,7 @@
 
 She picked me up in Woodside at 4:47 that afternoon, with three and a half hours of light left. She had changed her shirt since the garage. Her hair was down. Pancake watched us go from the front window. The park does not allow dogs.
 
-At the top of 84, where it crosses Skyline, she pulled in at Alice's Restaurant. It is a low wooden building at a crossroads in the redwoods. It was built in 1918 as a general store for loggers. Thirteen motorcycles were backed in along the front of it at one angle, their engines ticking as they cooled. The men who rode them stood around in leather with gray in their beards, holding coffee and pointing at each other's machines. There was an old silver Porsche with a man asleep in the passenger seat. Over the redwoods I could smell the grill.
+At the top of 84, where it crosses Skyline, she pulled in at Alice's Restaurant. It is a low wooden building at a crossroads in the redwoods. It was built early in the 1900s as a general store for loggers. Thirteen motorcycles were backed in along the front of it at one angle, their engines ticking as they cooled. The men who rode them stood around in leather with gray in their beards, holding coffee and pointing at each other's machines. There was an old silver Porsche with a man asleep in the passenger seat. Over the redwoods I could smell the grill.
 
 “Dinner,” Jo said. “Unless your robot packed you one.”
 
@@ -284,7 +284,7 @@ The sun had been down four minutes. There was a mile of trail and about twenty-f
 
 “We should start down,” I said. I did not move.
 
-“Then get up.”
+“Get up, Cal.”
 
 ***
 
@@ -316,7 +316,7 @@ She had not said it back. I wanted to know what came next. The only record I had
 
 It took two seconds.
 
-*Each of the eleven ended within fourteen days of a large gift. Average gift value: $31,400. In each, her last message was a thank-you for the gift. No final conversation is on record. Twelve items remain in the plan for relationship 12. Review?*
+*Each of the eleven ended within fourteen days of a large gift. Average gift value: $31,400. In each, her last message was a thank-you for the gift. No final conversation is on record. One item remains in the plan for relationship 12. Review?*
 
 I had approved all eleven of those gifts. I could not have named one of them.
 

@@ -1,4 +1,4 @@
-## Chapter 15
+## Chapter 15: On the Payroll
 
 **Jo**
 
@@ -124,7 +124,7 @@ The last time I'd kissed him, I had a fistful of his shirt in his mother's hall 
 
 He looked straight out the windshield. “I would like him to know.”
 
-“Then you tell him,” I said. “He'll have more questions.”
+“You tell him,” I said. “He'll have more questions.”
 
 ***
 

@@ -1,4 +1,4 @@
-## Chapter 5
+## Chapter 5: Half a Linguiça
 
 **Jo**
 
@@ -224,7 +224,7 @@ He didn't get up, and neither did Pancake.
 
 I could have sent him home. His four hours were up. The coats could sit with no tape on them till next Saturday. With any other client that's what I'd have done. I sat there with Pancake on my bad leg and didn't want him to go. I wasn't about to say so.
 
-“Then we do the coats,” I said.
+“We'll do the coats,” I said.
 
 He put blue tape on all fourteen. Vili and Manny packed them in the boxes he had built that morning and carried them out to the truck. He stood in the driveway until the door came down. I was home in San Bruno by two. With Owen at his father's until morning, the house was too quiet. I showered and did a week of laundry. At seven I ate cereal standing at the counter.
 

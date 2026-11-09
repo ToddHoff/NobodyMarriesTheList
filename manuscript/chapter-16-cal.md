@@ -1,4 +1,4 @@
-## Chapter 16
+## Chapter 16: The Usual
 
 **Cal**
 
@@ -50,7 +50,7 @@ She unfolded her arms, went down the walk to the driver and took a twenty out of
 
 “It's paid, ma'am.”
 
-“Then it's paid twice. You drove all the way up here. Go on home.”
+“Now it's paid twice. You drove all the way up here. Go on home.”
 
 He looked at me. I said nothing. He took the twenty, shut the door he had been holding and drove away.
 
@@ -106,7 +106,7 @@ When we were moving I took out my phone.
 
 “Send no more cars for Jo Silveira,” I said.
 
-*Removed,* the screen said. *Thirteen items remain. Review?*
+*Removed,* the screen said. *Two items remain. Review?*
 
 “I will look later.”
 
@@ -208,7 +208,7 @@ Jo held out her hand. I gave her Friday's card. She read it.
 
 “It is 2:41.”
 
-“Then we're early. You're always early.” She turned it over and back. “Janice didn't write this.”
+“We're early. You're always early.” She turned it over and back. “Janice didn't write this.”
 
 “No. I did.”
 

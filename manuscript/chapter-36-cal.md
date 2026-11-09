@@ -1,4 +1,4 @@
-## Chapter 36
+## Chapter 36: An Hour
 
 **Cal**
 
@@ -88,7 +88,7 @@ I put the phone back in my pocket. On the wall behind me it was still twelve hun
 
 Nobody moved. When a thing goes wrong on a stage, I have about four seconds before the room decides what it means. I used them to get to the wing.
 
-Brandon was at the foot of the steps with his laptop against his chest. He had done the demo at minute nineteen. He had built the thing that waited on hold. I put the clicker in his hand.
+Brandon was at the foot of the steps with his laptop against his chest. He had done the demo at minute nineteen. In May I had stopped his gifts on the open floor. Since then he had built the thing that waited on hold. I put the clicker in his hand.
 
 "You have nine minutes," I said. "Do the hour. Start from the years."
 
@@ -508,7 +508,7 @@ At 9:06 she called. I could hear the truck around her and the road under it.
 
 "Kevin says 99.4. Two popsicles and four crackers. They stayed down. He's asleep on the couch. Kevin won't move him. Owen's up at five when he's sick."
 
-"Then I will be up at five."
+"I will be up at five."
 
 She did not say anything for eleven seconds.
 
@@ -582,7 +582,7 @@ She turned the phone face down and kept her hand on it.
 
 "Vili showed me at lunch," she said. "On his phone. Him and Manny and Dad, on Mrs. Halvorsen's piano bench on her lawn."
 
-"Then you saw Brandon."
+"You saw Brandon."
 
 "I saw you give him the thing."
 
@@ -618,7 +618,7 @@ I put it in my pocket.
 
 "He can't go back till Thursday," she said. "I've got a walkthrough in Burlingame at nine."
 
-"Then I will stay with him today."
+"I will stay with him today."
 
 She looked at me across her table.
 

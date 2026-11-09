@@ -1,4 +1,4 @@
-## Chapter 8
+## Chapter 8: Twelve Courses
 
 **Cal**
 
@@ -254,7 +254,7 @@ She looked at the phone, and then at me.
 
 “I did.”
 
-“Then you owe me something to eat.”
+“Whoever picks the place feeds the crew.”
 
 “I always pay what I owe.”
 
@@ -328,7 +328,7 @@ She studied me. I had seen her study a hutch like that, working out where the we
 
 I let her look. I could have said any two of the eight in the voice she had caught me using at the sixth course. She would have struck them. We would have been even by the twelfth course. I did not want to be even with her like that. I did not know yet how else to pay them.
 
-“Then you owe me,” she said.
+“You owe me,” she said.
 
 “I owe you two lines and half a linguiça.”
 
@@ -344,7 +344,7 @@ There is no check in that room. I had forgotten that it would matter.
 
 “There is not one. It is a club. It is settled.”
 
-“Then how do I pay for mine?”
+“How do I pay for mine?”
 
 “You cannot.”
 

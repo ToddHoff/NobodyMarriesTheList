@@ -1,4 +1,4 @@
-## Chapter 3
+## Chapter 3: From the Curb
 
 **Jo**
 
@@ -50,6 +50,8 @@ I read it in the yard with a clipboard under my arm. I read it again. It was rig
 
 Somebody had thought that through. I didn't want to like him for it.
 
+The first house I ever worked, I was seven. I sat on a kitchen floor in Millbrae wrapping the everyday glasses in newspaper while the wife told my father her husband had always said she didn't need to work.
+
 I put them in a coffee can.
 
 Dawn Pruitt called before the first truck was out. She knows what time I'm up. She has watched me carry her mother's dresser.
@@ -78,7 +80,7 @@ I heard her pour. Dawn only drinks coffee hot, so she pours half a cup at a time
 
 “It's not him.”
 
-“Then what is it?”
+“What is it, Jo?”
 
 “He's got a car that waits at the curb, Dawn. I've got three trucks and a nine-year-old.”
 
@@ -114,7 +116,7 @@ My sister came through the gate with two coffees and saw the can.
 
 “Nobody.”
 
-“Then who's sorry?”
+“Somebody's sorry.”
 
 “Nobody's sorry. They're a thank-you.”
 
@@ -172,7 +174,7 @@ In daylight he was worse. The sun found the gray over his ears. He looked like h
 
 “She reached me at 6:20. I was already on 280.”
 
-“Then you know I said no.”
+“You know I said no.”
 
 “Yes.”
 
@@ -240,7 +242,7 @@ I've heard every reason a house sits shut. The lawyer's slow. The brother won't 
 
 “Yes.”
 
-“Then let's walk it. That's what an estimate is.”
+“Let's walk it. That's what an estimate is.”
 
 He didn't move. He took an envelope out of his back pocket and held it out to me.
 
@@ -254,7 +256,7 @@ He lowered the envelope.
 
 This time he looked at me when he said it. My throat went tight. I wanted that envelope out of his hand. Taking it was the one thing I couldn't do.
 
-“Then nobody goes in today,” I said. “Tell me what's in it and I'll give you a rough number out here.”
+“Nobody goes in today,” I said. “Tell me what's in it and I'll give you a rough number out here.”
 
 He put the envelope away.
 
@@ -282,7 +284,7 @@ Inside the truck the pads were folded in stacks and the straps hung on the rail.
 
 “And what if I do not know?”
 
-“Then it sits there with no tape on it until you do. I don't guess for people.”
+“It sits there with no tape on it until you do. I don't guess for people.”
 
 He took the green roll out of my hand and turned it over. I think he was looking for instructions.
 

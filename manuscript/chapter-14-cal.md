@@ -1,4 +1,4 @@
-## Chapter 14
+## Chapter 14: Grade 10
 
 **Cal**
 
@@ -22,7 +22,7 @@ She was at her desk with her glasses pushed up into her hair. She took them down
 
 “I do.”
 
-“Then keep them short,” Janice said. “She already knows what you sound like.”
+“Keep them short,” Janice said. “She already knows what you sound like.”
 
 I knew what I sounded like. The one about Pancake was hers. When Jo read that one, her voice went on the last word.
 
@@ -78,7 +78,7 @@ I turned the phone so she could read it. She read it and looked at me for some t
 
 I did not know what she could tell from four words. I thought about going down the hall to ask her. I did not go, because she would have told me.
 
-She was going to X's in the morning. Her bag was already by the front door.
+She was going to her mother's in the morning. Her bag was already by the front door.
 
 The shirts took fifty-two minutes. On Friday I wore number one. She did not answer on Friday either.
 

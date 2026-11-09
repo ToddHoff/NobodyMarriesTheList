@@ -1,4 +1,4 @@
-## Chapter 9
+## Chapter 9: Hold Still
 
 **Jo**
 
@@ -180,7 +180,7 @@ He laughed, one syllable I felt more than I heard. He stayed where he was, down 
 
 “This is a different question. I would like to ask it.”
 
-“Then ask it.”
+“Ask it.”
 
 “May I kiss you?”
 

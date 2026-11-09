@@ -1,4 +1,4 @@
-## Chapter 2
+## Chapter 2: Horseradish
 
 **Cal**
 
@@ -126,7 +126,7 @@ I did not tell her that he can no longer manage the last three steps to my door,
 
 I waited for the rest of it. I had heard the rest at minute thirty-one.
 
-“Then you would have asked the same thing.”
+“You would have asked what she asked.”
 
 “Of course not.” She said it flat. “He was there first. You go stand where Pancake isn't.”
 
@@ -168,7 +168,7 @@ She did not say anything kind. I was grateful. People say kind things to me and 
 
 “There is nobody to fight. There is only me.”
 
-“Then you'll have to pick it up yourself.”
+“You'll want to pick that one up yourself.”
 
 I went through who I could send. My assistant would have a firm by nine the next morning. It would be a good one. It would pack a kitchen in an afternoon. I tried to think what I would tell it to keep. I had lived in that house for eighteen years and eaten out of that kitchen most nights of them. I could not name one dish.
 
@@ -256,7 +256,7 @@ There was a pause. In the seventeen years Janice has worked for me, I have heard
 
 She paused again. That made six.
 
-“Then listen to me. When she leaves, you walk her to her car. All the way to it. You ask her to text when she gets home. And you do not say 'noted.'”
+“Listen to me. When she leaves, you walk her to her car. All the way to it. You ask her to text when she gets home. And you do not say 'noted.'”
 
 “She is counting those already.”
 

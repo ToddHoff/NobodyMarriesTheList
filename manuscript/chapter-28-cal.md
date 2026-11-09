@@ -1,4 +1,4 @@
-## Chapter 28
+## Chapter 28: Sweeney Ridge
 
 **Cal**
 
@@ -64,7 +64,7 @@ A plane was coming over her house. I heard it through the phone, low and tearing
 
 “He won't tell me. He told your robot.”
 
-“Then I will find out at seven.”
+“I will find out at seven.”
 
 “He says bring Pancake.”
 
@@ -294,7 +294,7 @@ The transmission had gone on the twenty-seventh. The next night she had lain on 
 
 “I knew about the house,” I said. “I read it on her counter.”
 
-“Then you know.”
+“So you know.”
 
 “Why are you telling me?”
 
@@ -308,7 +308,7 @@ The transmission had gone on the twenty-seventh. The next night she had lain on 
 
 The signal ticked for a while.
 
-“Then tell her,” Denise said. “He backs in at ten after four. She'll be on the dock.”
+“Fine. Tell her,” Denise said. “He backs in at ten after four. She'll be on the dock.”
 
 ***
 
@@ -444,7 +444,7 @@ When a number and a person disagree, I believe the person. I built the company o
 
 The chair said the quarter closed in seven weeks.
 
-“Then it closes with this fixed.”
+“It closes with this fixed.”
 
 The call took sixteen minutes. Nobody on it could have said I was anywhere else. At one I had two people.
 

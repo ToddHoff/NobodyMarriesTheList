@@ -1,4 +1,4 @@
-## Chapter 33
+## Chapter 33: A Bag of Grapes
 
 **Jo**
 
@@ -78,7 +78,7 @@ The other two pages were in pen, on paper from a yellow pad, with the ragged edg
 
 He'd spelled approved with one p.
 
-*The car that came for you in June was the plan. There was a weekend in Napa in July. That was the plan too. Abby read it on my phone. She said, “The usual.” I stopped those two when I saw them. I did not open the rest. I did not ask how it ended until last Saturday night.*
+*The car that came for you in June was the plan. There was a weekend in Napa in July. That was the plan too. Abby read it on my phone. She said, “The usual.” I stopped those two when I saw them. I did not open the third. I did not ask how it ended until last Saturday night.*
 
 *It ends at month four. There is a gift. Remy picks it. None of the eleven lasted to month five. Each of them ended within fourteen days of the gift. Each of them wrote to thank me for it. Janice answered, and I approved the answer. That was the last I heard from any of them. I did not notice. Remy did.*
 
@@ -256,7 +256,7 @@ Denise was at the stove in her good blouse with an apron over it, stirring somet
 
 “Nobody.”
 
-“Then why are you HERE?”
+“Why are you HERE?”
 
 I sat down at her table. Her table has a burn mark from a pot. She covers it with a placemat when company comes. I'm not company.
 
@@ -382,7 +382,7 @@ She picked my phone up off the table and held it out to me.
 
 “No,” I said.
 
-“Then text him.”
+“Text him.”
 
 “No.”
 
@@ -438,11 +438,11 @@ Denise put her finger on the fifty-eight ninety-one.
 
 “I'll sell the white truck.”
 
-“With no transmission? For parts? Nine thousand, if you're lucky. Then you're running two trucks. Which two guys do you let go?”
+“With no transmission? For parts? Nine thousand, if you're lucky. Now you're running two trucks. Which two guys do you let go?”
 
 “Nobody.”
 
-“Then sell the whole thing.”
+“I'll sell the whole thing.”
 
 “It's Dad's name.”
 
@@ -474,7 +474,7 @@ I'd paid Kevin's mother back in one check, with interest. I'd felt clean for abo
 
 “No,” I said. I didn't like where this was going.
 
-“Then what?”
+“What's the other plan?”
 
 I didn't have anything.
 
@@ -510,7 +510,7 @@ I looked at the pad. Twenty years of checks, with his name on every one. That wa
 
 I tore the page off the pad. I folded it in half, and in half again, and put it in my purse with his letter.
 
-“Then I let him help,” I said.
+“I'm letting him help,” I said.
 
 “Tell him why first,” Denise said. “Then the house.”
 

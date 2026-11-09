@@ -1,4 +1,4 @@
-## Chapter 32
+## Chapter 32: Stay Down
 
 **Cal**
 
@@ -108,7 +108,7 @@ At 11:52 that night I took the envelope to the kitchen counter and read the agre
 
 I read all of it, from the first page to the last, the way Jo had, standing up.
 
-Stephanie's lawyer had my share count as of June 30. It was correct to the share. He had the house in Woodside, the house on Maui, and the trust that holds the house on West Remington Drive, which Jo had spent nine Saturdays emptying for me. Page eleven waived support, in capitals. Page nineteen kept Abby's trust whole. It was a careful document. Everything in it that was mine was right.
+Stephanie's lawyer had my share count from my last filing with the SEC. It was correct to the share. He had the house in Woodside, the house on Maui, and the trust that holds the house on West Remington Drive, which Jo had spent nine Saturdays emptying for me. Page eleven waived support, in capitals. Page nineteen kept Abby's trust whole. It was a careful document. Everything in it that was mine was right.
 
 Schedule B was the last page. *Separate Property of,* and her name. Under it there was one line. It had been left blank for her.
 
@@ -484,23 +484,11 @@ I looked up the stairs at the open door of my bedroom, at the place on the floor
 
 “That is not the answer I expected,” I said.
 
-“When my marriage ended I paid a woman in San Mateo a hundred and eighty dollars an hour to tell me why.” I heard her shift. “Third week, she told me.”
+“When my marriage ended I paid a woman in San Mateo a hundred and eighty dollars an hour to tell me why.” I heard her shift. “Third week, she asked me who did the work.”
 
-“What did she tell you?”
+“What did you tell her?”
 
-“That two kinds of marriage last. They love each other the same. Or he's gone on her. Out of his mind. More than she is.”
-
-“And the third kind?”
-
-“She loves him more.” She drank. “That one doesn't make it.”
-
-“Why not?”
-
-“Because a man that far gone will do the work. He'll give things up.”
-
-“And if she is the one?”
-
-“Then she does all of it.” There was a clank behind her, somebody setting something down. “I hated that woman for saying it. I paid her for two more months so I could keep hating her.”
+“Me. Sixty hours a week. I brought her my billing records.” There was a clank behind her, somebody setting something down. “She didn't open them. I paid her for two more months so I could keep hating her.”
 
 I sat on the step.
 
@@ -508,7 +496,7 @@ I had sent Jo five hundred and twenty-one thousand dollars from my desk. It took
 
 She had sat on a hospital floor at two in the morning in my fleece and put her hand on Pancake.
 
-I knew which one I was. I had not done the work.
+I would have brought my billing records too. I had not done the work.
 
 Behind Dawn, a man's voice said her last name.
 
@@ -520,7 +508,7 @@ Behind Dawn, a man's voice said her last name.
 
 She did not answer him. I listened to her not answer him for four seconds.
 
-“Which one were you?” I said.
+“Who did the work?” I said.
 
 She did not answer me either.
 

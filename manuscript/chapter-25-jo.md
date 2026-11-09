@@ -1,4 +1,4 @@
-## Chapter 25
+## Chapter 25: Brennan's Mover
 
 **Jo**
 
@@ -22,7 +22,7 @@ He was holding still to ask it.
 
 “It's a good picture.”
 
-“It is a very good picture. Then what is wrong with it?”
+“It is a very good picture. What is wrong with it?”
 
 “Read me the two words.”
 
@@ -42,7 +42,7 @@ He thought about it.
 
 “On their page.”
 
-“Then I would like the whole thing gone.”
+“I would like the whole thing gone.”
 
 “I know you would.”
 
@@ -126,7 +126,7 @@ My phone went before the first truck was out. Denise saw the name before I did. 
 
 “There are two hundred and six.”
 
-“Then I'm behind.”
+“I'm behind.”
 
 He was quiet for a second.
 
@@ -140,7 +140,7 @@ I hung up. Denise was looking at me with her whole face.
 
 “It's Wednesday.”
 
-“Then go do Friday's.”
+“Go do Friday's.”
 
 She went up the steps with her phone and her coffee and didn't stop reading till the door shut.
 

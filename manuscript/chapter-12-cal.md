@@ -1,4 +1,4 @@
-## Chapter 12
+## Chapter 12: Nine Questions
 
 **Cal**
 
@@ -140,7 +140,7 @@ He looked at the woman beside him, who looked at her laptop.
 
 “Thirty-one, on average,” she said.
 
-“Then their mothers are about sixty,” I said, “and every one of them is alive.”
+“Their mothers are about sixty,” I said. “Every one of them is alive.”
 
 Nobody answered.
 
@@ -216,7 +216,7 @@ Jo pointed the pencil at the cabinets.
 
 “His.”
 
-“Then he's in the room when they get packed,” Jo said.
+“He's in the room when they get packed,” Jo said.
 
 “He has never opened one of those drawers.”
 

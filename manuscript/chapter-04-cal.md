@@ -1,4 +1,4 @@
-## Chapter 4
+## Chapter 4: Green or Blue
 
 **Cal**
 
@@ -6,7 +6,7 @@
 
 I reached my mother's house at 6:19 in the morning on the first Saturday, forty-one minutes early. I spent all forty-one of them in the car.
 
-The house is 15.4 miles from mine. It takes twenty-two minutes. Until that Friday on the sidewalk I had not made the drive since the week she died. Before that, four times in five years.
+The house is 15.4 miles from mine. It takes twenty-two minutes. Since the week she died I had driven by every Sunday and not stopped. Until that Friday on the sidewalk I had not gotten out of the car. While she was alive, I made the drive four times in five years.
 
 It is an Eichler on West Remington Drive, a wide street with old trees down both sides. Hers is in the run of Eichlers beside the church on the corner at the Bernardo end, facing the middle school.
 
@@ -110,11 +110,11 @@ The street was empty. Two houses down, somebody's sprinkler was ticking against 
 
 “I told her on the sidewalk that I would not ask her again.”
 
-“Then don't.”
+“Don't.”
 
 “That is what I said.”
 
-“Then she'll have to,” Dawn said.
+“Good. Now she has to,” Dawn said.
 
 I did not see how that followed. I filed it.
 
@@ -318,7 +318,7 @@ She took the two rolls of tape off her belt. “Green or blue.”
 
 “I do not know.”
 
-“Then they sit.”
+“They sit.”
 
 She carried the boxes to the hearth and set them down side by side with the labels to the brick. She put no tape on them.
 

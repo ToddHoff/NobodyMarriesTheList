@@ -1,4 +1,4 @@
-## Chapter 7
+## Chapter 7: Low Man Calls the Lift
 
 **Jo**
 

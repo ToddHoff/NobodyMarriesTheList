@@ -1,4 +1,4 @@
-## Chapter 11
+## Chapter 11: The Door Goes Green
 
 **Jo**
 
@@ -60,7 +60,7 @@ My son talks to that thing every day. He tells it what he wants and argues with 
 
 “Owen.”
 
-“Then I'll show you,” he said. “You're not the client.”
+“Fine. I'll show you,” he said. “You're not the client.”
 
 He had it up before I could say anything. He'd had it ready.
 
@@ -272,7 +272,7 @@ Cal took a second with that.
 
 “Eleven. One is can I pet Pancake.”
 
-“I see. Then tell me what is wrong with this box.”
+“I see. Tell me what is wrong with this box.”
 
 “There's no H on the bottom.”
 

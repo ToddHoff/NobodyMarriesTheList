@@ -1,4 +1,4 @@
-## Chapter 17
+## Chapter 17: The Guest Room
 
 **Jo**
 

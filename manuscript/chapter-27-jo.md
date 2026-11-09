@@ -1,4 +1,4 @@
-## Chapter 27
+## Chapter 27: I've Got It
 
 **Jo**
 
@@ -80,7 +80,7 @@ Denise wrote it down. “Vili says THANK you, by the way. He's got his Saturday.
 
 “You were going to.”
 
-“Who's driving Monday?” she said. I didn't answer. “Then who's paying for Dad's KNEES?”
+“Who's driving Monday?” she said. I didn't answer. “Who's paying for Dad's KNEES?”
 
 I went and sat in my own truck.
 
@@ -384,7 +384,7 @@ Cal looked at me. “May I get lunch?”
 
 On Monday at five-thirty my father would have the keys off the board.
 
-He looked at me a second longer. “Then I will have the same.”
+He looked at me a second longer. “I will have the same.”
 
 Two burgers and two beers came to eighty-one fifty before the tax. I could do eighty-one fifty.
 

@@ -1,4 +1,4 @@
-## Chapter 20
+## Chapter 20: Two More Saturdays
 
 **Cal**
 
@@ -136,7 +136,7 @@ Jo came out to the atrium with tape on her wrist.
 
 “Lunch is at eleven.”
 
-“Then I'll wait till eleven.”
+“I'll wait till eleven.”
 
 She sat down on the bench in the shade with a tote bag and a calculator, took a stack of mileage sheets out of the bag and went to work on her knee.
 
@@ -298,9 +298,9 @@ She picked up on the second ring. When a door closed behind her, the street nois
 
 “Denise Silveira just asked me what happens after the house is empty,” I said. “I did not know. You are the one who closes things for me.”
 
-“I've done it seven times with you. The four before me I can't speak for.”
+“I've done it seven times. The four before me I can't speak for.”
 
-“Then tell me about the seven.”
+“Tell me about the seven.”
 
 She poured. I waited for it.
 
@@ -422,7 +422,7 @@ She let the tape run back into the case. It went in with a snap.
 
 She looked at the frames instead of me. There was sweat at her hairline. By noon even the hall was hot. It was three feet wide. I was close enough to see the peeling place on her nose and the freckles under it that had not been there two weeks ago.
 
-“Then you heard me say you threw up.”
+“You heard me say you threw up.”
 
 “I heard you say I did not throw up.”
 
@@ -565,7 +565,7 @@ I stood in the hall with the phone.
 
 “Cancel the weekend,” I said.
 
-*Removed,* the screen said. *Twelve items remain. Review?*
+*Removed,* the screen said. *One item remains. Review?*
 
 I did not open it. I knew what it would show me. It would show me eleven women and four point one months, and the plan it had made from them, and where I was in it. I put the phone in my pocket.
 

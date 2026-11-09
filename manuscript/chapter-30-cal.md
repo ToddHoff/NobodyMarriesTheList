@@ -1,4 +1,4 @@
-## Chapter 30
+## Chapter 30: Back to Two
 
 **Cal**
 
@@ -141,7 +141,7 @@ I read it four times. I did not tear it.
 
 I put it in the envelope and wrote ABBY on the front.
 
-The last envelope I had addressed myself went to the school district office in Sunnyvale, in June of 2020.
+Before the three letters in July, the last envelope I had addressed myself went to the school district office in Sunnyvale, in June of 2020.
 
 I put this one on the table in the front hall. It looked small on there. I left it.
 
@@ -291,21 +291,17 @@ She was looking at the door against the wall, in its pads.
 
 “It is the bathroom door from Grandma's hall.”
 
-She put her bag down on the floor. She went to the door and took hold of the edge of the top pad and pulled. The tape came away in a long strip. The pad fell open.
+She did not go to it. She stood with her bag still on her shoulder. In July, in that hall, she had hung the robe back over the lines so that nobody would see them. Three weeks ago I had asked to do hers. She had not answered. She was not going to ask me now.
 
-The robe was blue in the hall light, on its brass hook. She lifted it off the hook with both hands and held it.
+I put the towel down. I took hold of the top pad and pulled. The tape came away in a long strip. The pad fell open. The robe was blue in the hall light, on its brass hook. I put my hand in the right pocket and took out the pen. My mother had always kept it there.
 
 The lines went up the right side in my mother's blue ballpoint, ABBY 3 to ABBY 14. Mine went up the left, CALVIN 4 to CALVIN 12. On her side, half an inch over her nine, in Jo's carpenter's pencil, OWEN 9. I had drawn that one in June, along the edge of Jo's hand on her son's head.
 
-She stood holding the robe and looked at all of it.
-
-In July, in that hall, she had hung this robe back over the lines.
-
-She put her hand in the right pocket of the robe and took out the pen. She had known it was there. She hung the robe over the table, next to the envelope, and held the pen out to me.
-
 I stood the door up off the wall and held it plumb with my knee. It had hung an inch off my mother's floor. On mine every line on it was an inch lower than it had been in her hall.
 
-Abby turned around and stood with her back flat against it, under her fourteen. She stood up straight.
+I did not ask again. I held my hand out flat, at about the height of her head, and waited.
+
+She looked at my hand for a while. Then she put her bag down. She lifted the robe off the hook and hung it over the table, next to the envelope. She turned around and stood with her back flat against the door, under her fourteen. She stood up straight.
 
 I put my hand flat on the top of her head. Jo's hand had been flat on Owen's. My mother's would have been flat on Abby's every year from three to fourteen, on whatever day in the summer Abby was at her house, in that hall, with the robe moved over to the side. I was in another time zone for every one of them.
 
@@ -546,7 +542,7 @@ Since Wednesday I had opened Jo's thread twenty-six times. A week ago Friday I h
 
 “I want her to answer.”
 
-“Then why haven't you sent her anything?”
+“Why haven't you sent her anything?”
 
 “She would have to answer it.”
 

@@ -1,4 +1,4 @@
-## Chapter 31
+## Chapter 31: Sea Glass
 
 **Jo**
 
@@ -234,7 +234,7 @@ She looked at it. She didn't take it yet.
 
 “Every page.”
 
-“Then sign it.”
+“Sign it.”
 
 “Nobody's asked me anything,” I said. “If he does, he can bring it himself.”
 
@@ -304,7 +304,7 @@ She didn't answer right away. She poured half a cup.
 
 “No.”
 
-“Then what is Stephanie doing with a prenup?”
+“What is Stephanie doing with a prenup?”
 
 “She had it drawn in July. In case.”
 
@@ -354,7 +354,7 @@ It came out of me the way the meteor came over the yard. No warning, and the who
 
 “It's the first thing.”
 
-“Then that's what I'll write down.”
+“That's the one I'm writing down.”
 
 She wrote it at the bottom of a page that already had lines on it. I didn't read up the page.
 
@@ -392,9 +392,9 @@ I didn't say anything.
 
 “I wasn't going to.”
 
-“You could text him two words,” Dawn said. “‘Not yet.’ Then he'd know you're still there.”
+“You could text him two words,” Dawn said. “‘Not yet.’ He'd know you're still there.”
 
-“Then he'd send me something back.”
+“And he'd send me something back.”
 
 “He might.”
 

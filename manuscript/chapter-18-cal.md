@@ -1,4 +1,4 @@
-## Chapter 18
+## Chapter 18: Bring Nothing
 
 **Cal**
 
@@ -70,7 +70,7 @@ We ate at her table, which had three chairs. One had a phone charger hanging off
 
 “It's my father's linguiça. You can't pay me back with my father's linguiça.”
 
-“Then I still owe you.”
+“I still owe you.”
 
 “You still owe me.”
 

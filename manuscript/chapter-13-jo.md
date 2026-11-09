@@ -1,4 +1,4 @@
-## Chapter 13
+## Chapter 13: Which Parts Were You
 
 **Jo**
 
@@ -212,7 +212,7 @@ Dawn had said to watch what a man does with a no. I hadn't told him no. I'd aske
 
 I took the clipboard off the hook and turned to a clean found sheet. My hands needed something.
 
-“Then we do it my way,” I said. “Same as a closet. I call it out, you say whose it is, and I write it down.”
+“We do it my way,” I said. “Same as a closet. I call it out, you say whose it is, and I write it down.”
 
 I got my phone out and started at the top.
 

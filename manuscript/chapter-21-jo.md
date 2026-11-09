@@ -1,4 +1,4 @@
-## Chapter 21
+## Chapter 21: Seventy-Two Degrees
 
 **Jo**
 
@@ -68,7 +68,7 @@ He looked down the hall at the glass.
 
 “She opened every slider at nine at night,” he said. “She put a box fan in my window and took it out at six in the morning.”
 
-“Then she knew what she was doing.”
+“She knew what she was doing.”
 
 “All right,” he said. He put his phone in his pocket.
 
@@ -186,7 +186,7 @@ I didn't say anything to that. His mother's his business. I looked back up at th
 
 “I do not know what to do about the bed,” he said after a while.
 
-“Then it stays,” I said, “till you do.”
+“It stays till you do,” I said.
 
 ***
 
@@ -290,7 +290,7 @@ I've got a phone full of Owen at two. I hardly look at them. I was there.
 
 “I wanted one I was there for,” he said. “I wanted to hear one skip six.”
 
-“Then why not a woman with kids?”
+“Why not a woman with kids?”
 
 “She would have been to the games,” he said. “She would ask me which of Abby's I went to.”
 

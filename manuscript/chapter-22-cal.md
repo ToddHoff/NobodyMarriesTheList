@@ -1,4 +1,4 @@
-## Chapter 22
+## Chapter 22: Asleep Before Palo Alto
 
 **Cal**
 
@@ -24,7 +24,7 @@ My shirt from Saturday was on the floor with the card in the pocket. I put it on
 
 I walked Pancake down West Remington. He stopped at the school gate and read the post for a long time. I let him.
 
-Abby's party was at five, at X's house in Menlo Park. Abby was leaving in twenty-three days. Janice had bought the present on Wednesday. It was on the table in my front hall in Woodside, with a card in it in my handwriting. Janice had written the card.
+Abby's going-away party was at five, at X's house in Menlo Park. Abby was leaving in twenty-three days. Janice had bought the present on Wednesday. It was on the table in my front hall in Woodside, with a card in it in my handwriting. Janice had written the card.
 
 I had meant to ask Jo to come. There had not been a minute on Saturday when she was not on a job, except the ones after eight. I had not used those for asking.
 
@@ -100,7 +100,7 @@ Jo put the pit in her shirt pocket.
 
 “I own forty shirts. They are all gray.”
 
-“Then wear the gray one.”
+“Wear the gray one.”
 
 I laughed. I had not expected to.
 

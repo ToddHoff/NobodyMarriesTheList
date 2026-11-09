@@ -1,4 +1,4 @@
-## Chapter 23
+## Chapter 23: Minus Tide
 
 **Jo**
 
@@ -402,7 +402,7 @@ The white truck had been slipping out of second since May. Vili heard it first. 
 
 “On the sixteen-footer that's two loads.”
 
-“Then it's two loads. I'll call the shop at seven.”
+“It's two loads. I'll call the shop at seven.”
 
 “Boss.”
 
