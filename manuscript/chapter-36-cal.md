@@ -40,8 +40,6 @@ On the third of September, a Thursday, Jo had put a card on her kitchen table be
 
 I looked at the empty line. She waited with the pencil over it.
 
-My watch tapped against my wrist. I let it.
-
 Janice had filled in Abby's card every August from kindergarten on. My name went on the second line, after Stephanie's, with Janice's number beside it.
 
 "Yes," I said. "Put my own number on it. Not the office."
@@ -324,7 +322,7 @@ I answered it at 12:58. *Yes. 101.6. He is asleep on Jo's couch.*
 
 The dots came and went three times. She was starting something and taking it back. Then she wrote *ok*.
 
-I turned the phone face down on Jo's coffee table and squared it with the rest.
+I turned the phone face down on Jo's coffee table.
 
 At 1:00 I texted Jo. *1:00. 100.9. Asleep.*
 
@@ -522,7 +520,7 @@ At 4:20 the next morning I carried Pancake down the three steps in the dark. He 
 
 At 4:58 I knocked on Jo's front door with one knuckle.
 
-She opened it. She had slept in her crew shirt. The stripe from the strap was still across the front. Her hair had come down on both sides. She smelled like cardboard and the ocean. My pulse went up under my watch. I wanted to put my mouth on the back of her neck. I stayed on the step.
+She opened it. She had slept in her crew shirt. The stripe from the strap was still across the front. Her hair had come down on both sides. She smelled like cardboard and the ocean. I wanted to put my mouth on the back of her neck. I stayed on the step.
 
 "He's up," she said.
 

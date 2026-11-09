@@ -126,7 +126,7 @@ I did not understand it. I put my thumb on it. The pencil was soft enough to sme
 
 *If he does, he can bring it himself.*
 
-I put the forty pages back in the envelope in their order and laid it on the hall table where Abby had squared it, with DAD up.
+I put the forty pages back in the envelope in their order and laid it on the hall table, with DAD up.
 
 Pancake was asleep under my desk in the study, on his side, snoring. At 12:40 I woke him and walked him up to bed. He took the stairs one at a time with me behind him. He lay down on his bed by my door and sighed through his nose, the way he does when the day has met his specifications.
 

@@ -358,7 +358,7 @@ I had been watching that smile since the walk outside. I did not like the table 
 
 “I said pick it. I didn't say buy it.”
 
-She opened her purse. I could see the tape measure in it. She took out three twenties and put them under the edge of her plate, squared.
+She opened her purse. I could see the tape measure in it. She took out three twenties and put them under the edge of her plate.
 
 “That's for the kid who brought the bread,” she said.
 

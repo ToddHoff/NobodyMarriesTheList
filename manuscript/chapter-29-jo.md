@@ -310,7 +310,7 @@ Standing in Janice's office with her tape gun going behind me, I couldn't tell a
 
 I put the clipboard down on Janice's desk.
 
-There was a sheet of paper on the desk, face up, on top of a stack she'd squared to the corner. One page, typed. Twelve lines with a number in front of each one, and a line of small type at the bottom.
+There was a sheet of paper on the desk, face up, on top of a stack. One page, typed. Twelve lines with a number in front of each one, and a line of small type at the bottom.
 
 ```
 1.  5'8″ or taller

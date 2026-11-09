@@ -372,7 +372,7 @@ I waited.
 
 “The one in Hillsborough with the bracelets. She wouldn't let my guys carry the shoebox.”
 
-“That one,” Dawn said. “She was fine. Mad, but fine. California gives them half.” She poured. “I had one in Atherton. Thirty-one years. I asked her what she wanted out of it, and she asked me what he was offering.”
+“That one,” Dawn said. “She was fine. Mad, but fine. California gives them half. I had one in Atherton. Thirty-one years. I asked her what she wanted out of it, and she asked me what he was offering.”
 
 I didn't say anything.
 
@@ -401,8 +401,6 @@ I didn't say anything.
 My phone was on my knee. I didn't pick it up.
 
 If I called him, I didn't know which word would come out first. On the rock I'd had one in my mouth. In his office I'd had it again, behind all the rest, and shut my mouth on it.
-
-Dawn poured. Half a cup.
 
 “Has he stopped calling you?” she said.
 

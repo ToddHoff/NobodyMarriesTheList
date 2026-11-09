@@ -52,7 +52,7 @@ He was standing beside his car under the light over the dock, in the gray shirt,
 
 “You said 5:30. I did not want to be late on the first day.”
 
-I put the packet on the hood of the sixteen-footer. Two tax forms and the one where you show ID. He filled them out standing up, in small square capitals, and showed me his license without being asked. He was done in under four minutes. Then he squared the forms to the edge of the hood, the way he squares Janice's cards.
+I put the packet on the hood of the sixteen-footer. Two tax forms and the one where you show ID. He filled them out standing up, in small square capitals, and showed me his license without being asked. He was done in under four minutes.
 
 I'd seen those capitals once before. He'd drawn a line on his mother's bathroom door along the side of my finger and written OWEN 9 beside it. He'd taken a long time over the O.
 

@@ -256,7 +256,7 @@ I let them in. Pancake stopped in my doorway and wagged at me, slow, the whole b
 
 I filled Owen's cereal bowl at the sink and put it down by the back door. He drank it dry. I filled it again.
 
-Cal sat down at my table and looked at the laptop. Then he pushed it square to the edge of the table before he touched a key.
+Cal sat down at my table and looked at the laptop.
 
 “The trackpad sticks,” I said. “Use the arrows.”
 

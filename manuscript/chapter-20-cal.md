@@ -344,7 +344,7 @@ I ran the seven. I could not see their faces. Every one of them was the same wee
 
 “What do I do with that?” I said.
 
-“You don't have to do anything with it. You asked me what they said.” She poured. “Let me ask you one. What does Joanna do when you're wrong?”
+“You don't have to do anything with it. You asked me what they said. Let me ask you one. What does Joanna do when you're wrong?”
 
 “On the first Saturday I used her tape gun wrong and cut my thumb,” I said. “She said, let me see it. She taped it and gave me thirty-six more boxes to build.”
 

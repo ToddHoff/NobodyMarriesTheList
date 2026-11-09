@@ -4,7 +4,7 @@
 
 On Sunday morning, in his shirt and my reading glasses and not much else, I was asked if I wanted to go see a volcano.
 
-He'd been at my kitchen table about a minute. He'd squared my chipped mug to the edge of it.
+He'd been at my kitchen table about a minute.
 
 I'd left him asleep in my bed. I stood in the door a while wanting to wake him up. I was thinking about his hand on the back of my leg last night, on the scar.
 

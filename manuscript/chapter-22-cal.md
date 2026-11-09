@@ -230,7 +230,9 @@ Jo went in to wash her hands and was back in a minute.
 
 I had not asked.
 
-The man across from me said he had driven Abby to school on Thursdays for six years, in a carpool. I had not known there was a carpool. I asked him what she talked about in the car.
+The man across from me waited until Jo had turned to the girls before he leaned in. He had his phone face down beside his plate with one hand on it. I know that wait. It comes before a deck. I had a no ready, a kind one, with the name of someone at the office in it.
+
+He said he had driven Abby to school on Thursdays for six years, in a carpool. I had not known there was a carpool. I asked him what she talked about in the car.
 
 “She didn't,” he said. “She drew. Buildings, on the inside of the window, with her finger, when it fogged up. My wife used to make her wipe them off before we got to school.”
 

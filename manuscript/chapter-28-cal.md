@@ -214,7 +214,7 @@ Owen went around to the other side of the post to find Diablo.
 
 Jo came and stood in front of me with her back to the wind. Then she leaned back against my chest. I put my arms around her, over my fleece. Her hair came loose. The wind blew it out in front of her toward the bay. The back of her neck was bare. I wanted my mouth on it. Under my hands I could feel her breathing slow down, the climb going out of her. I wanted her so much that I held still.
 
-She stood against me and watched the bay. I waited for her to say it. I could feel each breath she took through the fleece. I counted them. At nine I stopped, because I was not counting to anything. I had been waiting since Thursday. My watch tapped against her hip.
+She stood against me and watched the bay. I waited for her to say it. I could feel each breath she took through the fleece. I counted them. At nine I stopped, because I was not counting to anything. I had been waiting since Thursday.
 
 Out over the bay a line of lights hung in the air, one behind another, each one a plane with its lights on, coming in toward the runways under us. I counted eight. While I counted, the one in front came down onto the runway and a new one showed at the back of the line, far out over the water.
 

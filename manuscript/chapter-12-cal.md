@@ -122,7 +122,7 @@ We hold reviews standing, on the open floor. Since I took the chairs out in 2019
 
 “Say the last part again,” I said.
 
-“You tell Remy once,” Brandon said. “Your mother's birthday, Mother's Day, Christmas. It picks the gift, writes the card and sends it, every year. You never miss one again.”
+“You tell Remy the people and the dates, once,” Brandon said. “Birthdays, anniversaries, the kids' teachers at Christmas. It picks the gift, writes the card and sends it, every year. You never miss one again.”
 
 He was proud of it, with reason.
 
@@ -144,9 +144,11 @@ He looked at the woman beside him, who looked at her laptop.
 
 Nobody answered.
 
+The sample was enough to stop it.
+
 I knew where Jo was without looking. She had stopped counting.
 
-“My office has done this for my mother since 2014,” I said. “It sent her a gift for Mother's Day, on the fifth of May. She died in October. It does not ship until it has a field for whether she is alive.”
+“My office has done this for my mother since 2014,” I said. “It sent her a gift for Mother's Day, on the fifth of May. She died in October. It does not ship until it has a field for whether the person is alive.”
 
 I had not said that out loud to anyone who works for me. I said it at the volume I use for a schedule change. It was easier with her there. I do not know why.
 

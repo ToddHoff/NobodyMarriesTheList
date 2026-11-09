@@ -109,9 +109,7 @@ I thought it was not the same. In 2012 I wanted my mother free. She would never 
 
 I looked for a way to say that to Abby. Every way I found came out as *this time I meant it.* That is what a man says about the twelfth one. Abby had sat at the end of the table for the other eleven.
 
-My watch tapped against my wrist. I did not turn it over.
-
-Abby got up. She took the tin and went through it again and pulled one card and put it on the counter in front of me, square to the edge, the way I put things down.
+Abby got up. She took the tin and went through it again and pulled one card and put it on the counter in front of me.
 
 POT ROAST. Four hours. In the corner, a 2 with a line through it and a 1.
 
@@ -512,7 +510,7 @@ Dawn said nothing for a while. I heard her breathe out through her nose.
 
 “Remy wrote you a list tonight too,” I said. “Twelve lines. For the next one. I did not save it.”
 
-“I'd have shredded it,” Dawn said. She poured. “So what are you calling me for?”
+“I'd have shredded it,” Dawn said. “So what are you calling me for?”
 
 “I want to know what to do.”
 
@@ -526,7 +524,7 @@ She meant hers. I gave her all eleven.
 
 “And they were gone. I did not notice for a week or two. Remy noticed.”
 
-“So you know what nothing looks like.” She poured again. “Is this the same nothing?”
+“So you know what nothing looks like. Is this the same nothing?”
 
 I took my time with it. She waited. She did divorces for fifteen years. She lets a witness take as long as he needs.
 

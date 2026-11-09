@@ -112,7 +112,7 @@ The closet was full of boxes to the shelf. They were brown, all one size, with t
 
 She had stacked them by date, oldest at the bottom left. There was not one box out of order.
 
-Every box sat square on the one under it, with the edges lined up. I square whatever I put down. On Sunday Abby had squared my card to the edge of Stephanie's table. My hands were cold. The hall said seventy-nine.
+Every box sat square on the one under it, with the edges lined up. On Sunday Abby had squared my card to the edge of Stephanie's table. My hands were cold. The hall said seventy-nine.
 
 I counted them against the slips. There were thirty-four.
 
@@ -206,7 +206,7 @@ My mother died on October 8. The payment would have been due on the first.
 
 I opened October 2025 too. It was the same, thirty twenties, a ten and two ones. I counted it twice.
 
-There were one hundred and fifty-six envelopes. They held ninety-five thousand four hundred and seventy-two dollars. My watch tapped against the inside of my wrist. I did not look at it.
+There were one hundred and fifty-six envelopes. They held ninety-five thousand four hundred and seventy-two dollars.
 
 Jo had not written anything down yet. She was looking at the row of shoeboxes on the slab.
 

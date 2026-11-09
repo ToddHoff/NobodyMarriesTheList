@@ -166,7 +166,7 @@ She looked at the cave a little longer. Then she slid the pad off, crawled in, a
 
 “Come down here,” she said.
 
-I ducked in. There was room for two people if they did not mind each other. The stone was cool against my back after the sun. She took my face in her hand and kissed me, slowly. My watch tapped on my wrist. I put both hands on her waist.
+I ducked in. There was room for two people if they did not mind each other. The stone was cool against my back after the sun. She took my face in her hand and kissed me, slowly. I put both hands on her waist.
 
 Then she climbed out and sat down on the pad and put the shoes on.
 
@@ -182,11 +182,15 @@ She reached the top of the wall, looked over it, and came back down the same way
 
 “That is the first one.”
 
-She did the second one. Then she did the third, which had taken me four tries. She did it on her second.
+She did the second one. Then she started the third, which had taken me four tries. At the fourth move her right foot came out of the pocket. She did not call it. She came off the wall backward with her hands still open.
 
-I went up the third one after her. I came off at the fourth move and landed on my back on the pad. Then I came off at the fourth move again. The third time I put my feet where she had put hers. I got to the top.
+My hands were where I had read they should be. They took her under the ribs, thumbs in. I turned her toward the pad and kept her upright. She landed on her feet with my hands still on her. Her ribs went in and out under my fingers.
 
-When I dropped onto the pad she had her hands up behind me with her thumbs in. They caught me under the ribs for a second. Then she stepped back.
+For about a second she leaned back into them. Then she stepped off the pad.
+
+“Your thumbs were in,” she said.
+
+She put her right foot back in the pocket, pressed it, and went up. She got it on her third. I did not try it after her.
 
 ***
 
