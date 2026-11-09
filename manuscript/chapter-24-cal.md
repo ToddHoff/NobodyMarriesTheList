@@ -8,7 +8,9 @@ It was my mother's meat loaf. The card was in the green tin, in her blue ballpoi
 
 I made it for two.
 
-I had made it twice. The first one went in at 10:50 on Monday night, after dinner at Frank Silveira's house. I followed the card to the quarter teaspoon. At 11:52 it was gray on the outside and pink in the middle. The card did not say to heat the oven first. My mother had not needed it to. The card had no onion on it. I gave Pancake a slice. He thought it was the best thing I had ever made. I put the rest in the refrigerator for him. The second went in at 5:40 this morning, after the walk. Pancake lay in front of the oven for the full hour and watched it through the glass. It came out brown all the way through.
+I had made it twice.
+
+The first one went in at 10:50 on Monday night, after dinner at Frank Silveira's house. I followed the card to the quarter teaspoon. At 11:52 it was gray on the outside and pink in the middle. The card did not say to heat the oven first. My mother had not needed it to. The card had no onion on it. I gave Pancake a slice. He thought it was the best thing I had ever made. I put the rest in the refrigerator for him. The second went in at 5:40 this morning, after the walk. Pancake lay in front of the oven for the full hour and watched it through the glass. It came out brown all the way through.
 
 Abby was coming on the fourteenth. I had decided to cook every card in the tin that had a 2 on it, in the order my mother filed them. I would make the mistakes on someone who would tell me.
 
@@ -136,11 +138,11 @@ I did not take either one.
 
 “All of them?”
 
-“Yes.”
+“You do not have to stay.”
 
 She looked at the closet and the hall floor. She had been on her feet since before six that morning. It was 7:48.
 
-“Okay,” she said, and sat down on the slab with her back against the bathroom door frame and the clipboard on her knees.
+“Noted,” she said. She wrote it down and sat on the slab with her back against the bathroom door frame and the clipboard on her knees.
 
 ***
 
@@ -200,7 +202,7 @@ I opened November. Inside were thirty twenty-dollar bills, a ten and two ones. I
 
 I did not need to count the others. I counted them anyway. The 2013 shoebox had twelve envelopes, one for every month, and so did every box after it through 2024. The 2025 box had ten. The last envelope said *Oct 2025.*
 
-My mother died on October 8. The payment would have been due on the first. Two days before she died she left me a voicemail. Remy's summary of it said it was not urgent, to call when I had a minute. I had never played it.
+My mother died on October 8. The payment would have been due on the first.
 
 I opened October 2025 too. It was the same, thirty twenties, a ten and two ones. I counted it twice.
 
@@ -244,6 +246,8 @@ It had been posted at 9:20 to a page that puts up pictures of people like me. It
 
 *Brennan's mover.*
 
-I looked at Jo. Her eyes were on the two words. Her mouth had gone flat. Her father's name was on both doors of the truck in the driveway.
+I liked it.
+
+I looked at Jo. Her eyes were on the two words. Her mouth had gone flat.
 
 She took the phone back out of my hand and put it face down on the slab between us.

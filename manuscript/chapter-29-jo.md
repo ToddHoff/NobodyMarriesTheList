@@ -20,7 +20,7 @@ It came out of nothing over the yard and went the whole way across, over my roof
 
 On the screen it was a long white line going up from the hill with the sign on it, green at the top. I sent it to Owen. *Saw one.* He'd be asleep till seven.
 
-Cal would be up. He walks Pancake down to his gate at five.
+Cal would be up. In ten minutes he'd be walking Pancake down to the gate.
 
 I opened his thread. The last thing in it was his, from Thursday night. *Your father and I folded forty-eight pads.* I hadn't answered it. I put the picture under it. My thumb sat over the arrow until the screen went dark.
 
@@ -180,7 +180,7 @@ She held mine out and looked at my face. Denise can't keep hers still when she's
 
 She looked at me a second longer. “Westlake. The two-bedroom. Dad's got the sixteen-footer for the loads.” She drank her coffee. “And Janice Louie called yesterday afternoon. HERSELF. Not the robot. She moved her office up from December to the twenty-EIGHTH, and she wants it walked again. Four o'clock today.” She looked at me over the lid. “She asked for YOU. I said you'd be in Westlake all day. She said she'd wait.”
 
-Janice Louie's office is on his floor. I'd meant to drive to Woodside tonight and say it to his face. Four o'clock was sooner.
+Nobody walks the same job twice for a new date. Janice wanted me on his floor. I'd meant to drive to Woodside tonight and say it to his face. I'd have had to text him I was coming. At four o'clock I wouldn't have to ask.
 
 “I can send Vili,” Denise said.
 
@@ -258,7 +258,7 @@ By the middle of the afternoon Vili had the last of the blue on the truck, Sharo
 
 ***
 
-I parked on level two of his garage with five minutes to spare, nose out, where I'd parked twice before. I took the clipboard and my tape and got on his elevator with pad fuzz all down the front of my shirt.
+I parked on level two of his garage with five minutes to spare, nose out, where I'd parked twice before. I took the clipboard and got on his elevator with pad fuzz all down the front of my shirt.
 
 His floor is sixty desks with nothing between them. I had to walk the length of it. Every head came up. I knew most of them had seen the picture from Abby's party. Somebody by the stairs turned her phone over on her desk when I went by.
 
@@ -274,29 +274,9 @@ Janice was at her desk with a tape gun. She put it down when she saw me and stoo
 
 “I gave notice on Friday.”
 
-I looked the room over. “Where do the cabinets go?”
-
-She looked at the inside door. His. It was shut.
-
-“In there.”
-
-“That's twenty feet.”
-
-“Twenty-two,” Janice said.
-
-I hooked my tape on the nearest cabinet and ran it across the carpet to his door. It was twenty-two.
-
-“Your building's got a man with a dolly,” I said.
-
-“He doesn't know what's in them.”
-
-I knew what was in them. She'd told me in June. A card for everybody he'd met since 2009, in her printing. Two of them were mine.
-
-I pulled the top drawer of the nearest one to see how full they ran. They were packed tight, on edge, with the tabs in her printing. You don't move a file cabinet full. The frame racks. The drawers come open on the dolly. Every card would have to come out and go back in, in the same order, in his office, with him in the room. I wrote it down.
+I looked at the cabinets. I knew what was in them. She'd told me in June. A card for everybody he'd met since 2009, in her printing. Two of them were mine.
 
 “I didn't send it,” Janice said.
-
-I wrote *14 cab, full, unload/reload* on the sheet.
 
 “You'd have asked me,” I said.
 
@@ -328,7 +308,7 @@ He'd said it to my face on a rock, with his heart going under my hand. I hadn't 
 
 Standing in Janice's office with her tape gun going behind me, I couldn't tell anymore which kind I'd gotten.
 
-I put the clipboard down on Janice's desk to work out the number.
+I put the clipboard down on Janice's desk.
 
 There was a sheet of paper on the desk, face up, on top of a stack she'd squared to the corner. One page, typed. Twelve lines with a number in front of each one, and a line of small type at the bottom.
 
@@ -357,35 +337,31 @@ I didn't pick it up. I'd read line one before I knew what I was reading. After t
 
 Seven. *Comfortable being looked after.* In April I'd made up a bed in a one-bedroom by the freeway in Redwood City.
 
-Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked me if I really needed to work this much. I'd said yes. On Friday afternoon he'd fixed it so I didn't.
+Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked me if I really needed to work this much. I'd said my dad still does. On Friday afternoon he'd fixed it so I didn't.
 
-*I said I would fix it.* He'd said that to the water at Carmel, about his wife, with his ears red.
+*I said I would fix it.* He'd said that to the water at Carmel, about his wife, with his thumb on the corner of the card.
 
 Twelve. On the log at Carmel, when he asked me what I wanted, I'd shut my mouth on it. In the margin beside it somebody had checked it off in ink and written my name and a date. *Joanna, May 4.*
 
-Nobody but Dawn Pruitt calls me plain Joanna. May fourth was three days before she sent me to that bar. Neither of them had told me.
+Nobody but Dawn Pruitt calls me plain Joanna. May fourth was three days before she sent me to that bar. She'd sent me on one line of his list. She hadn't told me.
 
 I stood there with the pencil in my hand and everything I'd come up here to say to his face.
 
-I picked the clipboard back up. “Which wall do they go on?” I said.
+I picked the clipboard back up.
 
 Janice knocked twice on his door and opened it.
 
-“Ms. Silveira needs your wall,” she said. Then she went out past me onto the floor and pulled her own door to behind her.
+“Ms. Silveira,” she said. Then she went out past me onto the floor and pulled her own door to behind her.
 
 He was already standing behind his desk. He had his sleeves pushed up and looked like he'd been up since four. The corner of the card stuck up out of his shirt pocket.
 
-I wanted my hand flat on his chest, where I'd put it on the rock. I stayed by the door.
+I wanted my hand flat on his chest, where I'd put it on the rock. I went to the window instead.
 
-His office had a desk with nothing on it and a long blank wall across from the window. I went to the wall, hooked the tape on the corner and walked it out to the window frame.
-
-“Nineteen feet,” I said, to the clipboard.
-
-Fourteen cabinets at fifteen inches is seventeen and a half. I wrote it down. Behind me he hadn't moved.
+Behind me he hadn't moved.
 
 “May I tell you why?” he said.
 
-I wrote *wall 19'* under the cabinets. I didn't turn around yet.
+I didn't turn around yet.
 
 “You read my statement upside down,” I said.
 
@@ -395,9 +371,9 @@ I wrote *wall 19'* under the cabinets. I didn't turn around yet.
 
 “You promised me at your sink.”
 
-“I broke it.”
+“I broke it. I had to.”
 
-I turned around then. He had his hands at his sides. His ears were red.
+I turned around then. He had his hands at his sides. There was nothing on his desk to square.
 
 “You didn't ask me,” I said. “You knew what I'd say.”
 
@@ -421,13 +397,11 @@ My driveway, in December now, or February. Chairs off the truck. Denise with a s
 
 I had more. Under all of it was the thing I hadn't said on the rock. His own assistant had just told me he always gives a present before the end.
 
-I didn't trust myself to say something real because I didn't know myself. So I said nothing.
-
-I wrote up the estimate at the bottom of the sheet. Fourteen cabinets, empty and reload, two men and me, one full day. I signed it and tore off the yellow copy. Then I went back out through Janice's office and opened her door.
+I didn't say any of it. I went back out through Janice's office and opened her door.
 
 She was standing just outside it with her hands folded, where she could see the whole floor and nobody could see in.
 
-I held the yellow copy out. “Every card comes out and goes back in the same order. One day. Denise will send you the number.”
+“The twenty-eighth,” I said. “Every card comes out by hand and goes back in the same order. Nobody rolls these.”
 
 “Thank you, Ms. Silveira.”
 

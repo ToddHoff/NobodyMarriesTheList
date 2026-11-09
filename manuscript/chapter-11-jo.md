@@ -60,6 +60,30 @@ My son talks to that thing every day. He tells it what he wants and argues with 
 
 “Owen.”
 
+“Then I'll show you,” he said. “You're not the client.”
+
+He had it up before I could say anything. He'd had it ready.
+
+“This is 2022. Minute nineteen. Everybody watches it.”
+
+I couldn't watch. I was in the middle lane on 101 behind the sixteen-footer. I listened. A big room, the kind that echoes even full. His voice, slower than it is at a curb. Then the phone in his hand, Remy, telling him to wait. Then nothing.
+
+“It froze,” Owen said. “Six thousand people.”
+
+I heard the room start to talk.
+
+Then Cal again, no louder. “There are six thousand phones in this room on our network. Put them face down on the floor. I will wait.”
+
+The room went quiet a little at a time, the way a crew does when they figure out the boss isn't kidding. Then a sound like the first of the rain on the roof of a truck.
+
+At the light at Mathilda I looked. He was in the middle of the stage with his own face forty feet wide behind him. His voice hadn't changed. The camera came in on the hand with the clicker in it. It had gone white across the knuckles.
+
+The demo ran. The room stood up.
+
+“He waited fifty-two seconds,” Owen said. “He didn't say anything the whole time.”
+
+The light changed.
+
 “Vili says he has a dog that leaned on you.”
 
 “Vili talks. Pancake stays on his side of the door. You stay on yours.”

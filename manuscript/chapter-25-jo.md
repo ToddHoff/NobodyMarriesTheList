@@ -30,7 +30,7 @@ He was holding still to ask it.
 
 “I've been Silveira's mover for twenty years.”
 
-He didn't say anything for a while. Out in the driveway the sixteen-footer had my father's name on both doors. My father painted his name on his first truck himself in 1987, on a Sunday, with a brush. I pay for the paint now.
+He didn't say anything for a while. Out in the driveway the sixteen-footer had my father's name on both doors. I pay for the paint now.
 
 “I can have them take the caption down,” he said.
 
@@ -56,7 +56,7 @@ I didn't say any of that. It was his.
 
 “The company page is mine.”
 
-“Yes.”
+“You could take it down until this is over.”
 
 “Don't touch it.”
 
@@ -252,7 +252,7 @@ I watched him from the front window. He parked behind my pickup, went around to 
 
 “He is not a thing.”
 
-I let them in. Pancake went past me into my kitchen like he'd been there before.
+I let them in. Pancake stopped in my doorway and wagged at me, slow, the whole back half of him going. I had my hand on his head before I'd decided to. Then he went into my kitchen like he'd been there before.
 
 I filled Owen's cereal bowl at the sink and put it down by the back door. He drank it dry. I filled it again.
 

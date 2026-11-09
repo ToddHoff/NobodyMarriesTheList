@@ -266,7 +266,7 @@ Kevin's gray sedan pulled up last. He got out and looked up the street and down 
 
 “Did you go under the bridge?”
 
-“Yes.”
+“Yes. Your grandfather let me raise the main.”
 
 “Did you fall in?”
 
@@ -292,7 +292,7 @@ Cal held on a second before he let go. He'd had that handshake before. My son ga
 
 “I did not do anything,” Cal said. “I sat.”
 
-“Yeah,” Kevin said.
+Kevin looked at him a while. Then he held out the wine.
 
 We ate at the kitchen table, the six of us, with the platter in the middle and the window open to the yard.
 
@@ -332,9 +332,9 @@ Kevin laughed and shook his head. “Everybody does the back one. The forward cl
 
 “Thank you.”
 
-He put his fork down. His ears had gone red.
+He put his fork down.
 
-I've seen his ears go red at the Oak and on his mother's slab and at the end of his ex-wife's table. I'd never seen it happen over another man, at my father's table, over where you tie up a boat.
+At the door Kevin had handed him the wine. Now he'd handed him the cleat. I'd never seen Cal take anything from another man.
 
 I felt that one in my knees. I had to look at my chicken.
 
@@ -370,7 +370,7 @@ Owen blew it out. He's done it every year since he was two.
 
 Owen laughed. He hears it every year. Kevin laughed. Cal looked at my father before he did anything.
 
-“She liked the bridge,” my father said.
+“She loved the bridge,” my father said.
 
 Denise talks about our mother like she's out in the kitchen getting forks. I can't. I never could. I put a piece of cake in my mouth and chewed it a long time.
 
@@ -410,7 +410,7 @@ The white truck had been slipping out of second since May. Vili heard it first. 
 
 He didn't hang up. I heard him breathe out.
 
-“Tell Frank hi,” he said.
+“Tell your mom happy birthday,” he said.
 
 I stood in my father's yard with the phone in my hand. A transmission for that truck was going to be about four months of the extra I put on the house. I had that done in my head before I'd put the phone in my pocket.
 
@@ -456,19 +456,19 @@ I went around to the driver's side with Kevin.
 
 He put his hand on the roof of the car. He looked up the street and down it.
 
-“In eleven years you asked me for one thing,” he said. “It was to sign.”
+“Only thing you ever asked me for, I had to sign it,” he said.
 
 He meant the papers. I'd had them drawn up in 2023 and put them on the kitchen table with a pen on top, on a Sunday, after he'd started talking to me again.
 
 Across the roof of the car Cal was looking at my son's phone. He'd heard. He kept his eyes on the volcano.
 
-“You never asked me for anything either,” I said.
+“You quit talking to me for six days,” I said.
 
-“I was at every game, Jo.”
+“I showed up, Jo. Every game.”
 
-“I know you were.”
+“I know you did.”
 
-“My dad never came to one. Not one.”
+“My dad never came to one.”
 
 “I know, Kevin.”
 
@@ -480,7 +480,7 @@ Cal came around and stood next to me in my father's driveway.
 
 “You heard that,” I said.
 
-“Yes. I would like to be asked for the second one.”
+“I was looking at the volcano.”
 
 He stood there with his hands in his pockets.
 
@@ -488,11 +488,7 @@ Kevin wasn't wrong. When the water heater went, Kevin came home to a hot shower 
 
 Now I had a dead truck in my yard. The man standing in my father's driveway didn't know it. I could have told him then. White truck, second gear, 92, Belmont. I didn't.
 
-“You were jealous,” I said. “Of Kevin.”
-
-“Yes. It was new.”
-
-“Over a cleat.”
+“You thanked Kevin,” I said. “For a cleat.”
 
 “He knew which one.”
 

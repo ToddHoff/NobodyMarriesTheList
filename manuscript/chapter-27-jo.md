@@ -86,9 +86,9 @@ I went and sat in my own truck.
 
 On Thursday Cal had said he loved me, twice. I hadn't said it back.
 
-Now I had a Saturday I hadn't asked for.
+I hadn't had a Saturday off since Owen was born. I'd been saving the next one for when the house was paid.
 
-In 2018 I moved a retired dentist from Pacifica to a cottage in Carmel with a name on it instead of a number. *Dolores 4 NE of 12th*. It took Vili three passes to find it. On the way out we went down Ocean Avenue to turn around. At the bottom there was a beach with dogs all over it and nobody holding a leash. Forty dogs, easy. I stayed in the cab.
+In 2018 I moved a retired dentist from Pacifica to Carmel. The houses there don't have numbers. His was *Dolores 4 NE of 12th*, and it took Vili three passes to find it. On the way out we turned around at the bottom of Ocean Avenue. There's a beach there where the dogs run loose. Forty of them, easy. I sat in the cab and watched them for five minutes on the clock.
 
 I typed it before I could think about it.
 
@@ -178,27 +178,35 @@ I was shaking a little. I took the fleece off his arm and put it on. It came dow
 
 At the north end, where the beach runs out under a bluff, there was a driftwood log. We sat on it. Pancake came back soaked and lay down in the sand against my left leg, on the scar, which is where he lies. I put my hand on his wet back.
 
+I opened my mouth. Cal turned his whole head.
+
 “Kevin used to go quiet,” I said.
 
 Cal waited.
 
-“Not mad quiet. He came home. He ate dinner. He passed me the salt. He'd go from a Tuesday to a Sunday without a word to me, and then on Sunday he'd ask if I wanted the paper, like nothing happened.”
+“Five days, six. He'd still come home for dinner. I'd ask him what was wrong. He never told me.”
 
 I watched Pancake's ribs go up and down under my hand.
 
-“I'd ask him what was wrong, and he'd tell me what time he'd be home Thursday. So I'd go looking for what I did. A job that ran long. Something I said to his mother. I never found it.”
+I'd asked him once.
 
 “At his car,” Cal said, “Kevin said that you asked him for one thing.”
 
 “You heard him.”
 
-“Yes.”
+“I have been trying to think of one thing you would let me do.”
 
-“He was right,” I said. “When he went quiet, I painted the hall. Twice in one year.”
+“Kevin was right,” I said. “When he went quiet, I painted the hall. Twice in one year.”
 
-I'd told Vili the rest of it once, in May, in the cab. I'd never told anybody about the hall. Cal let it sit there.
+I'd told Vili the rest of it once, in May, in the cab. I'd never told anybody about the hall.
 
-I didn't tell him when it started. The first time Kevin went quiet, Owen was five weeks old. That winter he called me from every store he walked into. Did we need anything. I had the baby on one arm and the phone on the other. I always had it handled. On a Tuesday in March he stopped asking. I've been looking for what I did ever since.
+“What color?” Cal said.
+
+“The same white. Both times.”
+
+I didn't tell Cal when it started. A Tuesday in March. Owen was five weeks old. Kevin used to come home and stand in the kitchen looking for something to do. I'd tell him to sit down. He'd been teaching all day.
+
+Cal had said he loved me on Thursday. It was Saturday.
 
 He took the card out of his shirt pocket. The corners had gone soft.
 
@@ -220,9 +228,9 @@ He took the card out of his shirt pocket. The corners had gone soft.
 
 “Twice. Stephanie kept going without me. In March she filed.”
 
-He said it to the water. His ears were red.
+He said it to the water in the voice he'd used for the blue glass. His thumb went back and forth over one soft corner of the card.
 
-*I said I would fix it.* I thought about my yard, and the white truck against the back fence with its hood up.
+Then he looked at me. “You asked,” he said.
 
 My hands were cold, even in his fleece. I held one out.
 
@@ -234,7 +242,7 @@ I gave it back. He put it in his pocket and kept his hand over the pocket.
 
 “What do you want?” he said.
 
-I had my hand in my pocket, on the glass. When I opened my mouth, what was in it was the house, paid off by fifty-five. Since Friday night that was December. What I wanted was twenty minutes ago, him on my left without being asked, and no piano after. I shut my mouth on both of them.
+I had my hand in my pocket, on the glass. When I opened my mouth, what was in it was the house, paid off by fifty-five. Since Friday night that was December. What I wanted was twenty minutes ago, him on my left without being asked, and no piano after. I shut my mouth on both of them. I put my knee against his and left it there.
 
 Pancake sighed against my leg.
 
@@ -256,7 +264,7 @@ Cal looked up at the edge of the bluff, then at my arm.
 
 It was a long way back down the beach to the slope, on soft sand now that the tide had come in. Pancake walked in front of Cal the whole way, slow, with his head down. Halfway up the slope he stopped and shook on both of us. I came up behind them with my sneakers in my hand. Cal's shirt was stuck to his back between the shoulders where Pancake had got him. I wanted both my hands there.
 
-At the top Cal clipped the leash on. I dropped my tailgate. Friday night I'd put a towel back there, a gallon of water, a mixing bowl out of my kitchen and a bag of soft dog treats. He's old. I didn't know what his teeth were like.
+At the top Cal clipped the leash on. I dropped my tailgate. I'd put a towel back there, a gallon of water, a mixing bowl out of my kitchen and a bag of soft dog treats. He's old. I didn't know what his teeth were like.
 
 I got down on the asphalt and started on his legs. He wouldn't stand still for it. He wiggled the whole time, nose to tail. When I did his back he turned all the way around so I'd do it again. His tail got me in the face twice. I got the sand out from between his toes with him leaning on my shoulder. I'd never had my hands on a dog that long in my life.
 
@@ -272,7 +280,7 @@ He held Pancake's head in both hands while I wiped his face.
 
 ***
 
-I took us out the long way, down Scenic Road. It runs one way, south along the water. Every house on it has a name instead of a number. Half of them had nobody home, with every blind down to the same height.
+I took us out the long way, down Scenic Road. It runs one way, south along the water. Half the houses had nobody home, with every blind down to the same height. Nothing on that road sells for under ten million. I could get the small ones on one truck. I wondered if one of them was Cal's. He might not know. Remy would.
 
 Out on the point there was a house built of gray rocks off the beach, with a stone tower beside it, forty feet if it was an inch.
 
@@ -284,7 +292,7 @@ Cal looked at me. I drove.
 
 At the end of Scenic I cut over to Rio Road and went past the Mission. I crossed myself going by. Then we were on 1 going south.
 
-Point Lobos won't let a dog past the gate, not even shut up in a car. I'd looked that up Friday night. I pulled into the turnout on 1 short of the gate, which saves the ten dollars too. Pancake was asleep on my seat covers before I had the engine off, with sand in his ears. Cal rolled the windows down a hand's width and filled the water bowl. Pancake didn't open his eyes.
+Point Lobos won't let a dog past the gate, not even shut up in a car. I'd looked that up Friday night. I pulled into the turnout on 1 short of the gate, which saves the ten dollars too. Pancake was asleep on my seat covers before I had the engine off, with sand in his ears. Cal rolled the windows down halfway and filled the water bowl. Pancake didn't open his eyes.
 
 Cal took a trail guide out of the box at the gate and read it walking.
 
@@ -314,15 +322,17 @@ Where the trail goes back into the trees, it's one person wide. Cal went first. 
 
 He stopped. He didn't turn around. He reached back with one hand and held my wrist against him. We stood there between the wires. I put my forehead between his shoulders. His shirt still smelled like the wet dog.
 
-I waited for the piano. When a family came around the bend behind us, he let go of my wrist so they could get by.
+I waited for him to say he loved me again. He didn't. When a family came around the bend behind us, he let go of my wrist so they could get by.
 
 South of Point Lobos the road climbs out onto the side of the mountains and stays there. On my side the hills went up gold, grazed short, with cows standing on them sideways to the slope. On Cal's side there was nothing but air, and a long way down, the water. It was green over sand and dark over kelp, with a white edge on every cove where it broke. The fog had gone back out and sat on the ocean a few miles off, flat and white. Cal had his window down and his arm out in the wind.
 
 I'd lived three hours north of this my whole life. I'd never driven it.
 
-At Bixby Creek the road crosses the canyon on one gray arch, from one side to the other. I'd seen it sell me a car on TV a hundred times. Thirty people were stopped on the shoulder at the north end, taking the same picture. I pulled in with them.
+At Bixby Creek the road crosses the canyon on one gray arch, from one side to the other. I'd seen it sell me a car on TV a hundred times. Thirty people were stopped on the shoulder at the north end, taking the same picture. There was a new NO PARKING sign on a post in the middle of them. I pulled in with them.
 
-“It is two hundred and sixty feet down to the creek,” Cal said.
+“Why does everybody stop here?” I said. “It's a bridge.”
+
+“It is one of the tallest single-span concrete arches in the world,” Cal said. “It is two hundred and sixty feet down to the creek.”
 
 I walked out to the edge. The arch went across in one piece, so thin from the side it didn't look like it could hold up the road. Under it the creek came out of the canyon and crossed a little gray beach into the ocean, where the water was the color of a swimming pool, going white on the sand. South of the bridge the coast went on, one headland behind another, each one bluer than the one in front of it, until the last one was the same color as the sky.
 
@@ -332,7 +342,7 @@ Cal was on my left. I hadn't seen him get there.
 
 Past the bridge the road climbs to a point where the wind came across so hard it rocked the truck on its springs. Cal brought his arm in. The lighthouse at Point Sur went by on top of its own rock, white, out in the water. Down in the Big Sur valley the road went into the redwoods along the river, cold and dark after all that light, and came up out of them into the sun.
 
-At Nepenthe I parked in the shade at the edge of the lot. Cal lifted Pancake down and walked him along the fence. Pancake read every post before he picked one. Cal set him back on the seat, rolled all four windows down, put his hand flat on the back seat and then on the dash, and filled the water bowl. Pancake lay down on my seat covers and looked at us.
+At Nepenthe I parked in the shade at the edge of the lot. Cal lifted Pancake down and walked him along the fence. Pancake sniffed every post before he picked one. Cal set him back on the seat, rolled all four windows down, put his hand flat on the back seat and then on the dash, and filled the water bowl. Pancake lay down on my seat covers and looked at us.
 
 The terrace hangs eight hundred feet over the water. I went to the rail before I went to the stand. The mountains come straight down into the ocean there, one ridge behind another, going south as far as I could see, each one a little bluer than the last. The water at the bottom was so far down the waves broke white without making any sound. I've stood on a lot of decks in Hillsborough that thought they had a view.
 
@@ -394,13 +404,13 @@ He paid for the cake. I paid for the rest, five twenties, and didn't wait for th
 
 “Thank you,” he said. He'd had his phone out under the edge of the table while I paid. He put it in his shirt pocket, behind the card.
 
-“There is a hotel back up the road that takes dogs,” he said. “It is three hours home. You have been driving since before six.”
+“Ventana is a mile and seven-tenths back up the road,” he said. “It takes dogs. It is three hours home. You have been driving since before six.”
 
-I knew the place. I'd moved two couples who went there every anniversary. A night up there was a month on my house.
+I knew the place. I'd moved two couples who went there every anniversary. A night up there was a mortgage payment.
 
 “May I get a room?”
 
-On Wednesday I'd asked him for one thing. A room up the road wasn't a truck with my father's name on the doors. It was one night. I could see the end of it from here. Pancake had been asleep in my truck since Point Lobos.
+He'd been trying to think of one thing I would let him do. It was one room, one night. Checkout was at eleven. Pancake had been asleep in my truck since Point Lobos.
 
 “What do they charge for Pancake?”
 

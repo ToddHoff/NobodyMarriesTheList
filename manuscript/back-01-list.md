@@ -50,7 +50,7 @@ I struck it at my table at five in the morning, before he could tell me why. He 
 
 12. Says what she wants *I will tell you this one myself.*
 
-He told me on his mother's hearth. When she was hurt, she stopped talking. Nine days, once. He was eleven. I left this one alone.
+He told me on his mother's hearth. When something hurt her, she went cold on him. He was eleven before he knew it wasn't anything he'd done. I left this one alone.
 
 13. SAYS WHEN HE WAS WRONG.
 

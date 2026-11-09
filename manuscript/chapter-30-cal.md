@@ -99,7 +99,7 @@ She has watched eleven of these.
 
 She looked at the card propped against the tin. CHICKEN AND RICE, in her grandmother's hand.
 
-“You did it to Grandma too,” she said.
+“Grandma called you the day it went through,” she said. “Janice took a message. Grandma said she was very nice about it. She said she'd been looking forward to telling you no.”
 
 I did not have an answer for her.
 
@@ -341,7 +341,7 @@ On the slab in my mother's hall I had called her stubborn. I had looked at a hun
 
 I read the front of November again. It did not say savings. It said my name.
 
-I did not know why. My mother had made that payment every month I could remember. Most people would have been glad to stop. I went through the reasons I would have given a board. Pride. A habit she could not break. Neither of them lasted thirteen years and a hundred and fifty-six envelopes. A habit does not write your son's name on the front. I did not have a reading for it. I had the shoebox in my lap.
+I did not know why. My mother had made that payment every month I could remember. Most people would have been glad to stop. At dinner Abby had told me she was looking forward to telling me no. I filed it where I would have filed it for a board. Pride. A habit she could not break. Neither of them lasted thirteen years and a hundred and fifty-six envelopes. A habit does not write your son's name on the front. I did not have a reading for it. I had the shoebox in my lap.
 
 Line seven was *Comfortable being looked after.*
 
@@ -516,7 +516,7 @@ Dawn said nothing for a while. I heard her breathe out through her nose.
 
 “Remy wrote you a list tonight too,” I said. “Twelve lines. For the next one. I did not save it.”
 
-“Good,” Dawn said. “I'd have shredded it.” She poured. “So what are you calling me for?”
+“I'd have shredded it,” Dawn said. She poured. “So what are you calling me for?”
 
 “I want to know what to do.”
 

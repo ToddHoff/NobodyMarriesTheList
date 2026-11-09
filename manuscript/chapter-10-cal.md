@@ -24,7 +24,7 @@ The cushion was half mine. I had told Janice her father sits on a kitchen chair 
 
 I called Janice at 10:52.
 
-“Calvin.”
+“It's ten fifty-two.”
 
 “I am calling about the footsteps. When did I notice that?”
 
@@ -44,7 +44,7 @@ In her yard Jo had told me, next time, ask.
 
 I called her back.
 
-“Calvin.”
+“What did you forget?”
 
 “What was your mother's name?”
 

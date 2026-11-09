@@ -38,8 +38,6 @@ My glass was in it, on a square of cotton, wrapped in copper wire. The wire went
 
 I opened my mouth.
 
-“You don't keep a pencil from a job,” she said. “So I know where THIS came from.”
-
 She put it over my head and lifted my hair out from under the chain with both hands. When she was nine she used to do my hair for Mass, because she'd decided it was her job. Her fingers were cold from the coffee. The glass came down on my breastbone, over my T-shirt.
 
 “Mom wore her Saint Christopher till the chain turned her neck green,” Denise said. “In the SHOWER.”
@@ -280,17 +278,23 @@ She went down the dock steps. Denise was sitting on the bottom one, with no lunc
 
 ***
 
-When the Volvo was gone I sat in my pickup with the door shut and called Dawn Pruitt.
+When the Volvo was gone I told Denise I'd be an hour and drove to Jackson Square.
 
-I'd never called her. In eleven years she'd always called me.
+I'd never been up Dawn's stairs. In eleven years she'd always called me.
 
-She picked up on the first ring. I heard a cup go down on something hard.
+Her office is over a map shop on Jackson Street. The window downstairs was old maps, the kind where California is an island. Her stairs were steep and narrow, the kind I bill extra for. She was in the doorway at the top before I got there, with a cup in her hand. She'd heard my boots.
+
+On her mother's garage floor her hair had been brown and down her back. It was silver now and cut short. She was taller than she sounds on the phone.
 
 “Joanna.”
 
+Two armchairs, a filing cabinet and a coffee maker on top of it. No desk. Nothing up there would take two men but the cabinet. On the shelf behind her chair was the dish from her mother's garage, with the lid on.
+
+I sat down in the other chair.
+
 “If one person signs a prenup and the other one doesn't,” I said, “does it hold?”
 
-She didn't answer right away. I heard her pour.
+She didn't answer right away. She poured half a cup.
 
 “No,” she said. “You both sign it. Then the state makes you sit with it a week.” She drank. “Who brought you a prenup?”
 
@@ -324,9 +328,9 @@ Dawn didn't say anything for a second.
 
 My hand went to the glass under my shirt. “How'd you know that?”
 
-“It's what I'd have asked, if I were Abby's mother and I had his file.” She set the cup down. “I talked to him Saturday night.”
+“It's what I'd have asked, if I were Abby's mother and I had his file.” She set the cup down on the arm of her chair. “I talked to him Saturday night.”
 
-I had the wheel in my other hand. I held on to it.
+I had my hand on the arm of mine. I held on to it.
 
 “I'm not going to tell you what he said,” Dawn said.
 
@@ -334,13 +338,13 @@ I had the wheel in my other hand. I held on to it.
 
 “You were going to.”
 
-Out the windshield Manny was carrying flat wardrobe boxes up the dock steps, two at a time. He'd found the lightest job in the yard. He always does.
+Out her window a man from the map shop was carrying a framed map to a van, flat, with both hands under it. Glass goes on its edge. I didn't open the window and tell him.
 
 “I call the women at the end of a file,” Dawn said. “I ask one thing.”
 
 “Is that what this is?”
 
-“You called me.” I heard her pick up a pen. “But I'll ask. How was it?”
+“You came to me.” She picked a pen up off the cabinet and opened a folder on her knee. “But I'll ask. How was it?”
 
 “It's not over.”
 
@@ -350,9 +354,11 @@ It came out of me the way the meteor came over the yard. No warning, and the who
 
 “It's the first thing.”
 
-I heard the pen go.
+“Then that's what I'll write down.”
 
-“Then that's what I'll write down,” she said. I heard her put the pen down. “You know how my marriage ended?”
+She wrote it at the bottom of a page that already had lines on it. I didn't read up the page.
+
+She put the pen down. “You know how my marriage ended?”
 
 “No.”
 
@@ -360,9 +366,7 @@ I heard the pen go.
 
 I waited.
 
-“Every night for a year we talked about the dishwasher. Whether he was loading it wrong. I had the real conversation all worked out. I was getting it right first.” She laughed, not much. “I got it right in March. He moved out in February.”
-
-I had my thumb on the glass through my shirt. I kept it there.
+“Every night for a year we talked about the dishwasher. Whether he was loading it wrong. What I owed him was an apology. I was making a list, so I wouldn't leave anything out.” She laughed, not much. “I finished it in March. He moved out in February.”
 
 “When I was practicing, I sent you some of my clients to move,” she said. “Wives, mostly. The week the papers were filed.”
 
@@ -372,7 +376,7 @@ I had my thumb on the glass through my shirt. I kept it there.
 
 I didn't say anything.
 
-“I asked her again. She said she'd have to think about it.” There was nothing on the line for a second. “She never did tell me. I don't think she knew anymore.”
+“I asked her again. She said she'd have to think about it.” She looked at the window a second. “She never did tell me. I don't think she knew anymore.”
 
 “The Millbrae wife got half,” I said. “Half went under a tarp in her sister's garage.”
 
@@ -382,7 +386,7 @@ I didn't say anything.
 
 “That's what she had, Joanna. I asked what she wanted.”
 
-*In eleven years you asked me for one thing,* Kevin had said at his car in July. *It was to sign.*
+*Only thing you ever asked me for, I had to sign it,* Kevin had said at his car in July.
 
 “You don't have to call him tonight,” Dawn said. Her voice had gone down. “Or this week. Nobody gets to tell you when. Not Stephanie. Not me.”
 
@@ -394,7 +398,7 @@ I didn't say anything.
 
 “He might.”
 
-I looked down at my phone. I didn't pick it up.
+My phone was on my knee. I didn't pick it up.
 
 If I called him, I didn't know which word would come out first. On the rock I'd had one in my mouth. In his office I'd had it again, behind all the rest, and shut my mouth on it.
 
@@ -406,15 +410,39 @@ Dawn poured. Half a cup.
 
 I said it before she'd finished asking. Then I heard it.
 
-My phone was in my lap. I didn't have to open his thread. I knew what the last thing in it was, and whose.
+I didn't have to open his thread. I knew what the last thing in it was, and whose.
 
 Dawn didn't say anything. She let me sit there with it, the way I'd sat in my truck for ten minutes in her mother's driveway while she cried in the garage.
 
+“Can I give you some advice?” she said.
+
+“What's it going to cost me?”
+
+She'd just told me how her marriage ended. I'd asked her for a price.
+
+Dawn went on as if I'd said yes.
+
+“You're allowed to change your mind.”
+
+“About what?”
+
+“Everything. Who you are. Who you want to be. How you want to act.”
+
+“I made up my mind about all that when I was seven,” I said.
+
+Dawn looked at her cup.
+
+“My husband kept my coffee hot,” she said. “Nights I had a file on the kitchen table. Every time I reached for the cup, it was hot.”
+
+I didn't say anything.
+
+“The first night after he moved out, I worked till two. I picked up the cup and it was cold.” She turned it on the arm of her chair. “I thought something was wrong with the coffee.”
+
 “I've got a truck coming in,” I said.
 
-“Go get your truck, Joanna.”
+“That was love, Joanna. I just didn't see it.” She reached for the pot. “Go get your truck.”
 
-She hung up.
+She didn't get up. I let myself out. On the stairs I heard her pour.
 
 ***
 

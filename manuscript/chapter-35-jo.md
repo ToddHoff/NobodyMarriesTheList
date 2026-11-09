@@ -88,7 +88,7 @@ He hadn't seen it since Carmel.
 
 My face went hot from the collar up. I stepped back out of the door.
 
-“Come in. He can have the kitchen.”
+“Come in. Pancake can lay down in the kitchen.”
 
 Pancake had his nose up before he was through my door. He went down the hall with it going, head over. He bumped the wall once. In the kitchen he stopped at the stove with his nose up at the pot.
 
@@ -168,7 +168,7 @@ I turned the burner back on.
 
 ***
 
-He ate two bowls. He had the first one down before I'd got the sausage out of the bottom of mine. He sat with the empty bowl in front of him. I took it and filled it.
+Cal ate two bowls. He had the first one down before I'd got the sausage out of the bottom of mine. He sat with the empty bowl in front of him. I took it and filled it.
 
 “What is it called?”
 
@@ -229,6 +229,22 @@ I got my pencil out of the drawer by the stove. I turned the card over to the ba
 That left two.
 
 I handed it back across the table. He put it in his shirt pocket and put his hand flat over it.
+
+“Dawn says I'm allowed to change my mind,” I said.
+
+“Everything,” he said. “Who you are. Who you want to be. How you want to act.”
+
+“Word for word.”
+
+“July. In my car.”
+
+“She's got one speech?”
+
+“She poured first.”
+
+“Half a cup,” I said.
+
+Then we were both laughing. Under the table Pancake lifted his head off my feet and put it back down.
 
 ***
 
@@ -324,4 +340,4 @@ I held out my hand for the leash.
 
 Cal looked at my hand. Then he put the loop of it in my palm and let go.
 
-Pancake finished with the post. He turned around and went back up my street the way he'd come, slow, with me on the end of the leash. Cal walked up the middle of the street beside me with nothing in his hands.
+Pancake finished with the post. He turned around and went back up my street the way he'd come, slow, with me on the end of the leash. Cal walked up the middle of the street beside me with nothing in his hands. He didn't know what to do with them.

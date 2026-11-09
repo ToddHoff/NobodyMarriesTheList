@@ -4,7 +4,7 @@
 
 On Monday it had been four days since I told her I loved her. I opened her thread nineteen times that morning.
 
-The first time was at 5:04 in the morning, at the fence post by my gate. Every morning at five Pancake and I walk down my drive to the gate and back. At the gate he inspects the bottom of the same post. He takes his time. In eleven years I have not found out what he is checking for. I have run it. Deer cross at that post at night, so for the first year I had deer. Mountain lions come through Woodside. One summer I moved a mountain lion to the top. For two years the leading candidate has been a white standard poodle from three drives down, who is walked past my gate at six. Pancake is at the post an hour before she is. I have not decided what that says about him. I have not put my own nose to the post.
+The first time was at 5:04 in the morning, at the fence post by my gate. Every morning at five Pancake and I walk down my drive to the gate and back. At the gate he inspects the bottom of the same post. He takes his time. In eleven years I have not found out what he is checking for. I have run it. Deer cross at that post at night, so for the first year I had deer. Mountain lions come through Woodside. One summer I moved a mountain lion to the top. For two years the leading candidate has been a white standard poodle from three drives down, who is walked past my gate at six. Pancake is at the post an hour before she is. I have not decided what that says about him. I have not put my nose to the post.
 
 On Saturday he had run the waves at Carmel for an hour with a spotted dog and a little white one. Since then he had been stiff in the back legs. He stood with his nose to the post and his tail going slowly. I stood beside him and read her thread by the light of my phone.
 
@@ -18,7 +18,7 @@ She had told me when to say it. I had said it when she told me to. What came aft
 
 On Sunday at her counter I had read *skip Sept* in her handwriting under her NOV 2036. In July she had turned that statement around so I could read it right side up. On Sunday she turned it face down. Nineteen hundred dollars was not going on her house in September. She had not said why.
 
-At 5:38 I carried Pancake up the last three steps. He cannot do those anymore. He put his chin on my shoulder while I did it, the way he does in the car.
+At 5:38 I carried Pancake up the last three steps. He put his chin on my shoulder while I did it, the way he does in the car.
 
 I opened her thread again at 6:15 with my coffee, and at 7:40 in the car, and sixteen more times before noon. Each time I read the same nine words and closed it.
 
@@ -92,7 +92,7 @@ The call had lasted four minutes and twelve seconds.
 
 On Friday it would be month four.
 
-At 9:30 I sat down at the counter with my laptop. On Saturday she had let me get one night at Ventana. She had paid for Pancake herself, a hundred and fifty dollars on her own card. She had said yes to the room. It was the first night she had let me pay for that was not for Owen. I took it as a number I could build on.
+At 9:30 I sat down at the counter with my laptop. On Saturday she had let me get one night at Ventana. She had paid for Pancake herself, a hundred and fifty dollars on her own card. She had said yes to the room. It was the first thing she had let me pay for without Owen as the reason. I took it as a number I could build on.
 
 Kevin has Owen from Sunday. I worked it to the hour. We would leave on Tuesday the eleventh at nine. It is eleven hours to Tokyo going and about nine and a half coming back. The date line hands the day back on the way home. We would land at SFO on Friday the fourteenth at 10:40 in the morning. Abby comes to me at five.
 
@@ -248,7 +248,7 @@ She said it to the bay. Her back was against my chest. I felt her say it more th
 
 I heard it after I said it.
 
-“Yes,” she said.
+“My dad still does,” she said.
 
 Under my hands her hands closed into fists in the pockets of my fleece. The back of her neck went red from the collar up. Her face does that when she has been caught at something. I did not know what I had caught her at.
 
@@ -424,7 +424,29 @@ At 10:22 Remy put it back on my screen.
 
 *J. Louie declined to process. You can confirm it yourself. Confirm?*
 
-I had a board call at eleven and two people at one. I did both. Nobody on the call could have said I was anywhere else.
+At eleven I had the board on a screen, twelve squares. Lena Park, who runs Remy's voice, had her third slide up. *Median time to answer: 0.9 seconds.* It was green.
+
+Support had four thousand tickets that week that said it was slow.
+
+I unmuted. “Remy, will it rain in San Bruno tonight?”
+
+I started my watch when I stopped talking. Remy said there would be no rain in San Bruno tonight, and fog after nine. My watch said 5.8 seconds. Nobody in the twelve squares said anything.
+
+“Your clock starts when Remy hears the question,” I said. “Theirs starts when they stop talking.”
+
+Lena looked down at something off her screen.
+
+“Forty million people ask it something nine times a day,” I said. “Five seconds each is fifty-seven years. Every day.”
+
+When a number and a person disagree, I believe the person. I built the company on that.
+
+“Monday,” I said.
+
+The chair said the quarter closed in seven weeks.
+
+“Then it closes with this fixed.”
+
+The call took sixteen minutes. Nobody on it could have said I was anywhere else. At one I had two people.
 
 Between them I sat with it.
 

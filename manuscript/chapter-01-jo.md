@@ -42,7 +42,7 @@ Vili is my crew lead. He's six foot four and can carry a refrigerator up a fligh
 
 The place is called the Oak, for the painting behind the bar. I'd put it at sixteen feet. It's one oak on a gold hill, wider than it is tall, with nothing around it but two cows lying in its shade. If the cows are to scale, the trunk is eight feet through. One limb goes out low and long and sets its elbow down in the grass before it goes back up. Whoever painted it sat in that grass a long time.
 
-I was twenty minutes late. I slowed down anyway. I wanted to put my hand flat on it. I don't touch what isn't mine.
+I was twenty minutes late. I slowed down anyway.
 
 He was at the corner table, reading something in his lap.
 

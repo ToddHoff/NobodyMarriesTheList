@@ -232,7 +232,9 @@ Mrs. Fonoti came in behind me and picked up the basin.
 
 "Take this for the car," she said. "Bring it back when he's better. He can't come back till he's fever-free twenty-four hours without medicine. Thursday at the earliest."
 
-"Yes, ma'am. I will bring it back myself."
+"What do I do until Thursday?"
+
+She looked at me over the basin. "Water. Crackers when he asks. Sit with him."
 
 I held out my hand for his backpack. He looked at my hand. Then he took one strap off his shoulder and then the other. He gave it to me.
 
@@ -256,7 +258,7 @@ He looked at it before he took it.
 
 He wiped his mouth with it. Then he kept it in his fist.
 
-There is a gray lockbox on Jo's gate, the kind realtors hang on doorknobs. Owen got out of the car with the basin and the rag and went straight to it.
+There is a gray lockbox on Jo's gate, for the days Owen gets home before she does. Owen got out of the car with the basin and the rag and went straight to it.
 
 "Turn around," he said.
 
@@ -416,7 +418,7 @@ He nodded. He has a patient face. I would have trusted it with thirty children.
 
 "Little sips," he said. "Or those. He'll eat a popsicle when he won't drink."
 
-"Thank you."
+"I will remember that."
 
 Kevin went back in and sat down on the end of the couch, by Owen's feet. He took his jacket off and laid it over the arm.
 
@@ -512,7 +514,7 @@ She did not say anything for eleven seconds.
 
 "Knock quiet," she said.
 
-After she hung up I put the card in my shirt pocket, behind the list. I sat down on the floor beside Pancake and put my hand on his side. He let me.
+After she hung up I put the card in my shirt pocket, behind the list. I sat down on the floor beside Pancake and put my hand on his side. He licked my wrist and sighed.
 
 ***
 
@@ -546,7 +548,7 @@ I stood in the middle of her front room, where he could see me. Jo stood in the 
 
 Owen said the egg salad with me, without any sound.
 
-"Go home," I said. "Spend it on them. Thank you."
+There was a last line, for the room. I looked at Jo in the doorway instead.
 
 "That counts," Owen said.
 

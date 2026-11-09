@@ -36,11 +36,11 @@ I drove home in the fog with the heater on and my phone face down on the seat.
 
 On Saturday I found nine more slivers of glass in the grout of his mother's hall with Cal holding the flashlight. He held it where I told him and didn't move it until I said. Most people can't do that. They get bored and point it at whatever they're curious about.
 
-I hadn't looked at him since the milk.
+I hadn't looked at him since lunch.
 
 He'd heard me tell my sister that nobody had ever sat down next to Owen. Me included. I'd never said that out loud before. He'd heard me say I wasn't going to marry a house, too. Denise hadn't sounded one bit surprised when she asked him how long he'd been standing there. I was going to kill my sister.
 
-From the floor I'd heard Abby at the bathroom door. *Who's Owen.* Then, *You were here for his*, and Cal saying yes. I put my head down and went after the glass.
+From the floor I'd heard Abby at the bathroom door. *Who's Owen.* Then, *You were here for his*, and Cal asking to do hers. I put my head down and went after the glass.
 
 When I got up off the floor the back of his shirt was dark from the collar to his belt. The thermostat in the hall said ninety-four. It wasn't one o'clock yet.
 
@@ -140,11 +140,11 @@ Most days I like a room best when it's just me and the work. That afternoon it w
 
 By the middle of the afternoon the hall said ninety-seven. I lay down on the floor.
 
-I'd told his daughter everybody does. She'd lain on this slab when she was little. It was the coolest thing in the house, cool enough to come straight up through my shirt. I put my arms out. I hadn't been flat on a floor without a flashlight in my hand since I was seven, in an empty house in Millbrae.
+I put my arms out. I hadn't been flat on a floor without a flashlight in my hand since I was seven, in an empty house in Millbrae.
 
 Cal came out of his room with a ribbon in each hand and found me there. He stood over me for a while.
 
-“The slab,” I said. “Everybody lies on it.”
+“Lie down,” I said.
 
 He put the ribbons on the hall table. Then he lay down on the floor beside me, with his head by my head and his feet going the other way. Pancake came and lay down on his other side and sighed through his nose.
 
@@ -176,13 +176,13 @@ I laughed. I couldn't help it. It came up out of me flat on my back and went dow
 
 “I was eleven.”
 
-I turned my head on the slab and looked at him. He was looking at the ceiling. His ears were red.
+I turned my head on the slab and looked at him. He was looking at the ceiling. He was still eleven about it.
 
 “You haven't changed a bit,” I said.
 
 “My mother said that,” he said. “She did not mean it as a compliment.”
 
-I didn't say anything to that. His mother's his business. I looked back up at the beams running out over the windows. His arm was an inch from mine on that cold floor. I could feel the heat coming off it. I didn't move mine. I lay there and wanted him, sweaty and red-eared on his mother's floor in the middle of a job. My whole body knew where his arm was. If I moved an inch I'd stop being on a job. I'd just told Vili we were behind.
+I didn't say anything to that. His mother's his business. I looked back up at the beams running out over the windows. His arm was an inch from mine on that cold floor. I could feel the heat coming off it. I didn't move mine. I lay there and wanted him, sweaty on his mother's floor in the middle of a job. My whole body knew where his arm was. If I moved an inch I'd stop being on a job. I'd just told Vili we were behind.
 
 “I do not know what to do about the bed,” he said after a while.
 

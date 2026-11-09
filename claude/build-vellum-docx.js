@@ -1,7 +1,7 @@
 // Build a Word file laid out for Vellum import from the chapter markdown files.
 const fs = require('fs');
 const path = require('path');
-const { Document, Packer, Paragraph, TextRun, ImageRun, HeadingLevel, AlignmentType } = require('docx');
+const { Document, Packer, Paragraph, TextRun, ImageRun, HeadingLevel, AlignmentType, ExternalHyperlink, UnderlineType } = require('docx');
 
 const srcDir = process.argv[2];
 const outFile = process.argv[3];
@@ -131,6 +131,18 @@ for (const f of files) {
       children.push(new Paragraph({ bullet: { level: 0 }, children: runsFromInline(line.slice(2).trim()) }));
       stats.paragraphs++;
       stats.words += line.replace(/[*~]/g, '').trim().split(/\s+/).length - 1;
+      i++;
+      continue;
+    }
+    // a line that is only a markdown link, "[text](https://...)", becomes a live hyperlink (the review page)
+    const lnk = /^\[([^\]]+)\]\((https?:\/\/[^)\s]+)\)$/.exec(line.trim());
+    if (lnk) {
+      children.push(new Paragraph(Object.assign({ children: [new ExternalHyperlink({ link: lnk[2], children: [
+        new TextRun({ text: smart(lnk[1]), color: '0563C1', underline: { type: UnderlineType.SINGLE } })] })] },
+        back ? { style: 'BackMatterText' } : {})));
+      stats.paragraphs++;
+      stats.links = (stats.links || 0) + 1;
+      stats.words += lnk[1].trim().split(/\s+/).length;
       i++;
       continue;
     }

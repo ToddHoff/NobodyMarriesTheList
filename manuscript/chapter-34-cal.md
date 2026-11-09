@@ -44,7 +44,7 @@ Last Saturday, in that house, she had spoken only to Vili.
 
 “The garage is empty.”
 
-“You said.” She looked at me a second longer than the sentence needed. “Seven to eleven, like it says. Then we'll see.”
+“So you said.” She looked at me a second longer than the sentence needed. “Seven to eleven, like it says. Then we'll see.”
 
 She went across the street and up the walk without waiting for me. I followed her. I wanted to put my hand on the back of her neck, under the chain, where her hair was coming loose already. I kept my hands at my sides.
 
@@ -404,11 +404,11 @@ She was quiet for a second. Then she said, “My dad said in the truck, what you
 
 “Then you should not tell me.”
 
-“I'm telling you.”
+“The statute of limitations ran out,” she said. “I'm telling you.”
 
 She looked at me when she said it. I did not look away.
 
-“In April I moved one in San Carlos. Kept his books nineteen years. He never put her on the payroll. I made the bed for her in the new place.” She stopped. “I walk every house last. By myself. That's why I was paying off mine myself. So nobody could ever move me out of it.”
+“In April I moved a wife in San Carlos. Kept his books nineteen years. He never put her on the payroll. I made the bed for her in the new place.” She stopped. “I walk every house last. By myself. That's why I was paying off mine myself. So nobody could ever move me out of it.”
 
 I thought of line seven. *Comfortable being looked after.*
 
@@ -416,7 +416,7 @@ I thought of line seven. *Comfortable being looked after.*
 
 “All right.”
 
-“The winter I was eight, my dad hurt his knee on a job. The truck sat. He sat in a chair in our front room till spring and didn't talk.” She said it fast.
+“The winter I was eight, my dad hurt his knee on a job. The truck sat. He sat in a chair in our front room till spring with his leg up on a kitchen stool.” She said it fast.
 
 “And your mother?”
 
@@ -430,11 +430,11 @@ I thought of line seven. *Comfortable being looked after.*
 
 “On Stephanie's papers,” I said. “You wrote *and what I owe on it.*”
 
-“Yes.”
+“It's longer now.”
 
-“You owe nothing on it.”
+“You owe nothing.”
 
-“I owe you on it.” She did not look away. “Your name's on the bottom.”
+“I owe you.” She did not look away. “Your name's on the bottom.”
 
 “I went to Denise's on Wednesday,” she said. “I wrote you a note. Five hundred and sixteen thousand, at seven percent, the first of every month. My signature and a line for yours.”
 
@@ -442,7 +442,7 @@ I thought of line seven. *Comfortable being looked after.*
 
 “Denise ran it on the calculator. At what the bank makes me pay, two hundred and forty-two payments. October 2046. You'd have signed it.”
 
-“Yes.”
+“Before you finished the sentence.”
 
 I would have signed it on the hood of her truck. It would have let me give her the house and let her give it back to me, a little at a time, with nobody's name on the bottom of anything.
 
@@ -450,7 +450,7 @@ I would have signed it on the hood of her truck. It would have let me give her t
 
 “Why?”
 
-“Two hundred and forty-two checks, Cal. With your name on every one.” She looked straight at me. “I'm keeping the house.”
+“Twenty years, Cal. With your name on every check.” She looked straight at me. “I'm keeping the house.”
 
 I have sat across tables from people telling me yes since I was twenty-three. I know what they do with their hands when they mean it. She had both of hers at her sides, open.
 
@@ -508,15 +508,15 @@ She came and sat down on the hearth next to me, with the boxes between us and th
 
 “It is not about you. It was on the list before you.” I stopped. I had not said this to anyone. Not to Stephanie. Not to Dawn last Saturday night. I did not have it in order.
 
-“When my mother was hurt, she stopped talking,” I said. “The longest was nine days. I was eleven.”
+“When something hurt my mother, she went cold,” I said. “No hand on my shoulder. No kiss goodnight. I was eleven before I understood it was not something I had done wrong.”
 
-“Hurt by what?”
+“What hurt her?”
 
 “I did not know. She never said what was wrong. She never said what she wanted.”
 
 “What did you do?”
 
-“I left my report card on the kitchen table.” The kitchen was open in front of us, with the cupboard doors standing open and nothing in them. “She would sit down and read it, and sign it, and start talking again.”
+“I left my report card on the kitchen table.” The kitchen was open in front of us, with the cupboard doors standing open and nothing in them. “She would sit down and read it and sign it. Then her hand was back on my shoulder.”
 
 “Every time?”
 
@@ -580,7 +580,7 @@ I gave it to her. The corners had gone soft. She turned it over to the back, whe
 
 She held on to the card.
 
-“Did you ever go back over there?” she said.
+“Did you ever go back?” she said.
 
 “No.” I looked at the roof of the school. “I sent a check.”
 
@@ -592,11 +592,11 @@ She held on to the card.
 
 “The lunch accounts. Every child at her school whose balance was under zero. It paid them back to zero.”
 
-“How much?”
+“Every year?”
 
-“The first year, two thousand two hundred and eleven dollars. The last one went in 2020. After that the meals were free.”
+“Every June until 2020. After that the meals were free.”
 
-“Janice did that?”
+“Does Janice know?”
 
 “Janice never knew. She would have asked me why.”
 
@@ -610,17 +610,17 @@ She held on to the card.
 
 “Did she stop?”
 
-“I never found out. In 2012 I had the money. If she was still doing it, the check covered her.”
+“I doubt it. She was stubborn. In 2012 I sent the money. The check would cover her.”
 
-Jo turned the card over in her hands.
+Jo laughed. “She never opened one of your boxes,” she said. “I'd have liked her.”
 
 “She was at the register on the last day of school,” I said. “Every year, until she retired.”
 
 “Did she know?”
 
-“I do not know. She never said. And I never asked her.”
+“I do not know. She never said. I never asked her.”
 
-Jo turned the card over in her hands again. “You still owe me one,” she said. “From the sixth course. Your robot. What's it for?”
+Jo turned the card over in her hands. “You still owe me one,” she said. “From the sixth course. Your robot. What's it for?”
 
 “My mother got one break a day,” I said. “Fifteen minutes, at ten-thirty. She called the doctor's office then, or the district about her hours, from the phone on the wall by the dish room. She spent most of her break on hold.”
 
@@ -648,21 +648,21 @@ I looked at the boxes with the blue tape on them.
 
 I had not said it out loud since I was five.
 
-“He left that year. Nobody told me why. The first time my mother stopped talking was that week.”
+“He left that year. Nobody told me why. The first time she went cold was that week.”
 
 Jo waited.
 
 “That fall she brought a dog home from the county shelter. She let me name him.”
 
-“What kind of dog?”
+“What kind?”
 
-“Brown. Part beagle. Nobody knew the rest.” I could feel the brick under me. “He waited at the front door every day at 3:10. My mother was still at work. He slept on my feet. In the nine days, he was who I talked to.”
+“Brown. Part beagle. Nobody knew the rest.” I could feel the brick under me. “He waited at the front door every day at 3:10. My mother was still at work. He slept on my feet. When she ignored me, he leaned on me.”
 
-“And she let you call him that.”
+“And she let you call him Remy.”
 
 “She called him in from the yard every night for seven years. She never once asked me why.” I looked at my hands. “He died when I was twelve. I have had a dog ever since.”
 
-Jo looked at the back of the card. There were nine lines on it now, in her capitals, struck. Twelve was not one of them. She put the card back in my shirt pocket herself and pushed it down with two fingers. She left her hand there on my chest and pressed once.
+Jo looked at the back of the card. There were nine lines on it now, in her capitals, struck. Twelve was not one of them.
 
 ***
 
@@ -680,7 +680,7 @@ Under *GARAGE. LOCKED. OWNER SAYS EMPTY.* she had written in pencil that afterno
 
 She got in. She did not shut the door right away. She sat with one boot on the step and looked at me.
 
-Then she took hold of my shirt, over the pocket with the card in it, and pulled me down to her, and kissed me. She did not hurry it. When she let go, she put the pocket flat with her hand.
+Then she took hold of my shirt, over the pocket with the card in it, and pulled me down to her, and kissed me. She did not hurry it. When she let go, she smoothed the pocket down.
 
 My heart was going again. I waited.
 

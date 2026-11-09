@@ -352,7 +352,11 @@ He didn't say anything to that. He walked closer, so his arm brushed mine.
 
 At the back step Pancake stopped and looked at the three steps. Cal set his shoes down and lifted him up them, front end and then the back. He did it without looking to see whether I'd seen.
 
-At the top he turned around.
+In the light from the kitchen there was a paw print in the bottom step, four toes and a pad, no bigger than a silver dollar. Every other edge on that place was square.
+
+“That's him,” I said.
+
+At the top he turned around. “At nine weeks. He got away from Abby. The step had been poured that morning. The finisher offered to grind it out and patch it. I sent him home.”
 
 “May I ask you something?”
 

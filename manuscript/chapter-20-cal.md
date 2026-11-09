@@ -16,7 +16,7 @@ The sweatshirt Jo had packed for me was on the stool beside me. It still smelled
 
 Janice was at my door at 8:30 with her glasses pushed up into her hair.
 
-“How was it?” she said.
+“The pilots say Owen slept the whole way home,” she said.
 
 “The fountain was fourteen hundred feet. Both vents went. It ran for three hours and twelve minutes.”
 
@@ -368,11 +368,11 @@ I could name nineteen times since May that I had been wrong in front of Jo. She 
 
 “That I did not know.”
 
-“Good answer.”
+“What did she say to that?”
 
-“It is not an answer.”
+“Figure it out.”
 
-“From you it is.”
+“And you called me.”
 
 “Why do you call them at the end?” I said. “The women. You said not me.”
 
@@ -388,9 +388,17 @@ She took a while with that one.
 
 “About what?”
 
-“About everything. Anything. Who you are. Who you want to be. How you want to act.”
+“Everything. Who you are. Who you want to be. How you want to act.”
 
 I did not know what to make of that either.
+
+“You think you have to send something,” she said. “The first case I ever tried, my husband sat in the back row. All day. He took a vacation day for it. He didn't understand a word.” She poured. “I don't remember the ruling. I remember turning around at five and he was still there. That was love, Cal. I didn't realize it then.”
+
+“Where are you?”
+
+“In my car. Across the street from my mother's house.”
+
+“Get out of the car.”
 
 Then she was gone. It was 11:58. I sat in the car with the windows up until I could not breathe in there. Then I went back across the street.
 
@@ -527,6 +535,8 @@ She hung the robe back on its hook over all of it.
 “You were here for his,” she said.
 
 “Will you let me do yours?” I put my finger on her nine, in my mother's ballpoint.
+
+“I'm eighteen. I'm done growing.”
 
 I could have found out where I was for every one of her lines. It is all on a calendar. Janice would have it by the end of the day. I did not need Janice for her nine. On most days in 2017 I was somewhere with a podium.
 

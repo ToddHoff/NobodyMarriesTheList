@@ -350,7 +350,7 @@ She turned to the second page and put her finger on it.
 
 “Before Owen.”
 
-“He's nine.” She went down the page with her finger. “‘I wanted you to go up Sweeney Ridge whenever you liked.’ Whenever you liked, Joanna. When's that ever been?”
+“He's nine.” She went down the page with her finger. “‘I wanted you to go up Sweeney Ridge whenever you liked.’ Whenever you liked, Joanna Marie. When's that ever been?”
 
 “He should have asked me.”
 
@@ -446,7 +446,7 @@ Denise put her finger on the fifty-eight ninety-one.
 
 “It's Dad's name.”
 
-“It's MY name.” She said it quiet, for her. “It's on the doors too.”
+“It's MY name.” She said it quiet, for her. “My name is on the doors too.”
 
 I looked at her. She'd done the books in that office for twenty years. I'd never thought about whose name it was on the doors but his and mine.
 
@@ -472,7 +472,7 @@ I looked at the pad.
 
 I'd paid Kevin's mother back in one check, with interest. I'd felt clean for about a week. This would be twenty years.
 
-“No,” I said.
+“No,” I said. I didn't like where this was going.
 
 “Then what?”
 
@@ -482,7 +482,7 @@ Denise pulled out the chair across from me and sat down. She pushed the calculat
 
 “Do you love him?”
 
-“That's not what this is.”
+“That's not what this is.” I squared the pad to the edge of the table.
 
 “It's exactly what this is. You let a man you don't love pay off your house? Mom had a word for that.”
 

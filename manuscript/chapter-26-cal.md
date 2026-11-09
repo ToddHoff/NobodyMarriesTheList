@@ -72,7 +72,7 @@ She stopped at section four and put the point of the pencil on it.
 
 The line said *Calvin Brennan, Recall Technologies, and the agent known as Remy*.
 
-“Yes.”
+“It knows more about me than anyone alive.”
 
 “Does it sign?”
 
@@ -202,7 +202,7 @@ She laughed. She put her hand over her mouth and laughed into it.
 
 “You quoted me a waterfall off a job you did seventeen years ago,” she said.
 
-“Yes. You may adjust the estimate.”
+“You may adjust the estimate.”
 
 She stood at the rail with the pad on her back and looked at the dry streak a while longer. I looked at her. A strand of her hair was stuck to the chalk on her cheek, where she had pushed it back with her hand. I took it off with one finger. She let me.
 

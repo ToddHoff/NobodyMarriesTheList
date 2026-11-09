@@ -56,7 +56,11 @@ I looked at the house. From the car I could see the front door and the edge of t
 
 “I have not been inside her house since. With Jo I went three hours without thinking about my mother.”
 
-“That isn't a confession, Cal. That's good news.”
+“Is that why you left out the laughing?”
+
+“I did not think I was allowed.”
+
+“You're allowed, Cal.”
 
 She poured again.
 
@@ -110,11 +114,17 @@ The street was empty. Two houses down, somebody's sprinkler was ticking against 
 
 “That is what I said.”
 
-“Good,” Dawn said. “Then she'll have to.”
+“Then she'll have to,” Dawn said.
 
 I did not see how that followed. I filed it.
 
-“Your file stays open,” she said. “Go in when she gets there.”
+“What should I send her?” I said.
+
+“Nothing.”
+
+“Janice could find something.”
+
+“Janice sends things,” Dawn said. “I don't. Your file stays open. Go in when she gets there.”
 
 The line went quiet. She had hung up.
 
