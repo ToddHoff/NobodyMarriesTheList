@@ -156,7 +156,7 @@ I'd heard it across a table in Los Gatos and told the man he was presenting. My 
 
 Cal's shoulders started down. I had watched them do that for a woman at a bar. When he looked at me, they came back up.
 
-“That is the short version,” he said. “The whole of it runs four minutes.”
+“That is the short version,” he said. “The long one runs four minutes.”
 
 “Four minutes and ten seconds.”
 
@@ -234,7 +234,7 @@ Owen looked at Pancake for about four seconds.
 
 Owen put the phone in his pocket without arguing. He goes quiet when he's told no, the part of him that comes from his father. I've watched for it in him since he could walk.
 
-Cal looked at me, then at Pancake. He kept quiet too.
+Cal looked at me, then at Pancake. He kept quiet too. The silence was deafening.
 
 Any other client would have said it was fine. They always do: he's no trouble, let him come out. So I end up saying no twice, to my own kid, in their house. Cal had his own dog on the other side of his own back door. He let my no stand. He wanted to say yes. It was all over his face.
 
@@ -324,7 +324,7 @@ Kevin was at every one of Owen's games. I have said that to anybody who asked, t
 
 Owen found the line that said 9. He backed up against the door under it and stood up straight.
 
-I laid my hand flat on the top of his head. My father used to do that to me against the frame of the garage door.
+I laid my hand on the top of his head. My father used to do that to me against the frame of the garage door.
 
 “Half an inch over,” I said.
 
@@ -402,7 +402,7 @@ Owen was at the end of the hall, where Vili had stood with the dolly. He had the
 
 “You said he was a client.”
 
-“I did.”
+“He was, till about a minute ago.”
 
 “So is he a client or a friend? Because if he's a friend, I can ask him.”
 

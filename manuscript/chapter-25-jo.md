@@ -404,7 +404,7 @@ He'd been caught. He stood there with it. I liked him for that, mad as I was.
 
 “Page nine,” I said.
 
-He turned to page nine. He read it standing up, with one hand flat on my tailgate. His ears went red from the top down.
+He turned to page nine. He read it with one hand on my tailgate. His ears went red from the top down.
 
 “That is not your name,” he said.
 

@@ -6,7 +6,7 @@ Jo picked a Wednesday. Before I left the house, I asked my daughter a question.
 
 The Wednesday was June 3. I had told Jo the place would be in Los Gatos, in a room that is open five nights a month. She picked one of the five without knowing it. I checked whether I had arranged that. I had not. In season I take people to the suite at Chase Center. They watch Steph Curry, and I do not have to say much. The Warriors had been out since April.
 
-Abby was at the refrigerator when I came down. She had the door open and was eating out of a container with her fingers, standing up, with Pancake lying across her feet. There was a sheet of paper on the freezer door under a magnet. For three weeks I had taken it for a schedule.
+Abby was at the refrigerator when I came down. She had the door open and was eating out of a container with her fingers, with Pancake lying across her feet. There was a sheet of paper on the freezer door under a magnet. For three weeks I had taken it for a schedule.
 
 “You're wearing the shirt,” she said.
 
@@ -54,11 +54,11 @@ She had not expected that. Neither had I. One corner of her mouth went up before
 
 “You want to build cafeterias.”
 
-“School ones. Grandma's didn't have a window. Thirty years in that room. She never knew what the weather was until three o'clock.” She picked the container up again. “I'd put windows in.”
+“School ones. Grandma's didn't have a window. Thirty years in that room. She never knew what the weather was until three o'clock.” She picked the container up again. “Mine go around an atrium, like her house. The kitchen gets the glass wall. You'll get your tray from somebody standing in the sun.”
 
 I ate lunch in that room on every school day I spent in that building. I could not have told you whether it had a window.
 
-Abby had that from my mother. I had never heard my mother say it. She handed me a tray across that counter five days a week. I looked at the tray. I never asked her what the day was like on her side of it.
+My mother had told Abby about that room. She had never told me. She handed me a tray across that counter five days a week. I looked at the tray. I never asked her what the day was like on her side of it.
 
 “I did not know that,” I said.
 
@@ -92,11 +92,11 @@ When my watch tapped, I looked at it.
 
 “It was 112.”
 
-“I said keep it.”
+“Usually you're so good at following directions.”
 
 She was pleased, though. I am learning to tell.
 
-I wanted to put my hand in her hair. On the first night I had laid my hand flat on top of her head to mark her height, with her own tape running up from under her boot heel. I could feel it for the rest of that night. I could not think of a reason to do it again that she would accept. I held the door for her and kept my hands to myself.
+I wanted to put my hand in her hair. On the first night I had laid my hand on top of her head to mark her height, with her own tape running up from under her boot heel. I could feel it for the rest of that night. I could not think of a reason to do it again that she would accept. I held the door for her and kept my hands to myself.
 
 The room is small and low, fourteen tables with candles in glass, and a wall of windows onto a courtyard where a lemon tree is lit from underneath. It was quiet enough to hear the kitchen, a knife on a board and someone saying *Yes, chef.* The air smelled of brown butter. Jo stopped inside the door. She ran two fingers along the back of the nearest chair, under the top rail, where the joint is. I watched her two fingers go along under the rail and back. I wanted them on the back of my neck. Then she looked at me. I took her to the table.
 
@@ -152,11 +152,11 @@ She looked at me for a while. She did not have an answer ready and did not hurry
 
 I had not run that number from my side of the table. Ten million dollars is less than a tenth of one percent of what I have. When I told her I would do nothing, I had thought it was a good answer.
 
-“Your robot,” she said, at the sixth course. “I know what it does. It answers my phone. What's it for?”
+“Your robot answers my phone,” she said, at the sixth course. “What do people pay you for?”
 
 I was nervous by then. The one question I had brought of my own was used. When I am nervous I do the thing I am good at.
 
-“We do not sell software,” I said. “We sell an hour. Remy gives you back an hour of your day. That hour was never ours to keep. It belongs to the people you would spend it on. There is a man in Tulsa who has not missed one of his daughter's games in two years.”
+“We do not sell software,” I said. “We sell an hour. Remy gives you back an hour of your day. That hour was never ours to keep. It belongs to the people you would spend it on. There is a man in Tulsa who drives a bread route. He eats lunch with his mother now.”
 
 There is more. It runs four minutes and has closed three funding rounds. In the second minute I explain the name. It is short and easy to spell.
 
@@ -174,7 +174,7 @@ I am not corrected often, and never at dinner.
 
 “I know it is,” she said. “I'm telling you I can hear the difference. That's all.”
 
-Nobody had told me about the shoulders. At the Oak I had talked with her for three hours. The voice had dropped once in all that time, for a stranger. I did not know what I had sounded like for the rest of the night. I had not been listening. I would have liked a recording of it, so that I could find out what I had done and do it again. Under the edge of the table I typed a note to myself: *Remy. Record feature.*
+Nobody had told me about the shoulders. At the Oak I had talked with her for three hours. The voice had dropped once in all that time, for a stranger. I did not know what I had sounded like for the rest of the night. I had not been listening. I would have liked a recording of it, so that I could find out what I had done and do it again.
 
 She did not go back to her plate.
 
@@ -201,6 +201,18 @@ Jo laughed out loud. Two tables turned around. It is not a room people laugh in.
 “Don't think I didn't notice what you did there,” she said. “But we'll leave it for now. So have you?”
 
 “No. I was one for five years. I would like to be sure this time.”
+
+“What did you do for five years?”
+
+“I sent things.”
+
+It was what I had told her about my mother, at the Oak. I heard how it sounded after it was out.
+
+“I've got things,” she said. “I bought them myself. What else have you got?”
+
+I went through what I had. It took some time. She had crossed off the top of it in two sentences.
+
+“I will have to get back to you as well,” I said.
 
 “It's June,” she said. She was still smiling. I felt it in my chest. My watch tapped. I kept that one too.
 
@@ -272,9 +284,9 @@ The tenth course arrived. She ate it in one bite.
 
 “And?”
 
-“She wants to build cafeterias, with windows. My mother worked thirty years in one that had none.”
+“She wants to build cafeterias around an atrium, like my mother's house. She said you would get your tray from somebody standing in the sun.”
 
-Jo put her fork down.
+Jo put her fork down. “I'd eat lunch there.”
 
 “She asked who told me to ask,” I said.
 

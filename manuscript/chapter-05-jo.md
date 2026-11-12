@@ -46,7 +46,7 @@ There was a kitchen thirty feet from him with thirty bowls in it. He wasn't goin
 
 That was seven. It went in the wrong column.
 
-How a client waters Pancake is no business of mine. Lunch is the one forty-five minutes in my day I don't owe anybody. I sat on the bench with one end of the foil open and watched him fill his hands again.
+How a client waters their dog is no business of mine. Lunch is the one forty-five minutes in my day I don't owe anybody. I sat on the bench with one end of the foil open and watched him fill his hands again.
 
 I put my sandwich down and went into the kitchen. It's a job site. I can touch what I like as long as it stays in the house. In any kitchen a woman set up before 1980, the mixing bowls are left of the stove, second shelf, nested by size. I took the middle one and filled it at the sink.
 
@@ -158,7 +158,7 @@ He picked it up. He didn't square it to anything. He held it flat on his palm an
 
 “That is what you say.” He closed his hand on it. “I said it to all of them. I was very polite.”
 
-I wanted to put my hand flat on his back, between the shoulders, the way you steady a man on a ladder. I kept it on the clipboard.
+I wanted to put my hand on his back, between the shoulders, the way you steady a man on a ladder. I kept it on the clipboard.
 
 I didn't say anything kind. I've cleared two hundred houses. Say something kind to a man holding his mother's badge and he'll stand there holding it all afternoon. Ask him green or blue and he decides.
 
@@ -240,7 +240,7 @@ I didn't know the number, but I knew whose it was before I opened it. My cell nu
 
 *Thank you for today. At eight you read the slips on three boxes I would rather nobody had read. You didn't look at me once. Pancake meant no offense; he leans on the people he intends to keep. I owe you half a sandwich. I hope your boots are off. Cal*
 
-I read it standing up. Then I sat down and read it again.
+I read it. Then I sat down and read it again.
 
 It was right. The sweet peas had been right too. It asked me for nothing.
 

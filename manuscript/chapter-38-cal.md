@@ -88,7 +88,7 @@ They talked for twenty minutes. Then they both looked up at me at once.
 
 Pat had carried in the last three boxes my office sent my mother, the ones that came after she died. Janice had run my office. I watched them work it out from across the driveway, the two of them with their heads together and their hands going. After a while Janice put her glasses on and took Pat's hand in both of hers. Pat let her.
 
-Kevin came at two with his wife and a folding table from his garage. Nobody had asked him to. He set it up beside the garage door, put a salt and pepper on it and went to stand with his wife at the back. Jo saw the salt and laughed out loud, by herself, at the screen door. I did not know why. I have not asked.
+Kevin came at two with a folding table from his garage. Nobody had asked him to. He set it up beside the garage door, put a salt and pepper on it and went to stand at the back. Jo saw the salt and laughed out loud, by herself, at the screen door. I did not know why. I have not asked.
 
 Then the street came down with the food.
 
@@ -106,7 +106,7 @@ She read it. She set it back down level, carefully, so the chips would not slide
 
 "Green," she said.
 
-She cut the first corner piece herself and ate it standing up.
+She cut the first corner piece herself and ate it.
 
 \*\*\*
 
@@ -200,7 +200,7 @@ Frank laid it on.
 
 Denise's cake said ABOUT TIME across the top in blue capitals, with a border of roses. She cut it with Jo's box knife, because nobody could find the cake knife. Nobody asked where the box knife had been.
 
-At ten to six Stephanie got up from the last row, squared her chair to the others and walked to her car. Abby watched her go. Then Abby put her plate down and went after her. They stood at the car for a minute. I could not hear them. Stephanie put her hand flat on top of Abby's head, the way my mother used to measure her against a door, and got in. Abby came back up the driveway and took the last corner piece of my mother's chicken and rice.
+At ten to six Stephanie got up from the last row, squared her chair to the others and walked to her car. Abby watched her go. Then Abby put her plate down and went after her. They stood at the car for a minute. I could not hear them. Stephanie put her hand on top of Abby's head, the way I had at my mother's door, and got in. Abby came back up the driveway and took the last corner piece of my mother's chicken and rice.
 
 By eight the street had folded its lawn chairs and gone home with its dishes. Everyone knew whose was whose without looking underneath. Vili and Manny and the cousins loaded the church chairs back onto the truck in the dark, counting them by tens. A hundred and twenty. The piano went last, with Abby and Manny on the high end and Vili and me on the low one.
 
@@ -222,7 +222,7 @@ I turned it over. The last number it had for me was at 4:03. It was a hundred an
 
 "The driveway is longer."
 
-She laughed. She took the red pencil from behind her ear and gave it to me. I put it in my shirt pocket, behind the old card.
+She laughed. She took a red pencil from behind her ear and gave it to me. I put it in my shirt pocket, behind the old card.
 
 \*\*\*
 
@@ -233,6 +233,8 @@ Pancake sleeps at the bottom of Frank's ramp in the afternoons, where the sun is
 Since the wedding Owen has asked me to help with his app three times. Each time I changed the one thing he asked about and nothing else. I asked him once what he thought of Remy. He said it was fine but slow. I said I would look into it.
 
 Abby is in her third year at Cal Poly. Her second-year studio project was an Eichler on a corner lot, with an atrium and no roof over it, drawn from memory. It was my mother's, to the inch. I checked. She still calls on Sundays.
+
+She has my Starbucks login. I gave it to her outside her dorm the morning she checked in. I get the receipts. On studio days they come at 7:48. Before her finals there were four in one day. Remy asked whether I wanted them summarized. I read them myself.
 
 In November Jo put a paper in front of Denise. Silveira Moving & Estate, two owners, half and half. Denise ran every number on it twice on the old calculator before she signed it on the hood of the white truck. The doors say what they always said. Denise says they read different now.
 
@@ -258,4 +260,10 @@ Dawn Pruitt has a new client. He came up her stairs in Jackson Square in Septemb
 
 "I've got a woman in Pacifica," Dawn said. "She drives a tow truck."
 
-Over the speaker I heard her pour half a cup. Jo laughed at the stove, with her back to me, where I could see all of her.
+"I gave him a new one tonight," Dawn said. "What's paradise to you?"
+
+"Eating a sandwich anywhere with you," I said.
+
+"I'll eat to that," Jo said.
+
+Over the speaker I heard her pour half a cup. Jo laughed at the stove with her back to me. It went on in her shoulders after the sound had stopped.

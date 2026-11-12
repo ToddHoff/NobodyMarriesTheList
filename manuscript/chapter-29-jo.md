@@ -150,7 +150,7 @@ He'd kept every Saturday he promised me on his mother's lawn in May.
 
 I picked the phone back up and opened his thread.
 
-The last thing in it was his, from Thursday night at 10:02. *Your father and I folded forty-eight pads.*
+The last thing in it was his, from Thursday night, after ten. *Your father and I folded forty-eight pads.*
 
 I'd read it before the trucks went out on Friday morning, at this counter, in the dark. On Thursday I'd watched the two of them out the office window with their backs to the wind, my father calling the folds. I'd had six days to answer it.
 
@@ -355,7 +355,7 @@ Janice knocked twice on his door and opened it.
 
 He was already standing behind his desk. He had his sleeves pushed up and looked like he'd been up since four. The corner of the card stuck up out of his shirt pocket.
 
-I wanted my hand flat on his chest, where I'd put it on the rock. I went to the window instead.
+I wanted my hand on his chest, where I'd put it on the rock. I went to the window instead.
 
 Behind me he hadn't moved.
 

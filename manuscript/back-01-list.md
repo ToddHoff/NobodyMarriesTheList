@@ -18,7 +18,7 @@ The first Saturday at his mother's house. I was in my boots. He said I was the o
 
 4. ~~Athletic. Works out most days~~ *5/23*
 
-He goes to a gym four mornings a week. I've never been in one. After one morning carrying with my crew, he was the one out of breath.
+He goes to a gym four mornings a week. I've never been in one. After one hutch up my ramp, he was the one out of breath.
 
 5. ~~College degree, minimum~~ *6/20*
 

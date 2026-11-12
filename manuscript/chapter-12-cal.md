@@ -34,7 +34,7 @@ Jo watched from inside the sliding door with her arms crossed. Her hair was half
 
 When Pancake had done his two laps he went to the door and leaned on it, where her leg was.
 
-“He's leaning on my mom through a window,” Owen said.
+“He's leaning on my mom through the door,” Owen said.
 
 “He leans on the one person in a room who would rather he did not.”
 
@@ -62,7 +62,7 @@ He walked Pancake to the fence. On the way back he said, “In November she fell
 
 “And in the morning?”
 
-“My lunch was in the fridge with my name on it. I asked her if she was okay.” He looked back at the house. “She said she had it.”
+“My lunch was in the fridge with my name on it. I told her I could make my own.” He looked back at the house. “She said she's got it.”
 
 I could have had a person in that kitchen by Monday and the house on Maui stocked for a week. My phone was in my hand before he finished. I put it back.
 
@@ -74,21 +74,37 @@ Pancake leaned on his leg.
 
 I tell my board the same thing when I have already decided and want one more quarter of numbers before I say so.
 
-“Who is first?” I said.
+“Who is he ahead of?” I said.
 
 “Daisy. She's the reading dog at the library.”
+
+He held the phone up. A big dog with floppy ears lay on a rug with a picture book open against her side.
+
+“She is cute,” I said, before he had it all the way around.
+
+“She is,” Owen said. “Pancake leans, though.”
 
 At 7:30 that night I called Janice, as I do after every Saturday, to tell her about the day so that she could write to Jo.
 
 “Go on,” Janice said.
 
-I gave her the sandwich, the butter and the nine questions. I gave her Owen's handshake, one pump, and the four minutes and ten seconds.
+I gave her the sandwich, the butter and eight of the nine questions. I gave her Owen's handshake, one pump, and the four minutes and ten seconds.
 
 “Is that all of it?”
 
 “Yes.”
 
-It was not. I had left out the bathroom door with my daughter's name on it twelve times. I had left out that Jo took hold of my shirt in the hall and told me to bend down. I had left out question six. I did not want any of them in a message at 9:14.
+“You went from five to seven.”
+
+“Six was about his mother,” I said. “He did not tell me so that I could send it to her.”
+
+“Does she know he told you?”
+
+“No.”
+
+“Be careful what you do with it,” Janice said.
+
+She had caught one of three. I had left out the bathroom door with my daughter's name on it twelve times. I had left out that Jo took hold of my shirt in the hall and told me to bend down. I did not want any of them in a message at 9:14.
 
 Her message went to Jo at 9:14. I read it before I approved it. It was about butter. It was good.
 
@@ -294,9 +310,7 @@ Jo turned to Janice.
 
 “They don't keep,” Janice said. “I thought you would rather not owe him a vase.”
 
-Jo named them in the order they had come.
-
-Jo did not say anything for a while.
+Jo named them in the order they had come. Then she did not say anything for a while.
 
 She held the clipboard flat against her chest with both arms over it. I wanted to say something into the quiet. Every sentence I had ready was one Janice would have written better.
 
@@ -324,7 +338,7 @@ Janice paused. It was the eighth time in seventeen years.
 
 “Ms. Silveira,” she said. “He told me every one of those things. The labels, Pancake, your father's chair. I wrote them down.”
 
-“I know what he told you,” Jo said. “I was there.”
+“I was there,” Jo said.
 
 I had been there too, right up until I drove home and gave all of it to Janice at 7:30, with times. I looked at the fourteen cabinets of my cards.
 

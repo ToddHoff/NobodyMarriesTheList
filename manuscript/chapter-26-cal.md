@@ -40,7 +40,7 @@ She came back with a paper bag and set it on my knees. The bag was hot through m
 
 “A waterfall.”
 
-I put it under the half a linguiça sandwich I had owed her since May 16. At the winery she had carried her own bag. At SFO she had carried hers and Owen's and let me carry Owen. Two hours before, across her tailgate, she had made me put my name in every place hers was. *Mutual. Or nothing.* Her own books ran one way.
+I put it under the half a linguiça sandwich I had owed her since May 16. At the winery she had carried her own bag. At SFO she had carried hers and Owen's and let me carry Owen. Three hours before, across her tailgate, she had made me put my name in every place hers was. *Mutual. Or nothing.* Her own books ran one way.
 
 We ate on her tailgate in the lot, with the bikes ticking beside us. The Hog came apart in my hands. Jo ate the Harley bent over the paper so whatever fell would land in it. When she was done she wiped her fingers on my jeans.
 
@@ -48,11 +48,11 @@ Skyline runs south along the top of the ridge, half an hour of it to the park. F
 
 At the entrance to the park a sign said the gate locks at sunset. Jo read it, drove past it and parked on the shoulder with two wheels in the dirt.
 
-At 5:38 she let her tailgate down and laid my two pages on it. She took the pencil from behind her ear.
+At 6:20 she let her tailgate down and laid my two pages on it. She took the pencil from behind her ear.
 
 I had written them myself between 2:20 and 3:15, at my desk, with the door shut. Nobody else was in the document. At the top of a blank page I typed what she had said to me in the garage, so I would not drift from it. *Two pages. Your name in every place mine is. Your people in it the same as my people. Your robot too.* Then I wrote to the spec. It came to two pages and four lines. I cut the four lines.
 
-She read the first page standing up, with her weight on one hip and the pencil an inch off the paper. I have watched a great many people read a term sheet. They read the number first and the names last. Jo started at the top and read every line in order, the date included. She read it the way she walks a house, one room at a time.
+She read the first page with her weight on one hip and the pencil an inch off the paper. I have watched a great many people read a term sheet. They read the number first and the names last. Jo started at the top and read every line in order, the date included. She read it the way she walks a house, one room at a time.
 
 Page one said neither of us would tell anyone about the other's health, money, house, company, children or dog, or post a word or a picture of the other anywhere, for as long as either of us lived.
 
@@ -148,7 +148,7 @@ It folds in half and has shoulder straps. It weighs ten pounds. I had the pie in
 
 The trail to the rock is a quarter mile, uphill, in the shade. She walked ahead of me with the pad on her back. I had walked it alone thirty-eight times. In 2009, when the company was nine people, I came up here on Saturdays and climbed by myself. I had not been back.
 
-The trail goes up through black oaks and madrones. A madrone sheds its bark every summer. The old bark comes off in thin red curls, leaving the trunk under it green and cool, like the inside of a wrist. Jo put her hand flat on one as she went by. Then she stopped and put her hand on the next one, and left it there a while.
+The trail goes up through black oaks and madrones. A madrone sheds its bark every summer. The old bark comes off in thin red curls, leaving the trunk under it green and cool, like the inside of a wrist. Jo touched one as she went by. Then she stopped and put her hand on the next one, and left it there a while.
 
 Castle Rock is a sandstone block the size of a house, set in the trees. Its whole face is full of holes. Rain soaks into the stone and dissolves what holds the grains together. The inside crumbles out from behind a hard skin. The holes are called tafoni. Some are the size of a fist. Some go back far enough for two people to sit in. The late sun came through the trees onto it in pieces. Every hole was full of shadow.
 
@@ -266,7 +266,7 @@ I have a word for most things. Since May I had been trying to find the one for t
 
 I had nothing written down. I bring a card to everything that matters and run what is on it until I know where each line will land. Everything I have said that mattered since 2009 I said first to Janice, or to a room, or to the mirror in a hotel bathroom. The only card I had on that rock was in my shirt pocket. It was hers. Seven of my lines were struck through on the back of it in her pencil.
 
-I could not run this one. She might laugh into her hand, as she had at the falls. She might say nothing at all, get up and drive me home down Skyline. I would sit beside her for forty minutes with it said. In May Remy had told me how long my relationships last. It was four point one months. It was twelve weeks to the day since the Oak. My pulse was in my neck. I put my hand flat on the rock beside her. It was still warm.
+I could not run this one. She might laugh into her hand, as she had at the falls. She might say nothing at all, get up and drive me home down Skyline. I would sit beside her for forty minutes with it said. In May Remy had told me how long my relationships last. It was four point one months. It was twelve weeks to the day since the Oak. My pulse was in my neck. I put my hand on the rock beside her. It was still warm.
 
 At 8:19 I tried the plain word. It held.
 
@@ -276,7 +276,7 @@ She turned her head and looked at me. I counted to twenty-six before she moved.
 
 I counted because I did not know what else to do with the time. At four I thought she would laugh. At eleven I started to build what I would say on the walk down if she said nothing. I stopped. She looked at my face the whole time. I let her.
 
-Then she put her hand flat on my chest, on my shirt, over the pocket with the card and her shoe money in it. My heart was going hard under her hand. She could feel it.
+Then she put her hand on my chest, on my shirt, over the pocket with the card and her shoe money in it. My heart was going hard under her hand. She could feel it.
 
 “Say it again when your heart's not going like that,” she said.
 

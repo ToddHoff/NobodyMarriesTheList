@@ -60,7 +60,7 @@ My father makes it every Sunday it rains. It's potatoes and onion in water till 
 
 I cut it anyway. I got it as thin as I could and put the thick ones in with the rest.
 
-On Saturday I'd given him his mother's keys back. Ten Saturdays with a clipboard in my hand. Cal was not paying me to be in a room with him anymore.
+On Saturday I'd given him his mother's keys back. Ten Saturdays with a clipboard in my hand. If he'd taken my bet in May, I'd have had eleven. Cal was not paying me to be in a room with him anymore.
 
 The linguiça was my father's, from the freezer. I sliced it in rounds and fried them in the pan till the fat came out. They went in the pot, fat and all. I turned the burner down and set two places at the table and moved Owen's charger off his chair onto the counter.
 
@@ -152,7 +152,7 @@ He had it open before I could say left. He stopped with his hand on the door.
 
 My tin was on the second shelf.
 
-It's my mother's recipe tin, with a hinged lid, the size of the one in his mother's kitchen that I'd taped shut without asking him. I haven't opened it since she died.
+It's my mother's recipe tin, with a hinged lid, the size of the one at his mother's that I'd taped shut without asking him. I haven't opened it since she died.
 
 He took it down.
 
@@ -206,7 +206,7 @@ I put my spoon in the bowl.
 
 “I remember.”
 
-“That was half of it. I heard it through the wall.” He had his hands flat on the table on either side of the card. “I wanted someone who would use what I sent. That way I would not have to come. I could pick it out from the back of a car and never be in the room.”
+“That was half of it. I heard it through the wall.” He had his hands on the table on either side of the card. “I wanted someone who would use what I sent. That way I would not have to come. I could pick it out from the back of a car and never be in the room.”
 
 He said it to my face.
 
@@ -228,7 +228,7 @@ I got my pencil out of the drawer by the stove. I turned the card over to the ba
 
 That left two.
 
-I handed it back across the table. He put it in his shirt pocket and put his hand flat over it.
+I handed it back across the table. He put it in his shirt pocket and put his hand over it.
 
 “Dawn says I'm allowed to change my mind,” I said.
 
@@ -286,13 +286,13 @@ I pulled my own shirt off over my head. He looked at me under my own lamp. I let
 
 The glass was on its chain between us. He put one finger on it, on my breastbone, where his whole hand had been on Saturday. Then his hands went up my back and stayed.
 
-I got him out of his jeans and got on top of him and took him in, with the lamp on and both my hands flat on his chest. He kept his hands on my hips. He watched my face. I put my whole weight down on him, all of it, on purpose. He took it.
+I got him out of his jeans and got on top of him and took him in, with the lamp on and both my hands on his chest. He kept his hands on my hips. He watched my face. I put my whole weight down on him, all of it, on purpose. He took it.
 
 I set the pace. He kept to it. The glass swung on its chain against his chest. He put his hand over it and over my hand and held both there. He said my name once, with his eyes open. Then his hands tightened on my hips and he quit waiting. I didn't want him to wait.
 
 After, the lamp was still on. Pancake had come down the hall and was lying across my bedroom door with his head on his paws, looking at nothing.
 
-I had my hand flat on Cal's chest. His heart was going under my palm. I'd told him on a rock to wait till it wasn't.
+I had my hand on Cal's chest. His heart was going under my palm. I'd told him on a rock to wait till it wasn't.
 
 “I love you,” he said.
 

@@ -46,7 +46,7 @@ The fuel receipt was under the visor, where we both keep them. A hundred and nin
 
 I wrote the mileage on the clipboard. I sat a minute in his seat, on his cushion, with my hands on the wheel at ten and two where his had been, while the wind rocked the truck on its springs. The cab smelled like his coffee and like the menthol rub he puts on his knees and says he doesn't. That was three days of my loads on his knees, so I wouldn't have to pay a temp driver on top of the transmission. My throat was tight.
 
-I took the cushion down, and the tide book. He saw me coming with them. He put his hands flat on the seat of the chair and lifted himself up off it so I could get the cushion under him. He sat back down and opened the tide book.
+I took the cushion down, and the tide book. He saw me coming with them. He put both hands on the seat of the chair and lifted himself up off it so I could get the cushion under him. He sat back down and opened the tide book.
 
 Denise came down the office steps with the payroll tote on her shoulder and her phone held out in front of her.
 
@@ -54,13 +54,13 @@ Denise came down the office steps with the payroll tote on her shoulder and her 
 
 “Which Hillsborough?”
 
-“How many Hillsboroughs do we HAVE? Wednesday. The big truck. Forty-eight sixty.”
+“How many Hillsboroughs do we have? Wednesday. The big truck. Forty-eight sixty.”
 
 She read it to me off the phone. Hillsborough had asked her bank to stop payment, *given what's being said about your company online*, until she'd had a chance to go through her things. Hillsborough had cancelled Saturday too. Saturday was her garage.
 
 “Her things are fine,” I said. “Vili wrapped her mirrors himself.”
 
-“I KNOW her things are fine. She means the picture.”
+“I know her things are fine. She means the picture.”
 
 “Pay Vili and Manny for tomorrow.”
 
@@ -68,15 +68,15 @@ She read it to me off the phone. Hillsborough had asked her bank to stop payment
 
 “They had it on the calendar. Pay them.”
 
-Denise wrote it down. “Vili says THANK you, by the way. He's got his Saturday.” She looked over at our father in his chair. Then she looked at me. “CALL him.”
+Denise wrote it down. “Vili says thank you, by the way. He's got his Saturday.” She looked over at our father in his chair. Then she looked at me. “Call him.”
 
 “No.”
 
-“He'd have a truck in this yard by MONDAY.”
+“He'd have a truck in this yard by Monday.”
 
 “Don't call him, Denise.”
 
-“I didn't SAY I'd call him.”
+“I didn't say I'd call him.”
 
 “You were going to.”
 
@@ -288,7 +288,13 @@ Out on the point there was a house built of gray rocks off the beach, with a sto
 
 “Bet his knees were shot.”
 
-Cal looked at me. I drove.
+Cal looked at me. “He built it for his wife. She loved the old towers in Ireland.”
+
+“Did she ask him for one?”
+
+“She did not have to.”
+
+I drove.
 
 At the end of Scenic I cut over to Rio Road and went past the Mission. I crossed myself going by. Then we were on 1 going south.
 
@@ -342,7 +348,7 @@ Cal was on my left. I hadn't seen him get there.
 
 Past the bridge the road climbs to a point where the wind came across so hard it rocked the truck on its springs. Cal brought his arm in. The lighthouse at Point Sur went by on top of its own rock, white, out in the water. Down in the Big Sur valley the road went into the redwoods along the river, cold and dark after all that light, and came up out of them into the sun.
 
-At Nepenthe I parked in the shade at the edge of the lot. Cal lifted Pancake down and walked him along the fence. Pancake sniffed every post before he picked one. Cal set him back on the seat, rolled all four windows down, put his hand flat on the back seat and then on the dash, and filled the water bowl. Pancake lay down on my seat covers and looked at us.
+At Nepenthe I parked in the shade at the edge of the lot. Cal lifted Pancake down and walked him along the fence. Pancake sniffed every post before he picked one. Cal set him back on the seat, rolled all four windows down, felt the back seat and then the dash, and filled the water bowl. Pancake lay down on my seat covers and looked at us.
 
 The terrace hangs eight hundred feet over the water. I went to the rail before I went to the stand. The mountains come straight down into the ocean there, one ridge behind another, going south as far as I could see, each one a little bluer than the last. The water at the bottom was so far down the waves broke white without making any sound. I've stood on a lot of decks in Hillsborough that thought they had a view.
 
@@ -354,7 +360,7 @@ A man across the fire pit had been looking at Cal since we sat down. He had his 
 
 “Hey,” he said, loud, smiling. “Call your mother!”
 
-Three tables looked over. Cal's face didn't do anything. His hand went flat on his knee and stayed there.
+Three tables looked over. Cal's face didn't do anything. His hand went to his knee and stayed there.
 
 The last picture anybody took of us had cost me forty-eight sixty and a Saturday. I stood up and put myself between Cal and the phone.
 
@@ -364,7 +370,7 @@ The last picture anybody took of us had cost me forty-eight sixty and a Saturday
 
 “No.”
 
-The man put his phone away. When I sat back down, Cal took his hand off his knee and put it flat on my back, between my shoulders, and left it there. My shoulders came down an inch.
+The man put his phone away. When I sat back down, Cal took his hand off his knee and put it on my back, between my shoulders, and left it there. My shoulders came down an inch.
 
 We didn't get a table on the edge till after two. I'd walked the beach and the point on coffee at five and nothing since. Cal had been looking at the burgers at the next table since we sat down. I read the menu from the right-hand side.
 
@@ -460,7 +466,7 @@ I pushed him back onto that big bed and climbed on after him.
 
 I looked at the fire once, over his shoulder, with his mouth on my collarbone and his hands spread on my back. It was most of the way gone. I shut my eyes.
 
-In the dark I put my mouth on his neck, where the sun had been at lunch. Then I put my hand flat on his chest, where I'd put it on the rock. His heart was going normal, which is what I'd told him to wait for. I could have said it then. I had it in my mouth.
+In the dark I put my mouth on his neck, where the sun had been at lunch. Then I put my hand on his chest, where I'd put it on the rock. His heart was going normal, which is what I'd told him to wait for. I could have said it then. I had it in my mouth.
 
 I shut my mouth against his shoulder and kept my hand where it was until he was asleep.
 

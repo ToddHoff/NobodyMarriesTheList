@@ -32,9 +32,9 @@ I had never seen her at her own door with nowhere to be. I wanted to kiss her ri
 
 Owen's shoes were inside the door, one of them on its side. The front room had a couch with a blanket folded over the arm and a television not much bigger than the screen in my car. She had vacuumed. The lines were still in the carpet. The hall closet door would not quite shut on whatever she had put in it in a hurry. I kept that to myself.
 
-I followed her into the kitchen and stood in front of the drawer she wanted.
+I followed her into the kitchen and stood right where she needed to be.
 
-“That's my drawer,” she said.
+“You're in my way,” she said.
 
 She put both hands on my hips and walked me backward across the kitchen until a chair at the table caught me behind the knees. I sat. One corner of her mouth went up.
 
@@ -46,7 +46,7 @@ The chair put my shoulder against the frame of the back door. There was pencil o
 
 It was marked up one side in short flat lines, dark, with a name beside each in capitals. The first said OWEN 2 and the last said OWEN 9, which came level with my eyes. Every line was carpenter's pencil. Abby's were on my mother's bathroom door, in my mother's ballpoint. I saw them for the first time in June.
 
-Not one of Owen's years was missing. Every one of them, somebody had stood him against this frame and put a flat hand on his head.
+Not one of Owen's years was missing. Every one of them, somebody had stood him against this frame and put a hand on his head.
 
 I moved my shoulder off the lines.
 
@@ -154,7 +154,7 @@ I laughed. I could not stop. She laughed with her forehead against my chest. I f
 
 In her room I had my face down in her hair and could not get my breath.
 
-She put her hand flat on my chest, where she had put it on a curb in Los Gatos, and pushed. I went down onto her bed. She took my left wrist and turned my watch around on it, so the face was against the inside of my wrist where neither of us could read it.
+She put her hand on my chest, where she had put it on a curb in Los Gatos, and pushed. I went down onto her bed. She took my left wrist and turned my watch around on it, so the face was against the inside of my wrist where neither of us could read it.
 
 After that I did not decide anything.
 
@@ -172,7 +172,7 @@ She came down over me and took me in slowly. She watched my face the whole while
 
 My watch tapped against the inside of my wrist more than once. I could not have told you the number. I did not want it.
 
-Afterward she lay with her head on my shoulder and her hand flat on my chest. Her fingers moved a little, in time. I believe she was counting.
+Afterward she lay with her head on my shoulder and her hand on my chest. Her fingers moved a little, in time. I believe she was counting.
 
 I lay as still as I could, so that she would get an accurate count.
 
@@ -248,7 +248,7 @@ At eight my watch tapped against the inside of my wrist. She heard it.
 
 “What's it say?” she said.
 
-Three times since June she had told me to keep that number to myself. It was the first time she had asked what it said.
+Once, in June, she had told me to keep that number to myself. It was the first time she had asked what it said.
 
 I turned it over.
 

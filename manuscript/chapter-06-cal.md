@@ -154,7 +154,7 @@ She unwrapped it on the edge of the dock and lifted the top of the roll.
 
 “The flowers were right. The text was right. You don't have to be right all the time.” She took another bite. “I'm eating, Cal.”
 
-I watched her eat the bifana standing up, all of it. I did not think about the product review. She wiped her hands on her jeans.
+I watched her eat the bifana, all of it. I did not think about the product review. She wiped her hands on her jeans.
 
 “That doesn't count,” she said. “You still owe me half a linguiça.”
 
@@ -174,7 +174,7 @@ She looked at my left hand.
 
 On a Tuesday, in her yard, in front of her father, she took my hand and turned it over. The cut was a thin line. When she pressed beside it once with her own thumb, checking, my watch tapped my other wrist. *Heart rate 108.*
 
-“You'll live,” she said.
+“You'll probably live,” she said.
 
 She let go sooner than she had on Saturday. I noticed, which I think she meant me to.
 
@@ -232,7 +232,7 @@ I lifted on two.
 
 “That was two.”
 
-“It seemed like the right time.”
+“It seemed right.”
 
 “Put it down.”
 
@@ -320,9 +320,7 @@ On the night we met she had told me about the bank envelope in his coat, thirty-
 
 “I sent two tickets, so that she would not have to go alone.”
 
-“You sent her his.”
-
-“Rowena wants to send it back.”
+“You sent her his. Rowena wants to send it back.”
 
 “To me?”
 
@@ -360,7 +358,7 @@ I opened the car door.
 
 “I told you I would not ask again.”
 
-I wanted to ask. I had wanted another evening since 8:45 on the seventh, when the car came and I stayed where I was. I could not tell whether her question was a test, or which answer would pass it. I did not have many promises out to her. I was not going to break one in her yard with her father on the dock. My ears were hot.
+I wanted to ask. I had wanted another evening since 8:45 on the seventh, when the car came and I stayed where I was. I could not tell whether her question was a test, or which answer would pass it. I did not have many promises out to her. I was not going to break one in her yard with her father on the dock. I stood with my hand on my own car door and did not get in.
 
 She looked at me for three seconds. I counted. She took the pencil from behind her ear, for no reason I could see, and put it back.
 

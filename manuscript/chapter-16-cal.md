@@ -210,13 +210,13 @@ Jo held out her hand. I gave her Friday's card. She read it.
 
 “We're early. You're always early.” She turned it over and back. “Janice didn't write this.”
 
-“No. I did.”
+“I wrote it.”
 
-“Janice would have put down a second winery.” She gave it back. “Nobody comes all the way up here for one. Food first. Then I know where we're going.”
+“Janice would have put down a second winery.” She gave it back. “Nobody comes all the way up here for one wine tasting. Food first. Then I know where we're going.”
 
-My plan had failed at its first stop, in front of her, four minutes before it was due. When a demo fails on a stage, I have about four seconds before the room decides what it means. I am good at those four seconds. I stood at the gate waiting for them to start. She was already walking.
+My plan had failed at its first stop, in front of her, four minutes before it was due. When a demo fails on a stage, I have about four seconds before the room decides what it means. I am good at those four seconds. I stood at the gate waiting for them to start. She was already walking back to the truck.
 
-The store was across the road. She knew it. She had moved four houses off Summit Road. On the way across she told me what had been in each garage.
+The store was down the road, on the other side. She knew it. She had moved four houses off Summit Road. On the way she told me what had been in each garage.
 
 “The last one had twenty-six cans of paint in it,” she said. “The same white, every can. He painted the house once, in 1991. After that he bought a can every time he went to the hardware store.”
 
@@ -224,7 +224,7 @@ The store was across the road. She knew it. She had moved four houses off Summit
 
 “I asked his daughter. She said, ‘In case.’”
 
-She had said more crossing that road than in four hours at my mother's house. I would have listened to a fifth garage. I had asked what the paint was for so that she would not stop.
+She had said more between the gate and the store than in four hours at my mother's house. I would have listened to a fifth garage. I had asked what the paint was for so that she would not stop.
 
 The store was a grocery and a general store under one roof. Jo said the first one had come down in the earthquake in 1989. They built this one after. She said it the way she gives the age of a house.
 
@@ -262,9 +262,9 @@ She looked at me for a second. Then she slid the twenties across. When the boy a
 
 She picked up the bag with the sandwiches in it. I held the door.
 
-My ears were hot all the way back across the road. The boy at the register had watched a woman pay for my lunch and had thought nothing of it.
+My ears were hot all the way out to the truck. The boy at the register had watched her pay for my lunch and had thought nothing of it.
 
-She did not turn back toward 17. She drove past the store and turned off Summit Road. Half a mile on she took a narrower road that climbed through the trees.
+She did not turn back toward 17. She kept going east and turned off Summit Road. Half a mile on she took a narrower road that climbed through the trees.
 
 “Where are we going?” I said.
 
@@ -308,11 +308,11 @@ It was getting warmer on the ridge. He was putting in more Bordeaux grapes becau
 
 He had been on that hill since before I was born. He wanted somebody at his bar to know how the wine was made. He talked until a car came up the hill with four more people in it.
 
-Jo carried the glasses out to the deck. She set them on a table and went to the rail. I stopped beside her.
+Jo carried her glass out to the deck. She set it on a table and went to the rail. I put mine down by hers and stopped beside her.
 
 The vines ran down the hill below the deck. Past them, a long way down, was the ocean. I had flown over Monterey Bay a hundred times. I had never stood still and looked at it.
 
-The wind came up the hill off the water and blew her hair across her face. She held it back with one hand flat on top of her head. In seven Saturdays I had seen her stand still only to look at a staircase. She stood at that rail a long time.
+The wind came up the hill off the water and blew her hair across her face. She held it back with one hand on top of her head. In seven Saturdays I had seen her stand still only to look at a staircase. She stood at that rail a long time.
 
 I put my hand in my pocket for my phone, to take a picture of the bay. I took my hand out again without it. I looked at the bay. Then I looked at her. Her hair was down and the wind had it. I did not go back to the bay.
 
@@ -326,7 +326,7 @@ The dog found me again and lay down across my feet, on the side of the table awa
 
 “I will tell him it was for you.”
 
-Jo tasted each one and poured the rest in the bucket, because she was driving. I started with the Chardonnay.
+Jo drank her Chardonnay. I tasted mine.
 
 “What do you get?” she said.
 
@@ -342,7 +342,7 @@ She laughed so hard she had to set the glass down.
 
 In Napa there had always been someone at my elbow to tell me what was in the glass. I had agreed with all of them.
 
-The Pinot came next. I tasted it before I could remember what he had said about it. It tasted like cherries to me. Under the cherries it tasted like the ground on Summit Road. Jo watched me do it. She looked out at the water and smiled. There was a drop of the Pinot on her lower lip. She took it off with her thumb. After that I could not have told anyone what was in the glass.
+We went back to the bar for the Pinot and carried it out. I tasted it before I could remember what he had said about it. It tasted like cherries to me. Under the cherries it tasted like the ground on Summit Road. Jo watched me do it. She looked out at the water and smiled. There was a drop of the Pinot on her lower lip. She took it off with her thumb. After that I could not have told anyone what was in the glass.
 
 “We should have saved the tri tip for this one,” I said.
 
@@ -368,11 +368,11 @@ I had not told anyone about those Saturdays. She answered with her own, looking 
 
 On the way back down she turned off just past the store, up a dirt drive to an old farmhouse where the vines run uphill into the redwoods. On the porch a plank lay across two barrels, with a woman of about eighty pouring behind it. A cat slept in a wine crate at her feet. The sun had come around to the west. From the porch I could see the veins in the leaves. Jo sat on the top step with her glass. I sat on the step below her. After a while she put her knee against my shoulder and left it there. The woman poured a red from those vines. I kept my shoulder where it was and did not hear a word about the wine. Jo paid.
 
-She had paid four times that afternoon, counting my driver. I had stopped reaching for my back pocket after the store. I owed her half a linguiça sandwich already. I tried to work out what the afternoon added to it. I could not get a number.
+She had paid four times that afternoon, counting my driver. I had stopped reaching for my back pocket after the store. I owed her half a linguiça sandwich already. I tried to work out what the afternoon added to it. It was more than I knew how to pay back.
 
 ***
 
-Los Gatos is twenty minutes down 17. It was seventy-three degrees there. It had been sixty-four in San Bruno. She parked by the lake. The water was flat and gold with the late sun on it. A heron stood in the shallows on one leg. Jo stopped to watch it. It took a fish while she watched. She said, “Oh,” out loud. We walked north on the creek trail, where the trees close over it and the light comes through green.
+Los Gatos is twenty minutes down 17. It was seventy-three degrees there. It had been sixty-four in San Bruno. She pulled into the park by the lake. The water was flat and gold with the late sun on it. A heron stood in the shallows on one leg. Jo stopped to watch it. It took a fish while she watched. She said, “Oh,” out loud. We walked north on the creek trail, where the trees close over it and the light comes through green.
 
 Bicycles came up behind us without bells. The third one came fast. Jo took my hand and pulled me onto the dirt at the edge.
 
@@ -436,7 +436,7 @@ She did not say anything. I thought of the three boxes on my mother's hearth. Sh
 
 “Why?” she said.
 
-A dog went down the wire and back before I had anything.
+A dog went by and came back before I had anything.
 
 “When I was ten I bought my mother an alarm clock with my own money,” I said. “It went off at five every morning, on the other side of my wall. I would lie there and hear her turn it off. Every day, the first thing she heard was something I gave her. I think it starts there.”
 
@@ -446,7 +446,7 @@ She smiled at me, tilting her head the way she does when a client swears a box i
 
 “Isn't that the same clock you marked blue?”
 
-“It is.” I watched the gray dog take its ball back up the fence. “I am not sure of the rest.”
+“It is.” I watched the gray dog take its ball back up the fence. “The clock can go. I do not know yet about seven.”
 
 “Until then it stays on.”
 

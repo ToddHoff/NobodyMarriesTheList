@@ -86,7 +86,7 @@ He stood on that for a while.
 
 “And then I put on a dress.”
 
-“I did not say anything about it at your door,” he said. “Nothing I had was good enough.”
+“I did not say anything about your dress at the door,” he said. “Nothing I had was good enough.”
 
 The man in the window asked me twice about onions and cilantro.
 
@@ -96,11 +96,11 @@ Two paper plates came through the window. Cal took both. He carried them out in 
 
 “Did Janice tell you to walk me to my truck?” I said.
 
-“No.”
+“It was my idea.”
 
-“She did the last time.”
+“Last time it was Janice's.”
 
-“She did. Tonight her card is in my car. It has been there since 6:24.”
+“It was. Tonight her card is in my car. It has been there since 6:24.”
 
 “There was a card.”
 
@@ -144,13 +144,27 @@ He picked it up and bit into it.
 
 “You were right both times.”
 
+He finished it. “That was the best thing I have eaten tonight.”
+
 I ate the other two. They were hot and they dripped, so I leaned out over my knees to keep them off the dress. He watched me eat them with his elbows on his knees.
 
-On a job I eat away from the crew. Nobody watches me do it. I had grease running down to my wrist. I could feel him looking. I didn't sit up. I wanted him to keep looking.
+I had grease running down to my wrist. I could feel him looking. I didn't sit up. I wanted him to keep looking.
 
-“That's the something to eat,” I said. “You're down to two lines and half a linguiça.”
+When I sat up, he reached over and took a drop of salsa off the corner of my mouth with his thumb. His thumb stayed on my lip after there was nothing left.
 
-“That was the best thing I have eaten tonight.”
+I moved a quarter of an inch, into his hand. He went still.
+
+“I have wanted to do that since the oyster,” he said.
+
+At the oyster I'd shut my eyes. I hadn't known anybody was looking.
+
+He kept his thumb where it was. I wanted him to kiss me. He'd wait all night for me to say so. I don't ask.
+
+I took his hand off my face by the wrist and gave it back to him.
+
+I had to say something else. I picked my plate up off my knees and held it up between us.
+
+“Crew's fed,” I said. “You're down to two lines and half a linguiça.”
 
 I got up and opened the cab. I keep a bag of clean rags behind the seat, next to the shirt. I gave him one and took one. We stood there wiping our hands.
 
@@ -192,7 +206,7 @@ He'd take a no. He'd taken one on his mother's lawn. I didn't have one on me.
 
 He held still. He is good at it.
 
-I put my hand flat on his chest, where I had put it in the hallway. In the hallway I had told myself I was making room. Up on my toes on a curb, I was still six inches short of his mouth.
+I put my hand on his chest, where I had put it in the hallway. In the hallway I had told myself I was making room. Up on my toes on a curb, I was still six inches short of his mouth.
 
 He was holding still. I had told him to.
 
@@ -202,15 +216,9 @@ He came down.
 
 He tasted like salt. For a second he kissed like a man following an instruction. Then his hand came up to the side of my face and he quit being careful. I felt it all the way down the backs of my legs.
 
-His other hand still had my rag in it. I could feel it against my back. I hadn't kissed anybody since Kevin. Toward the end with Kevin it was something you did at the door with your keys already out. I kept my hand flat on his chest. I didn't trust it anywhere else.
+His other hand still had my rag in it. I could feel it against my back. I hadn't kissed anybody since Kevin. Toward the end with Kevin it was something you did at the door with your keys already out. I kept my hand on his chest. I didn't trust it anywhere else.
 
 His heart was going under my palm. His watch buzzed, close to my ear.
-
-“Keep that one to yourself,” I said.
-
-“It only taps when the number is high.”
-
-“I said keep it.”
 
 I came down off my toes. I didn't want to. That was reason eight not to like him, the last one I counted.
 

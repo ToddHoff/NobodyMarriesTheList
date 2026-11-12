@@ -164,7 +164,7 @@ The floor was koa, a gold wood with the grain running through it in waves. The b
 
 My bag slid off my shoulder onto the koa. I didn't check the floor for a scratch.
 
-Cal stood beside me with his hands behind his back. He looked at his own living room like a client on a walkthrough. It was the first time he'd seen it too.
+Cal stood beside me with his hands behind his back. He looked at his own living room like a client on a walk-through. It was the first time he'd seen it too.
 
 Owen didn't look at the room at all. He looked at the water.
 
@@ -214,9 +214,7 @@ The refrigerator was stocked for five people. Milk with a Thursday date, two gal
 
 “The old goes to the food pantry. Six years. We keep it ready.”
 
-“Six years of milk.”
-
-“And you?”
+“Six years of milk. And you?”
 
 “Six of us. He keeps us on. Full pay.”
 
@@ -492,7 +490,7 @@ It was the first red I'd seen. In daylight, in the sun, red. It sloshed up in th
 
 “She's been spilling over since four this morning,” Dr. Okamura said.
 
-Owen had both hands flat on the window. “Is it going?”
+Owen had both hands on the window. “Is it going?”
 
 “It's getting ready.”
 
@@ -624,13 +622,13 @@ Owen looked at it a while longer. Then he turned his arm over and let the wind h
 
 I don't take anything home from a job. I've never told Owen that. He had it anyway.
 
-I had my hand flat on my own chest. I didn't know when I'd put it there.
+I had my hand on my own chest. I didn't know when I'd put it there.
 
 Cal hadn't made a call. He'd sat on the ground in the cold.
 
 I looked at him. He wasn't counting anything. His face was orange and it was wet. It was cold enough up there that it could have been the wind. I didn't ask.
 
-Owen sat back down on the ground next to Cal. I sat down on his other side, on the cold ground. I reached around behind him and put my hand flat on Cal's back. I left it there.
+Owen sat back down on the ground next to Cal. I sat down on his other side, on the cold ground. I reached around behind him and put my hand on Cal's back. I left it there.
 
 “It counts,” Owen said.
 

@@ -64,7 +64,7 @@ He put out his hand. Mine has a tape-gun callus across the palm and had, that da
 
 “I had a widow and a recliner.”
 
-He looked at my boots, then at his watch, doing the subtraction where I could see it. It was a plain steel watch with hands, the kind my father wears.
+He looked at my boots, then at his watch, doing the subtraction where I could see it. It looked like the plain steel kind my father wears. It wasn't. I've packed up enough dead men's dressers to know what a watch costs when it doesn't want you to ask.
 
 “You have twenty-five minutes,” he said.
 
@@ -224,7 +224,7 @@ I unzipped the purse again and set the tape measure on the table between us.
 
 I stood up. He came around the table.
 
-I put the end of the tape under my boot heel and handed him the case. He ran it up my back without touching me. Then he laid his hand flat on the top of my head to mark the place.
+I put the end of the tape under my boot heel and handed him the case. He ran it up my back without touching me. Then he laid his hand on the top of my head to mark the place.
 
 Nobody had put a hand on my head since my father measured me against the garage door frame. This was not like that. He was close enough that I could smell him: a clean shirt and nothing else. I stopped hearing the bar.
 
@@ -282,7 +282,7 @@ He looked at the line for a while. Then he laid the card down with that side up 
 
 He looked at the shrimp. “Somebody decided I did. I have never had one.”
 
-I'd had two lumpia standing up in a driveway at lunch and nothing since. I took a shrimp. The sauce was mostly horseradish. It went up the back of my nose and cleared out eleven hours of cardboard dust.
+I'd had two lumpia in a driveway at lunch and nothing since. I took a shrimp. The sauce was mostly horseradish. It went up the back of my nose and cleared out eleven hours of cardboard dust.
 
 “Is it good?” he said.
 
@@ -362,21 +362,21 @@ It rang a second later. He let it ring.
 
 “Does that get you out of all of them?”
 
-“It has gotten me out of every one so far.”
+“Every one so far.”
 
 That was what I had come in for. One beer and a man who would stand up at a quarter to nine and go. I got my purse into my lap, so I'd be the one standing first.
+
+Most men play hard to want. This man plays hard to get. He has his phone do it.
 
 He looked at the phone, then at the folder. Then he looked at me with the look from the tape measure. I had a shrimp tail in my fingers and my eyes were still running from the sauce.
 
 He turned the phone face down.
 
-I have stood in a lot of living rooms while somebody's son checked his phone over his mother's things. I put my purse back on the floor. I wanted him to keep looking at me like that. That hasn't happened since Kevin.
+I have stood in a lot of living rooms while somebody's son checked his phone over his mother's things. I put my purse back on the floor. I wanted him to keep looking at me like that. That hadn't happened since Kevin.
 
 “I will have another,” he told the bartender.
 
-“Another what, Mr. Brennan?”
-
-It was an honest question. Cal Brennan had to look into his own glass to answer it.
+The bartender looked at the leather folder by his elbow, then at him. “Yes, Mr. Brennan.”
 
 “And for you?” the bartender asked me.
 

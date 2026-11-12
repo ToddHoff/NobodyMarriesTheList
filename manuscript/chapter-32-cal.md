@@ -70,7 +70,7 @@ My face went hot. I put my keys in my pocket so that I would have somewhere to p
 
 “Did Jo sign it?”
 
-“She read every page. Standing up.” She squared it again. “She didn't sign it.”
+“She read every page.” She squared it again. “She didn't sign it.”
 
 “What did she say?”
 
@@ -84,7 +84,7 @@ I read the sentence back to myself. Then I read it again.
 
 “If you do,” Abby said.
 
-I put my hand flat on the hall table beside the envelope.
+I put my hand on the hall table beside the envelope.
 
 She pulled a strip off the roll of green tape, tore it against her thumb and laid it across the top of the envelope, flat, with no bubbles in it. She took the marker out of her pocket and printed DAD on the tape in her square capitals.
 
@@ -106,7 +106,7 @@ Then she went down the steps to her car. I stood in my doorway and watched her t
 
 At 11:52 that night I took the envelope to the kitchen counter and read the agreement.
 
-I read all of it, from the first page to the last, the way Jo had, standing up.
+I read all of it, from the first page to the last, the way Jo had.
 
 Stephanie's lawyer had my share count from my last filing with the SEC. It was correct to the share. He had the house in Woodside, the house on Maui, and the trust that holds the house on West Remington Drive, which Jo had spent nine Saturdays emptying for me. Page eleven waived support, in capitals. Page nineteen kept Abby's trust whole. It was a careful document. Everything in it that was mine was right.
 
@@ -148,7 +148,7 @@ Golden retrievers live ten to twelve years. I had read that the week Abby named 
 
 I was sure it was his brain.
 
-I had a hand flat on his side. His heart was going faster than mine. Mine was going faster than I have seen it on my watch.
+I had a hand on his side. His heart was going faster than mine. Mine was going faster than I have seen it on my watch.
 
 I carried him down the stairs and out to the car. He is sixty-four pounds. Every morning I carry him up the last three steps from the gate, because he cannot do them anymore. I had never carried him farther than that. At the bottom of the stairs he was sick again, down the front of my shirt. I put him on the back seat beside Abby's lamp, on the towels Rita keeps in the hall closet. He lay with his head tipped and his eyes going and looked at the roof of the car.
 
@@ -514,15 +514,17 @@ She did not answer me either.
 
 I heard her breathe once, the way my mother did on the voicemail before *Calvin*. Then the machine started again behind her, and the beat, and she said, “Drive your daughter, Cal,” and she was gone.
 
+I went into the kitchen. I buttered two pieces of bread out to the edge, put a tomato between them and cut it in half. I put it in a paper bag with an apple and wrote ABBY on the bag. It was the first lunch I had made her. She was eighteen.
+
 ***
 
 At 6:56 that morning I pulled into Stephanie's driveway in Menlo Park in a clean shirt. Abby was on the front step with one bag and her phone, her mother behind her in the door with her arms folded, in a sweater, with her sleeves turned back twice.
 
-Abby came down the walk and got in and put the bag between her feet. She looked at the back seat, at the lamp belted in, and at the empty place on the seat where Pancake rides.
+Abby came down the walk. She picked the paper bag up off the seat before she sat down. She read her name on it and put it in her bag, on top. Then she got in and put the bag between her feet. She looked at the back seat, at the lamp belted in, and at the empty place on the seat where Pancake rides.
 
 “Where's Pancake?”
 
-I told her. The nails on the floor, and the stairs, and the hospital, and the word the doctor had used, and the chicken and rice at ten to six. She listened to all of it with her hands flat on her knees.
+I told her. The nails on the floor, and the stairs, and the hospital, and the word the doctor had used, and the chicken and rice at ten to six. She listened to all of it with her hands on her knees.
 
 “Is he okay?”
 

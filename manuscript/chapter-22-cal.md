@@ -2,7 +2,7 @@
 
 **Cal**
 
-I woke in my old bed with my feet past the end of it and Jo's hand flat on my back.
+I woke in my old bed with my feet past the end of it and Jo's hand on my back.
 
 The room had gone gray at the slider. I did not know what time it was. My watch was face down on the desk where I had put it. I did not reach for it. Pancake was standing in the doorway looking at me. He does not need a watch. When he stands in a doorway like that, it is after five.
 

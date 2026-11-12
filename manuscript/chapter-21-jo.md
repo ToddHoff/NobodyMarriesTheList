@@ -198,7 +198,9 @@ We ate on the bench in the atrium with the cooler between us. He took the second
 
 “I brought ice.”
 
-He let that go. He's polite.
+He took a piece out of the cooler and held it up. “May I?”
+
+I held my hair up off my neck. He put the ice there and kept his hand on it till it was gone.
 
 After that we worked. Once I told him how many boxes and what size, he built them on the hall floor and taped every bottom in an H without my saying so. I packed his closet. He brought me boxes before I ran out and set each one down where I'd reach for it. Nobody had to call anything. We didn't talk much.
 
@@ -294,7 +296,7 @@ I've got a phone full of Owen at two. I hardly look at them. I was there.
 
 “She would have been to the games,” he said. “She would ask me which of Abby's I went to.”
 
-Kevin's been at every game Owen ever played. Same folding chair, same thermos. I've never said a word against him for it. I'd watched Cal now, too. At the rim. At a bathroom door with my carpenter's pencil. I'd already been comparing them. I hadn't known it was something a man could be afraid of.
+Kevin's been at every game Owen ever played. Same folding chair, same thermos. I've never said a word against him for it. I'd watched Cal now, too. At the rim. At a bathroom door with my carpenter's pencil. I'd already been comparing them. I'd never seen a man scared of a folding chair.
 
 “Do you still want a baby?” I said.
 
@@ -364,4 +366,4 @@ Eight was gone. The piano I'd found on the lanai was still there.
 
 Two more Saturdays.
 
-I put my hand flat on his back, where it had been at the rim. I left it there.
+I put my hand on his back, where it had been at the rim. I left it there.

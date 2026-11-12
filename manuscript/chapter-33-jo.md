@@ -40,7 +40,15 @@ I didn't answer her. I didn't know what you say to an eighteen-year-old who has 
 
 ***
 
-On Wednesday I got home from the yard and the mail was on my counter. Denise had come by at lunch for a folder. She'd put it in two piles, bills on the left and everything else on the right.
+On Wednesday she wrote again. I was on the dock pulling pads.
+
+*He made me a lunch for the car. Butter out to the edge.*
+
+*He hugged me at check-in. I had to let go first.*
+
+I folded the pad in my hands wrong and had to do it over.
+
+When I got home from the yard the mail was on my counter. Denise had come by at lunch for a folder. She'd put it in two piles, bills on the left and everything else on the right.
 
 On the left was a window envelope from my lender.
 
@@ -78,11 +86,11 @@ The other two pages were in pen, on paper from a yellow pad, with the ragged edg
 
 He'd spelled approved with one p.
 
-*The car that came for you in June was the plan. There was a weekend in Napa in July. That was the plan too. Abby read it on my phone. She said, “The usual.” I stopped those two when I saw them. I did not open the third. I did not ask how it ended until last Saturday night.*
+*The car that came for you in June was the plan. There was a weekend in Napa in July. That was the plan too. Abby read it on my phone. She said, “The usual.” I stopped those two when I saw them. I did not open the third. On July 30, coming down from Castle Rock, I asked Remy how the other eleven ended. You were driving. I held the phone under the dash.*
 
 *It ends at month four. There is a gift. Remy picks it. None of the eleven lasted to month five. Each of them ended within fourteen days of the gift. Each of them wrote to thank me for it. Janice answered, and I approved the answer. That was the last I heard from any of them. I did not notice. Remy did.*
 
-I put the page down on the counter and put my hand flat on it.
+I put the page down on the counter and put my hand on it.
 
 Stephanie had told me most of it on Monday, in my yard, in her flat shoes. It was different in his printing.
 
@@ -102,7 +110,7 @@ I picked it up again.
 
 *Cal*
 
-I read it twice standing up. Then I sat back down and read it again.
+I read it twice. Then I sat down and read it again.
 
 Three gifts. He hadn't opened them. Mine he'd picked himself, out of something my son told him in June.
 
@@ -182,9 +190,7 @@ I didn't remember it. I tried. I had the baby and the phone and nothing in betwe
 
 I didn't say anything.
 
-“Then you hung up.” He turned his keys over. “I could hear him crying when you did it.”
-
-“I bought the big box anyway. You put it in the hall closet. You didn't say a word about it. They were the size up.”
+“Then you hung up.” He turned his keys over. “I could hear him crying when you did it. I bought the big box anyway. You put it in the hall closet. You didn't say a word about it. They were the size up.”
 
 I remembered the box. I'd used them in May.
 
@@ -338,7 +344,7 @@ She read his letter with her face going ahead of her. At the part about Owen she
 
 She put her finger on *Cal* at the bottom. “Joanna Marie. He did this HIMSELF.”
 
-“I know he did.”
+“Janice would have looked it up.”
 
 She turned to the second page and put her finger on it.
 
@@ -442,7 +448,7 @@ Denise put her finger on the fifty-eight ninety-one.
 
 “Nobody.”
 
-“I'll sell the whole thing.”
+“Sell the whole thing.”
 
 “It's Dad's name.”
 
@@ -454,7 +460,7 @@ I looked at her. She'd done the books in that office for twenty years. I'd never
 
 “Thirty-nine ninety-one eighty-one.”
 
-She ran it on the old calculator with the paper roll, standing up, with her nails going on the keys. She tore the paper off and put it in front of me.
+She ran it on the old calculator with the paper roll, with her nails going on the keys. She tore the paper off and put it in front of me.
 
 “Two hundred forty-two payments. October first, 2046.”
 
@@ -488,7 +494,7 @@ Denise pulled out the chair across from me and sat down. She pushed the calculat
 
 “Denise.”
 
-“And if you love him, it's a house.” She put her hand flat on the pad, on his fifty-eight ninety-one. “So?”
+“And if you love him, it's a house.” She put her hand on the pad, on his fifty-eight ninety-one. “So?”
 
 I'd had it in my mouth on that rock. I'd had it in the dark at Carmel, and in Janice's office with her tape gun going behind me. Every time, I shut my mouth on it. I'd told myself I was waiting to be sure. I wasn't waiting. If I never said it, there was nothing he could buy with it. Not a truck. Not a sandwich.
 

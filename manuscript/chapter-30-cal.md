@@ -301,7 +301,7 @@ I did not ask again. I held my hand out flat, at about the height of her head, a
 
 She looked at my hand for a while. Then she put her bag down. She lifted the robe off the hook and hung it over the table, next to the envelope. She turned around and stood with her back flat against the door, under her fourteen. She stood up straight.
 
-I put my hand flat on the top of her head. Jo's hand had been flat on Owen's. My mother's would have been flat on Abby's every year from three to fourteen, on whatever day in the summer Abby was at her house, in that hall, with the robe moved over to the side. I was in another time zone for every one of them.
+I put my hand on the top of her head. Jo's hand had been on Owen's. My mother had used a ruler, on every birthday from three to fourteen, in that hall, with the robe moved over to the side. I was in another time zone for every one of them.
 
 Her hair was warm from the car. I held my hand still.
 
@@ -335,7 +335,7 @@ On the slab in my mother's hall I had called her stubborn. I had looked at a hun
 
 I read the front of November again. It did not say savings. It said my name.
 
-I did not know why. My mother had made that payment every month I could remember. Most people would have been glad to stop. At dinner Abby had told me she was looking forward to telling me no. I filed it where I would have filed it for a board. Pride. A habit she could not break. Neither of them lasted thirteen years and a hundred and fifty-six envelopes. A habit does not write your son's name on the front. I did not have a reading for it. I had the shoebox in my lap.
+I did not know why. My mother had made that payment every month I could remember. Most people would have been glad to stop. At dinner Abby had told me my mother was looking forward to telling me no. I filed it where I would have filed it for a board. Pride. A habit she could not break. Neither of them lasted thirteen years and a hundred and fifty-six envelopes. A habit does not write your son's name on the front. I did not have a reading for it. I had the shoebox in my lap.
 
 Line seven was *Comfortable being looked after.*
 

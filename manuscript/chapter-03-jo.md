@@ -50,11 +50,9 @@ I read it in the yard with a clipboard under my arm. I read it again. It was rig
 
 Somebody had thought that through. I didn't want to like him for it.
 
-The first house I ever worked, I was seven. I sat on a kitchen floor in Millbrae wrapping the everyday glasses in newspaper while the wife told my father her husband had always said she didn't need to work.
+I put the sweet peas in a coffee can.
 
-I put them in a coffee can.
-
-Dawn Pruitt called before the first truck was out. She knows what time I'm up. She has watched me carry her mother's dresser.
+Dawn Pruitt called before the first truck was out. She knows what time I'm up. She watched me carry her mother's dresser.
 
 “Joanna. How was it?”
 
@@ -176,7 +174,7 @@ In daylight he was worse. The sun found the gray over his ears. He looked like h
 
 “You know I said no.”
 
-“Yes.”
+“Yes. I asked Dawn to say it twice.”
 
 I waited for the rest. The rest is the part where a man explains to me what I meant.
 
@@ -240,7 +238,7 @@ I've heard every reason a house sits shut. The lawyer's slow. The brother won't 
 
 “Have you got a key on you?”
 
-“Yes.”
+“Yes. The one I had in school.”
 
 “Let's walk it. That's what an estimate is.”
 
@@ -356,9 +354,7 @@ He didn't answer right away. He looked down the street, where he'd been looking 
 
 “That is nine rooms.”
 
-“The garage gets two. Nobody's looked in it.”
-
-“You're looking at fifteen hundred a Saturday, with the truck and the dump runs. Once I've walked the house with you in it, I'll write you a top price. It can come in under that. It can't go over.”
+“The garage gets two. Nobody's looked in it. You're looking at fifteen hundred a Saturday, with the truck and the dump runs. Once I've walked the house with you in it, I'll write you a top price. It can come in under that. It can't go over.”
 
 “That is fifteen thousand dollars against forty-five hundred. It is for the same house.”
 
@@ -366,9 +362,9 @@ He didn't answer right away. He looked down the street, where he'd been looking 
 
 He didn't answer that. He looked at the house then, for the first time since I had pulled up.
 
-I watched him look. I'd been trying not to watch him all morning. He had one hand flat against his leg and kept it there. My own hand could still feel his arm above the elbow, where I'd caught him on the ramp.
+I watched him look. I'd been trying not to watch him all morning. He looked at the roof. Sons always look at the roof first, so they don't have to look at the door. My hand could still feel his arm above the elbow, where I'd caught him on the ramp.
 
-He hadn't said the fast way. Anybody would have by now. He'd stood on his mother's lawn and let me walk him through every drawer and every coat, like a man who wanted to hear it. That made me want to be the one who got him through that door.
+He hadn't said the fast way. Anybody would have by now. That made me want to be the one who got him through that door.
 
 I knew how the slow way would go too. A man with a car at the curb has somebody for everything. He'd say yes on the sidewalk. On the first Saturday I'd get the woman who crosses her sevens.
 

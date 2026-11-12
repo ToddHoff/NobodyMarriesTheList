@@ -28,9 +28,7 @@ I changed lanes for no reason.
 
 “How is that a problem?”
 
-“I liked Kevin.”
-
-“He stood in a line in San Jose for a sandwich, Vili.”
+“I liked Kevin. He stood in a line in San Jose for a sandwich, Vili.”
 
 “Yeah, lock him up.”
 
@@ -180,7 +178,7 @@ I didn't have a night. Owen came back in the morning for seven days, so it would
 
 The job that day was the hutch.
 
-It stood at the end of the bedroom hall, six feet of dark oak with glass doors on top. He had boxed the dishes out of it the Saturday before, in boxes with an H on every bottom. Pancake was at the back door, watching. I had left the mixing bowl out there for him.
+It stood at the end of the bedroom hall, six feet of dark oak with glass doors on top. He had boxed the dishes out of it that morning, in boxes with an H on every bottom. Pancake was at the back door, watching. I had left the mixing bowl out there for him.
 
 “Green or blue?” I said.
 
@@ -202,7 +200,9 @@ It was bread ties. There were hundreds of them, sorted by color into a muffin ti
 
 “I told you,” I said.
 
-“You told me.” He was looking at the slips.
+“Next time I will believe you.” He was looking at the slips.
+
+“You won't.”
 
 I fanned the corner of the stack with my thumb. I fan everything. They were packing slips, the kind that ride in a plastic window on the outside of a shipping box, each one cut down with scissors to the two lines of the message. *Happy Birthday, Mom. Love, Cal.* It was in type, the same as the three I had read off the boxes the week before. She had kept them in order.
 
@@ -222,7 +222,7 @@ He stood there with the green roll in his hand and didn't tear any. I wanted to 
 
 “Blue.”
 
-“Blue,” I said, and wrote it down.
+“Blue,” I said, and wrote it down. Not one person has ever said green to the bread ties.
 
 I wrote one more thing under it. Thirty-four boxes that size would fill a closet to the ceiling. Pat Dolan had never seen one go out with the recycling. I'd been through two closets and a hutch without finding a box. I left that alone too.
 
@@ -306,7 +306,7 @@ It went fine to the corner. The hall in that house is thirty-six inches wide. Wh
 
 The piece was twenty inches deep. That left sixteen for the two of us, between the back of his grandmother's hutch and the paneling.
 
-I had my back to the wall. He had one hand flat on the oak beside my head, holding it upright, and nowhere to put the rest of himself. The top of my head came to his collarbone. I knew that already, to the quarter inch. Knowing it didn't help.
+I had my back to the wall. He had one hand on the oak beside my head, holding it upright, and nowhere to put the rest of himself. The top of my head came to his collarbone. I knew that already, to the quarter inch. Knowing it didn't help.
 
 “Don't let go of that,” I said.
 
@@ -330,7 +330,7 @@ If anything happened, I was going to have to start it.
 
 I have been in tighter spots than that with heavier furniture. I never wanted to stay in one.
 
-I put my hand flat on his chest. I told myself I was making room. His heart was going hard. He looked down at my hand and then at my mouth, and I had already started up onto my toes.
+I put my hand on his chest. I told myself I was making room. His heart was going hard. He looked down at my hand and then at my mouth, and I had already started up onto my toes.
 
 “Boss.”
 

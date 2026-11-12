@@ -42,7 +42,7 @@ She put it over my head and lifted my hair out from under the chain with both ha
 
 “Mom wore her Saint Christopher till the chain turned her neck green,” Denise said. “In the SHOWER.”
 
-I put my hand flat over the glass. It was cold. Then it wasn't.
+I put my hand over the glass. It was cold. Then it wasn't.
 
 Denise watched my face. Hers was doing everything.
 
@@ -202,7 +202,7 @@ I opened the envelope. It was forty pages, stapled at the corner, with tabs. PRE
 
 “I had it drawn in July,” she said. “After Abby's party. My lawyer had most of his side from 2012.”
 
-I read it standing up.
+I read it there at the desk.
 
 I read every contract that crosses this desk. You read the parts in capitals first, then go back for the rest. She stood on the other side of the desk the whole time with her bag on her arm. She didn't look at her phone once.
 
@@ -292,9 +292,19 @@ Two armchairs, a filing cabinet and a coffee maker on top of it. No desk. Nothin
 
 I sat down in the other chair.
 
+“You checked me off his list,” I said. “Line twelve. May fourth.”
+
+She poured half a cup before she answered.
+
+“In ink,” she said.
+
+“You told me I wasn't on it.”
+
+“You're not on eleven lines of it. Is that what you came up my stairs for?”
+
 “If one person signs a prenup and the other one doesn't,” I said, “does it hold?”
 
-She didn't answer right away. She poured half a cup.
+She didn't answer right away.
 
 “No,” she said. “You both sign it. Then the state makes you sit with it a week.” She drank. “Who brought you a prenup?”
 
@@ -384,7 +394,7 @@ I didn't say anything.
 
 “She put her hand on everything that was hers.”
 
-“That's what she had, Joanna. I asked what she wanted.”
+“That's what she had, Joanna. I asked what she wanted. I checked twelve because you tell me no before I've finished asking,” she said. “I had that down as the same thing.”
 
 *Only thing you ever asked me for, I had to sign it,* Kevin had said at his car in July.
 

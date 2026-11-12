@@ -130,7 +130,7 @@ The line went quiet. She had hung up.
 
 It was 6:44. Pancake put his chin on my shoulder from the back seat. I sat with the phone in my hand and looked at my mother's door.
 
-I had walked Pancake at five, as I do. Nobody has ever asked me for a meeting at five. By 5:30 I was dressed and standing in my kitchen with my keys. I drove. He rode with his chin on my shoulder from the back seat. I have never tried to break him of it. At 6:50 I lifted him down from the back seat, sixty-four pounds, and put him in the back yard through the side gate. Jo had told me where she wanted a dog. A gate does the work of a railing.
+I had walked Pancake at five. Nobody has ever asked me for a meeting at five. By 5:30 I was dressed and standing in my kitchen with my keys. I drove. He rode with his chin on my shoulder from the back seat. I have never tried to break him of it. At 6:50 I lifted him down from the back seat, sixty-four pounds, and put him in the back yard through the side gate. Jo had told me where she wanted a dog. A gate does the work of a railing.
 
 I had a plan for the door. On the sidewalk she had told me that she did not go through a house without the owner. I had been over that sentence for eight days, looking for the edge case. It said nothing about who went in first. I would give her the key. She would open the door. I would come in behind her. Behind her was still in the house. I had run it on the drive down and again in the car. It held every time.
 
@@ -162,7 +162,7 @@ She waited. When people wait, I explain.
 
 “You bought forty shirts so you'd never have to buy a shirt.”
 
-“Yes.”
+“It saves me four minutes a morning.”
 
 “That's six,” she said.
 
@@ -202,7 +202,7 @@ She kept more than one count. “Noted” had stood at four since the ramp on th
 
 “Key,” she said.
 
-I had one. Janice had sent it over in an envelope with the address on the front in blue ink.
+I held it out. It was warm. I had been turning it over in my pocket since Woodside. She took it without touching my fingers.
 
 In an Eichler the front door does not let you in. You open it and you are outdoors again, in the atrium, under the sky, with the house standing around you behind glass. As a boy I thought every house had one.
 
@@ -228,7 +228,7 @@ Jo was waiting on it too. She had stopped a step short of it, without touching t
 
 “I know. I'll wait.”
 
-She had found my edge case and turned it around. I have sat across tables from people prepared to wait me out. I know what it looks like when they mean it. She would have stood there until eleven.
+She had found my edge case and turned it around. She would have stood there until eleven.
 
 I had told her eight days earlier that I could not go in. That was still true. But two people were waiting in my mother's atrium, neither of whom could start until I did.
 
@@ -258,7 +258,13 @@ The door to the garage was locked. My key was for the front door, the only one I
 
 “It is empty,” I said. I had not been in it since 2003.
 
-She tried the knob once. Then she wrote it down.
+She tried the knob once and looked at me.
+
+“Bet you an extra Saturday it's not.”
+
+“I do not gamble.”
+
+“Smart,” she said, and wrote it down.
 
 In the hall she stopped at the photographs. There were nine frames. Six held Abby. One held me at a podium. Two held people I did not know, a couple laughing on a beach and a boy with a kite.
 

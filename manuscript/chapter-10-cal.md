@@ -68,13 +68,19 @@ If the messages stopped the week I kissed her, Jo would want to know why. The an
 
 “Yes,” I said.
 
+“You could write this one.”
+
+“She would know by the second sentence.”
+
+“She would,” Janice said.
+
 ***
 
 I was at the house at 6:41 on Saturday morning with three lunches. I did not know what was in mine. It had been packed.
 
 I put Pancake in the back yard and stood at the curb, where I could see down Remington.
 
-I had kissed her fifty-seven hours earlier. I can give you the place, and what she had made me eat first. Since Wednesday I had gone back over it in four meetings and in the car. Mostly I went back over her hand flat on my chest, and that she had to tell me to come down.
+I had kissed her fifty-seven hours earlier. I can give you the place, and what she had made me eat first. Since Wednesday I had gone back over it in four meetings and in the car. Mostly I went back over her hand on my chest, and that she had to tell me to come down.
 
 I moved to the end of the driveway, where she would see me in her mirror before she saw the house.
 
@@ -133,7 +139,7 @@ I could see the rest of it in how she stood. She was ready to be given a number 
 
 She looked at me for four seconds. Then she wrote on her clipboard for most of a minute and went into the house.
 
-I had said three things to her that morning. The last one was a count of lunches. I did not know which of the three she was writing down.
+I had said four things to her that morning. The last one was a count of lunches. I did not know which of the four she was writing down.
 
 The job that day was the front room.
 
@@ -157,11 +163,11 @@ Twice I started a sentence. Each time I heard it against one of Janice's and sto
 
 I could not answer. I put a second strip of blue on an end table that already had one.
 
-“The one who writes me would've had a paragraph about my driving.”
+“The guy who texts me would've had a paragraph about my driving.”
 
 “That one was not there.”
 
-She laughed. I felt it in my chest, where I had felt it at dinner.
+She laughed. I felt it in my chest, where I had felt it at dinner. She took it for a joke about me. I let her.
 
 The recipe tin was on the shelf behind the table, with four cookbooks. It was a green tin box, the size for three-by-five cards, with a hinged lid.
 
@@ -243,7 +249,7 @@ She put the sandwich down and held out her hand. I gave her the card. She took t
 
 “Is this one funny?”
 
-“No.”
+“No. This one is there because of Abby.”
 
 “Tell me.”
 
@@ -253,7 +259,7 @@ She put the sandwich down and held out her hand. I gave her the card. She took t
 
 “I moved her to another school. I have lived by line six ever since. Remy only wrote it down.”
 
-I had not told that to anyone who was not paid to hear it. I told it to her on a bench in my mother's atrium with her knee against mine. She had not signed anything.
+I had told that to lawyers and to Janice. I told it to her on a bench in my mother's atrium with her knee against mine. She had not signed anything.
 
 When I finished, her knee was where it had been.
 
@@ -283,7 +289,7 @@ I have fourteen pages, drawn up by a good firm, that are meant to say what she h
 
 She picked the clipboard up off the bench.
 
-“You haven't said one word about your car.”
+“You haven't asked me one thing about your car.”
 
 “You were not hurt.”
 

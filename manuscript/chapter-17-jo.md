@@ -42,9 +42,9 @@ I checked every message for a semicolon. There never was one. Most nights I wrot
 
 ***
 
-His house is at the end of a gravel drive in Woodside, under oaks. I parked the sixteen-footer on his gravel and looked at the house the way I look at any house. Three trucks, if they had anything. There was nothing on the front step. No shoes, no hose, no dog toy, no dog poop on the lawn. Somebody picked up after a man who didn't leave anything out.
+His house is at the end of a gravel drive in Woodside, under oaks. His gate stood open at the bottom. Past it the drive climbed between split-rail fences. In the field across the road a horse stood in the shade. Somebody rakes this gravel. Under the oaks the air through my window was cooler than Redwood City's and smelled like dry grass and bay leaves.
 
-His gate stood open at the bottom. Past it the drive climbed between split-rail fences. In the field across the road a horse stood in the shade. Somebody rakes this gravel. Under the oaks the air through my window was cooler than Redwood City's and smelled like dry grass and bay leaves.
+I parked my pickup on his gravel and looked at the house the way I look at any house. Three trucks, if they had anything. There was nothing on the front step. No shoes, no hose, no dog toy, no dog poop on the lawn. Somebody picked up after a man who didn't leave anything out.
 
 The house was long and low, gray wood and a lot of glass, set into the hill so you couldn't see all of it from one spot. Down the hillside a pool glittered in the sun, beside a gazebo with its cushions still in the plastic.
 
@@ -100,13 +100,13 @@ There were two things on his refrigerator. One was a school form of Abby's under
 
 Most people peel my tape off before my truck's off their street. He'd kept his two months. My eyes stung. I wasn't going to do that in front of Janice Louie.
 
-“Is there bread?” I said. “I've been up since five. I'd eat a sandwich standing up.”
+“Is there bread?” I said. “I've been up since five.”
 
 Rita looked at Cal. Cal looked at me.
 
 Janice put the rubber band around her cards.
 
-“Calvin,” she said. “The regulars order a sandwich.”
+“Calvin,” she said. “You know where the bread is.”
 
 She said it to him, not to me. She didn't look up from her cards.
 
@@ -270,7 +270,7 @@ One limb went out low and long past the patio and set its elbow down in the gras
 
 “Did you ever try it?”
 
-“No. I thought it was silly.”
+“I thought it was silly.”
 
 “You never put a hand on it?”
 
@@ -296,15 +296,15 @@ One limb went out low and long past the patio and set its elbow down in the gras
 
 He set his shoes down on the stones.
 
-“She said you do not pull at the bark,” he said. “You put your hand flat and leave it. You shut your eyes. You do not talk.”
+“She said you do not pull at the bark,” he said. “You lay your hand on it and leave it. You shut your eyes. You do not talk.”
 
-The bark was cut up into little gray blocks, deep in between. I put my palm flat on it. It was warmer than the air. The tree had held on to some of the afternoon.
+The bark was cut up into little gray blocks, deep in between. I put my palm on it. It was warmer than the air. The tree had held on to some of the afternoon.
 
 At the height of my shoulder there was a place the size of a hand where it had worn smooth.
 
 “That's hers,” I said. I moved my hand over onto the rough.
 
-He put his hand flat beside mine. The edge of his little finger came against the edge of mine and stayed there.
+He put his hand beside mine. The edge of his little finger came against the edge of mine and stayed there.
 
 I shut my eyes.
 
@@ -324,9 +324,9 @@ His breath caught. He didn't take his hand away.
 
 Something I'd been carrying since my mother died went out of me through my hand and into the tree. I felt it go. What came into the place it left was his.
 
-I'd had two glasses of my own Pinot. I told myself that was all it was. I'd told myself a lot of things since May.
+I'd had two glasses of Pinot. I told myself that was all it was. I'd told myself a lot of things since May.
 
-He leaned toward me, and I was already leaning. We kissed for a long time like that, our hands still flat on the loving tree, with nothing touching but our mouths and our little fingers on the bark.
+He leaned toward me, and I was already leaning. We kissed for a long time like that, our hands still on the loving tree, with nothing touching but our mouths and our little fingers on the bark.
 
 When we stopped, it got quiet. It was the kind of quiet that's waiting for somebody to say the next thing. I knew what the next thing was. I wasn't ready to hear it, in his voice or mine.
 
@@ -354,7 +354,7 @@ At the back step Pancake stopped and looked at the three steps. Cal set his shoe
 
 In the light from the kitchen there was a paw print in the bottom step, four toes and a pad, no bigger than a silver dollar. Every other edge on that place was square.
 
-“That's him,” I said.
+“That's Pancake,” I said.
 
 At the top he turned around. “At nine weeks. He got away from Abby. The step had been poured that morning. The finisher offered to grind it out and patch it. I sent him home.”
 

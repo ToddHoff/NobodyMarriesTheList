@@ -158,7 +158,7 @@ Past Alcatraz there was nothing in front of us but the bridge. It gets bigger th
 
 From the water you can see there's nothing under the road. I move weight for a living. That's what gets me every year. Two towers stand up out of the bay seven hundred and forty-six feet. The road hangs between them off two cables, four thousand two hundred feet of it. I looked that up the first year, when I was twelve. Under the overcast the orange was the only color anywhere. The water was gray, the sky was gray, the Marin hills were gray-brown. The bridge looked lit from inside.
 
-Slack water at the Golden Gate was 7:44. My father had us under the middle of the bridge right on it, with the main up and the engine turning slow. He's done it that way every year since 1994.
+Slack water at the Golden Gate was a quarter to eight. My father had us under the middle of the bridge right on it, with the main up and the engine turning slow. He's done it that way every year since 1994.
 
 From underneath, it's orange steel two hundred and twenty feet over your head. At the middle the big cables come down almost to the road on both sides and then go back up to the towers. You can hear the Monday traffic going across into the city, the tires knocking over the joints.
 

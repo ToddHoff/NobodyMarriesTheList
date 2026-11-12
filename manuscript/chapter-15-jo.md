@@ -52,7 +52,7 @@ He was standing beside his car under the light over the dock, in the gray shirt,
 
 “You said 5:30. I did not want to be late on the first day.”
 
-I put the packet on the hood of the sixteen-footer. Two tax forms and the one where you show ID. He filled them out standing up, in small square capitals, and showed me his license without being asked. He was done in under four minutes.
+I put the packet on the hood of the sixteen-footer. Two tax forms and the one where you show ID. He filled them out in small square capitals and showed me his license without being asked. He was done in under four minutes.
 
 I'd seen those capitals once before. He'd drawn a line on his mother's bathroom door along the side of my finger and written OWEN 9 beside it. He'd taken a long time over the O.
 
@@ -66,7 +66,7 @@ I'm not going to pretend I looked at the truck. He's built like a man who works 
 
 He put on my shirt. It said my name across his back.
 
-It's my father's name. He had it painted on the first truck in 1987. I've put it on the back of every man I ever hired. I quit seeing it a long time ago. On Cal it went from one shoulder blade to the other. I was still mad at him. I wanted to put my hand flat on it anyway, between his shoulders, and leave it there. I picked his forms up off the hood instead.
+It's my father's name. He had it painted on the first truck in 1987. I've put it on the back of every man I ever hired. I quit seeing it a long time ago. On Cal it went from one shoulder blade to the other. I was still mad at him. I wanted to put my hand on it anyway, between his shoulders, and leave it there. I picked his forms up off the hood instead.
 
 Vili pulled in next and looked at Cal in that shirt for a long time.
 

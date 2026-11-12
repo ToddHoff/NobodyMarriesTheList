@@ -80,7 +80,7 @@ She was quiet for a second. “Okay.”
 
 “I sat at the end of a table with eight people for six hours. I opened your thread twenty-two times. Our general counsel noticed.”
 
-She laughed, low, with her mouth close to the phone. I was standing at my counter in the dark. I shut my eyes. I wanted her in my kitchen so much that I put my free hand flat on the stone.
+She laughed, low, with her mouth close to the phone. I was standing at my counter in the dark. I shut my eyes. I wanted her in my kitchen so much that I put my free hand on the stone.
 
 “Lot two at Skyline College,” she said. “Bring water. Night, Cal.”
 
@@ -194,9 +194,7 @@ Past the bridge the bay went on south into the haze. My mother's house was at th
 
 Jo had stopped on the gravel behind me. She was looking at the bay with her mouth a little open and her hands still in the pockets of my fleece.
 
-Owen was looking at her.
-
-Owen stood at the post with his hand flat on top of it.
+Owen was looking at her. He stood at the post with his hand on top of it.
 
 “In 1769 they walked here from San Diego,” he said. “It took almost four months. They were lost and sick and they didn't have any food. They were looking for Monterey.” He looked at me to make sure I had it. “They walked right past it. They didn't know what it looked like.”
 
@@ -392,13 +390,13 @@ At 9:00 on Friday morning Remy put it on my screen.
 
 *Relationship 12. Month four begins today. The last item in the plan is a gift. Prior large gifts: 11. Average value: $31,400. Options ready: 3. View?*
 
-I read it three times. I did not open the options. Fourteen days from today was August 21. I sat at my desk with my hands flat on it until 10:06.
+I read it three times. I did not open the options. Fourteen days from today was August 21. I sat at my desk with both hands on it until 10:06.
 
-At 10:06 I typed the name of her lender and her loan number. I had read them upside down on her table on July 18 and again on Sunday at her counter. Under them I typed the balance from her July statement, $518,395.69, and the rate.
+At 10:06 I typed the name of her lender and her loan number. I had read them upside down on her table on July 19 and again on Sunday at her counter. Under them I typed the balance from her July statement, $518,395.69, and the rate.
 
 *The lender accepts payments to a loan from anyone. It gives the payoff figure only to the borrower or someone she authorizes. Statement balance: $518,395.69. Interest at 7.000 percent: about $99.42 a day. A wire of $521,000.00 with the loan number in the reference exceeds the statement balance by $2,604.31. The lender applies it, refunds any excess to the borrower and mails her the release of the lien. Routed to J. Louie for processing. Approve?*
 
-She had mailed August's payment on July 18 with the nineteen hundred on top. I had watched her lick the envelope and make a face at the glue. With that in, she owed about five hundred and fifteen thousand five hundred dollars, and ninety-nine dollars a day on top of it. I was sending about forty-five hundred more than the payoff. The excess would go back to her by check, in her name.
+She had written August's check on July 19 with the nineteen hundred on top. I had watched her lick the envelope and make a face at the glue. With that in, she owed about five hundred and fifteen thousand five hundred dollars, and ninety-nine dollars a day on top of it. I was sending about forty-five hundred more than the payoff. The excess would go back to her by check, in her name.
 
 I approved it.
 
@@ -456,7 +454,7 @@ In June, in my mother's back yard, Owen asked me nine questions. Question six wa
 
 On Wednesday Owen told me she would go up Sweeney Ridge when the house was paid. She went up it anyway, for one evening, because he told her I wanted to see it. One evening was what Owen could get her. I could get her the rest of them.
 
-On July 18 at her table she told me she would have a party in her driveway when it was paid. She would not invite the bank. She would be fifty-five. Owen would be nineteen. She could have it in August. She would be forty-four. Owen would be nine.
+On July 19 at her table she told me she would have a party in her driveway when it was paid. She would not invite the bank. She would be fifty-five. Owen would be nineteen. She could have it in August. She would be forty-four. Owen would be nine.
 
 In 2012 I had paid off my mother's house from the back of a car, between two meetings. Janice sent the wire. For thirteen years after that my mother put six hundred and twelve dollars in a shoebox on the first of every month. I had counted them ten days before. She was stubborn. Jo was stubborn too. I knew Jo's payment to the cent. I had run it in my head at her table before she could show me the spreadsheet. I had told her I loved her, on a rock and across the hood of her truck. In 2012 I had wanted my mother to stop making a payment. I wanted Jo to have her party in August.
 

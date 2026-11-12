@@ -8,7 +8,7 @@ On Wednesday morning at 7:50 I took Jo Silveira's name off Janice's list.
 
 It is a list in Remy of the people Janice writes to for me. There were forty-one names on it. Hers had gone on May 16. When I took it off, the list said forty.
 
-I had decided at 5:10, on the walk, while Pancake was at the fence post he inspects every morning. The night before, in the back of her truck, she had told me that anything I had to say before Saturday I was to type myself. I could not do that while her name was on a list for somebody else to write to.
+I had decided at 5:10, on the walk, while Pancake was at the fence post. The day before, in the back of her truck, she had told me that anything I had to say before Saturday I was to type myself. I could not do that while her name was on a list for somebody else to write to.
 
 Then I went and told Janice.
 
@@ -54,7 +54,7 @@ Abby stopped in the door at number eleven.
 
 “Is that a Remy thing?”
 
-“No. A nine-year-old told me to.”
+“A nine-year-old told me to.”
 
 “The mover's son.”
 
@@ -118,7 +118,7 @@ I had been looking forward to having it checked.
 
 “Bedroom,” she said, and went in.
 
-I have sat across from a great many people who were angry with me. I know what it does to a face. Hers was not doing it. She was being careful. She kept four feet between us all morning. Whenever the four feet closed, she found something on the other side of the room. Vili spent the morning in the doorway, laying runners he had already laid. I believe she asked him to.
+She was not angry with me. She was being careful. She kept four feet between us all morning. Whenever the four feet closed, she found something on the other side of the room. Vili spent the morning in the doorway, laying runners he had already laid. I believe she asked him to.
 
 On a job she puts people where she wants them with one word, “Runners” or “Bedroom.” If I had been what she was angry at, she would have sent me to the truck.
 

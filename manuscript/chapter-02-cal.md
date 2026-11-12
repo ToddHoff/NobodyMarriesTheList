@@ -4,7 +4,7 @@
 
 ~~2. Age 30 to 36~~
 
-I have turned my phone face down on a table once in my life. It was 8:45 on a Thursday night in May. I wanted another forty-five minutes of her.
+I have turned my phone face down on a table once in my life. It was 8:45 on a Thursday night in May. I wanted another forty-five minutes with her.
 
 The forty-five minutes is not rudeness. It is a test condition. Same bar, same table, same order, same length. By minute forty I know. At forty-five Remy sends the car and a nine o'clock that does not exist, which hurts nobody, because nobody is told.
 
@@ -40,7 +40,7 @@ I did not have an answer. Remy does not show its work unless you ask. I had not 
 
 I was forty-one. My daughter was eighteen. The bottom of the range was halfway between us, to within six months.
 
-She slid the card back with two lines on it, both crossed out. She was forty-four. She had gray coming in over her left ear that she had done nothing about and lines at the corners of her eyes from years of looking at things in full sun. On a billboard we take those out first. When she smiled, they went deeper. I looked at them more than at anything else in the bar. I had specified against all of it. Sitting there, I could not have told you what I had against it.
+She slid the card back with two lines on it, both crossed out. She was forty-four. She had gray coming in over her left ear that she had done nothing about and lines at the corners of her eyes from years of looking at things in full sun. On a billboard we take those out first. When she smiled, they went deeper. I looked at them more than at anything else in the bar. I had specified against all of it. Sitting there, I could not have told you why.
 
 My watch tapped my wrist. *Heart rate 104. No workout detected.*
 
@@ -102,7 +102,7 @@ It had done it twice. I could guess the number without it.
 
 “I don't take anything home from a job. Not a pencil.” She touched the one behind her ear. “This one's mine.”
 
-By then she had put a second twenty on the table. A third came later. I have a tab at that bar that my assistant settles by the quarter. Jo Silveira paid cash for every round and left the change every time.
+By then she had put a second twenty on the table. A third came later. Nobody brings me a check in that bar. Jo Silveira paid cash for every round and left the change every time.
 
 “What do the others do?” she said. “At minute forty-five.”
 
@@ -128,7 +128,7 @@ I waited for the rest of it. I had heard the rest at minute thirty-one.
 
 “You would have asked what she asked.”
 
-“Of course not.” She said it flat. “He was there first. You go stand where Pancake isn't.”
+“Of course not.” She said it flat. “He's family. I'm forty-five minutes.”
 
 The woman at minute thirty-one had told me she loved dogs. She had two. She wanted mine gone because he is old and he sheds.
 
@@ -160,7 +160,7 @@ She did not say anything kind. I was grateful. People say kind things to me and 
 
 “There is a dish.”
 
-“Every family has one.”
+“Every family fights over one.”
 
 “Why the dish and not the silver?”
 
@@ -170,7 +170,7 @@ She did not say anything kind. I was grateful. People say kind things to me and 
 
 “You'll want to pick that one up yourself.”
 
-I went through who I could send. My assistant would have a firm by nine the next morning. It would be a good one. It would pack a kitchen in an afternoon. I tried to think what I would tell it to keep. I had lived in that house for eighteen years and eaten out of that kitchen most nights of them. I could not name one dish.
+I went through who I could send. My assistant would have a firm by nine the next morning. It would be a good one. It would pack a kitchen in an afternoon. I tried to think what I would tell it to keep. I had lived in that house for eighteen years and eaten dinner in that kitchen most every night. I could not name one dish.
 
 I looked at the card. I squared it to the edge of the table. She watched me do it.
 
@@ -206,7 +206,7 @@ I opened my mouth. My daughter had spent four months drawing a portfolio.
 
 “I do not know.”
 
-“Ask her before she goes,” Jo said. “They go fast.”
+“Ask her before she goes,” Jo said. “I pack up a lot of mothers. Half the time nobody comes but me. They go fast.”
 
 She was leaving for San Luis Obispo in the middle of September. That was four months off. I had assumed that when the drawings were finished, somebody would show them to me.
 
@@ -278,7 +278,7 @@ The bar closed at eleven. I had not known that. I had never been in it past 8:45
 
 She stood up before I did. She had a six a.m. load in Pacifica, she said. By the time I found my jacket, the pencil was in her purse and she was halfway to the door. I did not want her to go. I noted it, which she would have counted.
 
-The truck was on Minna Street in a yellow zone, white, with a steel rack over the bed. The door said SILVEIRA MOVING & ESTATE. Under that: SOUTH SAN FRANCISCO SINCE 1987, a license number and a telephone number.
+The truck was on Minna Street in a yellow zone, a pickup with a steel rack over the bed. The door said SILVEIRA MOVING & ESTATE. Under that: SOUTH SAN FRANCISCO SINCE 1987, a license number and a telephone number.
 
 “That is your name,” I said.
 

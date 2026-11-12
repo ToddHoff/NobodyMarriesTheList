@@ -36,9 +36,9 @@ Janice took her glasses down and folded them. She does that when she is pleased 
 
 Abby has told Janice things first since she was twelve. Janice tells me what she decides I need to know. I have never asked her what she leaves out.
 
-At nine I sat at the end of a table with eight people who wanted to talk about the quarter. Nobody asked about the volcano. On the second slide I found I was tapping the table with one finger. It was the song. Owen had played it from somewhere over the ocean until the fog. *Pancake. Make no mistake.* Our general counsel was looking at my finger. I put my hand flat on the table and kept it there.
+At nine I sat at the end of a table with eight people who wanted to talk about the quarter. Nobody asked about the volcano. On the second slide I found I was tapping the table with one finger. It was the song. Owen had played it from somewhere over the ocean until the fog. *Pancake. Make no mistake.* Our general counsel was looking at my finger. I put my whole hand down on the table and kept it there.
 
-Somewhere in the revenue slides I was back in the water on Maui with my arms out, Owen telling me not to do anything. I had done it. I had lain on top of the Pacific Ocean for a minute and a half and done nothing at all. It held me up. I did not know where to put that in a board meeting. I kept my hand flat until the quarter was over.
+Somewhere in the revenue slides I was back in the water on Maui with my arms out, Owen telling me not to do anything. I had done it. I had lain on top of the Pacific Ocean for a minute and a half and done nothing at all. It held me up. I did not know where to put that in a meeting. I kept my hand down until the quarter was over.
 
 ***
 
@@ -92,7 +92,7 @@ Jo looked at the bed.
 
 “At my father's. Owen's showing him the volcano videos. My father's watched them six times. He still hasn't said what he thinks.”
 
-Her nose was peeling. It had been in the sun on Maui for two days. She had on the gray crew shirt and the boots, her hair tied back tight. On Tuesday night it had been loose in the wind at the rim. She had put her hand flat on my back and left it there. I felt it through the sweatshirt for three hours. Now she was on a job. On a job she talks in colors and directions. She looks at you for as long as a color takes. I wanted to put my mouth on the peeling place anyway.
+Her nose was peeling. It had been in the sun on Maui for two days. She had on the gray crew shirt and the boots, her hair tied back tight. On Tuesday night it had been loose in the wind at the rim. She had put her hand on my back and left it there. I felt it through the sweatshirt for three hours. Now she was on a job. On a job she talks in colors and directions. She looks at you for as long as a color takes. I wanted to put my mouth on the peeling place anyway.
 
 “Green or blue?” she said, in the door of my old room.
 
@@ -170,7 +170,7 @@ I could have gone to the living room. I told myself there was no chair left in t
 
 “Six years of MILK.”
 
-It was the third time I had heard that sentence in a week. Her sister had said the other two.
+It was the second time I had heard that sentence in a week. Her sister had said the other one.
 
 “Did you ride it?” Denise said. “The blimp.”
 
@@ -290,7 +290,7 @@ She looked at me for some time. She has her sister's eyes. Hers move more.
 
 ***
 
-At 11:48 that morning I sat in my car across the street with the engine off and called Dawn Pruitt. She had called me twice since May. I had not called her. For eight years Janice had made my appointments with her.
+At 11:48 that morning I sat in my car across the street with the engine off and called Dawn Pruitt. She had called me twice since May. I had called her machine twice, late at night. I had never called when she could pick up. For eight years Janice had made my appointments with her.
 
 She picked up on the second ring. When a door closed behind her, the street noise went away.
 
@@ -494,7 +494,7 @@ When Abby took the kite boy down, the wire on the frame beside it let go. It was
 
 “Don't move,” Jo said to Abby. Abby was in sandals.
 
-Pancake came down the hall at the sound, the way he comes to anything that falls. Jo put her flat hand out at him.
+Pancake came down the hall at the sound, the way he comes to anything that falls. Jo held her palm out at him.
 
 “Stay.”
 
@@ -528,7 +528,7 @@ She looked at the pencil. Then she looked at her own nine, in pen, half an inch 
 
 “You measured him,” she said.
 
-“Jo put her hand flat on his head. I wrote it.”
+“Jo put her hand on his head. I wrote it.”
 
 She hung the robe back on its hook over all of it.
 

@@ -110,7 +110,7 @@ She came out to the atrium. Vili was in the front doorway.
 
 “It is empty.”
 
-“You said that in May.” She turned the clipboard around so I could see it. In her capitals, under the date: *GARAGE. LOCKED. OWNER SAYS EMPTY.* “Everybody forgets the garage. I don't give the keys back on a room I haven't been in.”
+“You said that in May. You wouldn't bet on it then either.” She turned the clipboard around so I could see it. In her capitals, under the date: *GARAGE. LOCKED. OWNER SAYS EMPTY.* “Everybody forgets the garage. I don't give the keys back on a room I haven't been in.”
 
 “I do not have a key to it.”
 
@@ -140,7 +140,7 @@ The garage smelled like concrete and lemon furniture polish. The water heater st
 
 Against the back wall, under three moving pads, there was something about five feet long and three and a half feet high.
 
-Jo came in and stood beside me. She put her hand flat on the top pad and pressed. Something under it did not give.
+Jo came in and stood beside me. She put her hand on the top pad and pressed. Something under it did not give.
 
 “Those aren't mine,” she said. “Somebody who knew what they were doing put this here. Look how it's set.” She put her hand on the side nearest the wall. “Face to the wall. You do that so if anything hits it, it hits the back.”
 
@@ -210,7 +210,7 @@ It had not been on her estimate. On any other job she would have had the paper o
 
 Vili looked at her. He had been on the low end of everything I had watched him carry for three months. He looked at me before he went and got the dolly.
 
-They padded it. I helped where she pointed. They tipped it onto the dolly on its feet, slowly, Vili's hands under one end and Manny's under the other and Jo's flat against the face of it, guiding. When it was on, Jo ran the two straps around it and cinched them. She did not look at her hands. Then she and Manny rolled it across the concrete, one at each end, with a hand flat on the top.
+They padded it. I helped where she pointed. They tipped it onto the dolly on its feet, slowly, Vili's hands under one end and Manny's under the other and Jo's flat against the face of it, guiding. When it was on, Jo ran the two straps around it and cinched them. She did not look at her hands. Then she and Manny rolled it across the concrete, one at each end, with a hand on the top.
 
 At the foot of the ramp she stopped it.
 
@@ -232,7 +232,7 @@ Nobody moved on two.
 
 “Three.”
 
-It came up off the driveway and onto the ramp. The weight came down the ramp into my hands and my thighs. I took it. It was more than I thought. I held it. Vili held it. Above us Jo and Manny had their hands flat on the top of it and were walking backward.
+It came up off the driveway and onto the ramp. The weight came down the ramp into my hands and my thighs. I took it. It was more than I thought. I held it. Vili held it. Above us Jo and Manny had their hands on the top of it and were walking backward.
 
 “Small steps,” I said. “Step.”
 
@@ -410,7 +410,7 @@ I thought of line seven. *Comfortable being looked after.*
 
 “Who took them back?”
 
-“Me. I washed them and dried them and walked them back. Every one.” She put her hand flat on the paneling beside her. “A man from the parish paid my dad's truck note for three months. Everybody at church knew who.”
+“Me. I washed them and dried them and walked them back. Every one.” She put her hand on the paneling beside her. “A man from the parish paid my dad's truck note for three months. Everybody at church knew who.”
 
 “I wrote down every name,” Jo said. “Off the bottoms of the dishes. On a piece of paper. I was eight. I've still got it.”
 
@@ -646,7 +646,7 @@ Jo waited.
 
 “And she let you call him Remy.”
 
-“She called him in from the yard every night for seven years. She never once asked me why.” I looked at my hands. “He died when I was twelve. I have had a dog ever since.”
+“She called him in from the yard every night for seven years. She never asked me why.” I looked at my hands. “He died when I was twelve. I have had a dog ever since.”
 
 Jo looked at the back of the card. There were nine lines on it now, in her capitals, struck. Twelve was not one of them.
 
