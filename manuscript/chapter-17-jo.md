@@ -46,7 +46,7 @@ His house is at the end of a gravel drive in Woodside, under oaks. His gate stoo
 
 I parked my pickup on his gravel and looked at the house the way I look at any house. Three trucks, if they had anything. There was nothing on the front step. No shoes, no hose, no dog toy, no dog poop on the lawn. Somebody picked up after a man who didn't leave anything out.
 
-The house was long and low, gray wood and a lot of glass, set into the hill so you couldn't see all of it from one spot. Down the hillside a pool glittered in the sun, beside a gazebo with its cushions still in the plastic.
+The house was long and low, gray wood and a lot of glass, set into the hill so you couldn't see it all from one spot. Down the hillside a pool glittered in the sun, beside a gazebo with its cushions still in the plastic.
 
 I'd driven up his drive looking for the piano. A house that size always has one.
 
@@ -406,7 +406,7 @@ There was light under it. I could hear Pancake's tags on the floor. I could hear
 
 I had a sentence ready. I'd had it since midnight. It started with *I know what I said.*
 
-The rest of it was short. I'd fixed it and fixed it until there was nothing in it a man could argue with. He wasn't going to argue. He'd open the door and say yes. Then I'd be a woman who asked for the guest room in writing and came down the hall at two in the morning to take it back.
+The rest was short. I'd fixed it and fixed it until there was nothing in it a man could argue with. He wasn't going to argue. He'd open the door and say yes. Then I'd be a woman who asked for the guest room in writing and came down the hall at two in the morning to take it back.
 
 Knocking is asking. I stood there with my hand up and couldn't do it.
 

@@ -12,7 +12,7 @@
 
 She picked me up in Woodside at 4:47 that afternoon, with three and a half hours of light left. She had changed her shirt since the garage. Her hair was down. Pancake watched us go from the front window. The park does not allow dogs.
 
-At the top of 84, where it crosses Skyline, she pulled in at Alice's Restaurant. It is a low wooden building at a crossroads in the redwoods. It was built early in the 1900s as a general store for loggers. Thirteen motorcycles were backed in along the front of it at one angle, their engines ticking as they cooled. The men who rode them stood around in leather with gray in their beards, holding coffee and pointing at each other's machines. There was an old silver Porsche with a man asleep in the passenger seat. Over the redwoods I could smell the grill.
+At the top of 84, where it crosses Skyline, she pulled in at Alice's Restaurant. It is a low wooden building at a crossroads in the redwoods. It was built early in the 1900s as a general store for loggers. Thirteen motorcycles were backed in along the front at one angle, their engines ticking as they cooled. The men who rode them stood around in leather with gray in their beards, holding coffee and pointing at each other's machines. There was an old silver Porsche with a man asleep in the passenger seat. Over the redwoods I could smell the grill.
 
 “Dinner,” Jo said. “Unless your robot packed you one.”
 
@@ -40,11 +40,11 @@ She came back with a paper bag and set it on my knees. The bag was hot through m
 
 “A waterfall.”
 
-I put it under the half a linguiça sandwich I had owed her since May 16. At the winery she had carried her own bag. At SFO she had carried hers and Owen's and let me carry Owen. Three hours before, across her tailgate, she had made me put my name in every place hers was. *Mutual. Or nothing.* Her own books ran one way.
+I put it under the half a linguiça sandwich I had owed her since May 16. At the winery she had carried her own bag. At SFO she had carried hers and Owen's and let me carry Owen. Three hours before, across her tailgate, she had made me put my name in every place hers was. *Mutual. Or nothing.* Her own books ran only one way.
 
 We ate on her tailgate in the lot, with the bikes ticking beside us. The Hog came apart in my hands. Jo ate the Harley bent over the paper so whatever fell would land in it. When she was done she wiped her fingers on my jeans.
 
-Skyline runs south along the top of the ridge, half an hour of it to the park. For the first miles the redwoods came down to the shoulder and met over the road. The light under them was green. They gave out all at once onto open hilltop, the grass gone gold in the sun, a few oaks standing in it. To the west the hills went down fold after fold to the Pacific. The ocean was silver in the late sun, with the fog lying offshore in a long white bank. Through the gaps on the other side was the valley where I made my money, flat and gray under its haze. The road went back into the trees and out again the whole way south. Jo drove with her window down and her elbow out. Every time the trees gave out, she looked west.
+Skyline runs south along the top of the ridge, half an hour to the park. For the first miles the redwoods came down to the shoulder and met over the road. The light under them was green. They gave out all at once onto open hilltop, the grass gone gold in the sun, a few oaks standing in it. To the west the hills went down fold after fold to the Pacific. The ocean was silver in the late sun, with the fog lying offshore in a long white bank. Through the gaps on the other side was the valley where I made my money, flat and gray under its haze. The road went back into the trees and out again the whole way south. Jo drove with her window down and her elbow out. Every time the trees gave out, she looked west.
 
 At the entrance to the park a sign said the gate locks at sunset. Jo read it, drove past it and parked on the shoulder with two wheels in the dirt.
 
@@ -58,9 +58,9 @@ Page one said neither of us would tell anyone about the other's health, money, h
 
 I had approved the other one in a car.
 
-On Wednesday at 6:24 in the morning, three minutes after she told me *I sign it* and hung up, Remy had put a second item on my screen. *Confidentiality agreement for Jo Silveira, prepared from your three prior agreements. Approve?* I was still hearing her say it. I said approve. It was one of three hundred and six things I approved that day. I did not open it.
+Remy had put it on my screen on Wednesday at 6:24. I was still hearing her say *I sign it*. I said approve. It was one of three hundred and six things I approved that day. I did not open it.
 
-At 2:05 this afternoon, after her truck went down the ramp, I opened it and read all fourteen pages. When my two were done I asked Remy for the three it was made from and read those. I had approved every page of them too. I wrote three letters on my own paper, one to each woman who had signed one, Ms. Holcomb first. Their addresses were in the notice lines. Each letter said she was released from every term and owed me nothing under it. I signed them and put the stamps on myself. I mailed them on the way to San Carlos.
+This afternoon I read it. Then I wrote three letters on my own paper, one to each woman who had signed one before her, Ms. Holcomb first. Each said she was released. I mailed them myself.
 
 I had not told Jo about the letters. They were owed to three other people.
 
@@ -124,7 +124,7 @@ There was one copy. She folded it in thirds and put it in her glove box, on top 
 
 The shoes were in a bag on her back seat with a crash pad, a chalk bag and two headlamps.
 
-I had bought them myself at REI in San Carlos at 4:24. At 2:12 I had sent her one line. *What size shoe do you wear?* She wrote back *7.5. Why.* My own climbing shoes were in a bin in my garage, the pair I had bought in 2008. The rubber had gone hard. I bought two pairs. At the register I asked the man to leave the receipt in her box.
+I had bought the shoes myself at REI in San Carlos at 4:24. The pad, the chalk bag and the headlamps were mine, out of a bin in my garage. At 2:12 I had sent her one line. *What size shoe do you wear?* She wrote back *7.5. Why.* My own climbing shoes were in the same bin, the pair I had bought in 2008. The rubber had gone hard. I bought two pairs. At the register I asked the man to leave the receipt in her box.
 
 She opened the box on the tailgate and found the receipt under the tissue. She got her wallet out of the cab and counted the number onto the tailgate, to the cent, in bills and change. I had known she would want to pay for her own shoes.
 
@@ -182,19 +182,19 @@ She reached the top of the wall, looked over it, and came back down the same way
 
 “That is the first one.”
 
-She did the second one. Then she started the third, which had taken me four tries. At the fourth move her right foot came out of the pocket. She did not call it. She came off the wall backward with her hands still open.
+She did the second one. Then she started the third, which had taken me four tries. At the fourth move her right foot came out of the pocket. She came off the wall backward with her hands still open.
 
 My hands were where I had read they should be. They took her under the ribs, thumbs in. I turned her toward the pad and kept her upright. She landed on her feet with my hands still on her. Her ribs went in and out under my fingers.
 
 For about a second she leaned back into them. Then she stepped off the pad.
 
-“Your thumbs were in,” she said.
+“You had me,” she said.
 
-She put her right foot back in the pocket, pressed it, and went up. She got it on her third. I did not try it after her.
+She put her right foot back in the pocket, pressed it, and went up. She got it on her third.
 
 ***
 
-The falls I had promised her were a dark streak down a rock face, seventy-five feet of it, with nothing coming over the top.
+The falls I had promised her were a dark streak seventy-five feet down a rock face, with nothing coming over the top.
 
 We looked at it from the platform at the end of the falls trail. A little green grew at the bottom where the water would have been. The rest of the canyon was dry grass and brush going gold. Below the platform the canyon went down and away for miles, one ridge folded into the next.
 
@@ -210,11 +210,11 @@ She laughed. She put her hand over her mouth and laughed into it.
 
 She stood at the rail with the pad on her back and looked at the dry streak a while longer. I looked at her. A strand of her hair was stuck to the chalk on her cheek, where she had pushed it back with her hand. I took it off with one finger. She let me.
 
-Goat Rock is a hundred feet of sandstone at the end of the ridge, a mile from the road. We got there at 7:58, twenty minutes before the sun went down. Jo had been watching the light since the falls. Climbers rope up on the front of it. From the back there is a way to the top with hands and feet.
+Goat Rock is a hundred feet of sandstone at the end of the ridge, a mile from the road. We got there at 7:58, twenty minutes before the sun went down. Jo had been watching the light since the falls. Climbers rope up on the front. From the back there is a way to the top with hands and feet.
 
 She went first. I had planned to go first. She was at the top before I had decided where to put my second foot.
 
-At the top it was still warm. The sandstone had been in the sun all afternoon and gave the heat back through my jeans. The whole San Lorenzo Valley was below us, ridge after ridge of redwoods going down toward the sea, black green in the folds and gold on the open slopes where the grass had dried. To the south the long ridge of Ben Lomond Mountain blocked most of the ocean. Past the end of it Monterey Bay was clear, flat and pale, with Santa Cruz along the near edge. Farther out the fog lay on the ocean in a gray bank, low, under us. Two turkey vultures came along the face of the rock below our feet, rocking side to side, close enough that I could see their red heads. There was no sound but the wind in the dry grass.
+At the top it was still warm. The sandstone had been in the sun all afternoon and gave the heat back through my jeans. The whole San Lorenzo Valley was below us, ridge after ridge of redwoods going down toward the sea, black green in the folds and gold on the open slopes where the grass had dried. To the south the long ridge of Ben Lomond Mountain blocked most of the ocean. Past its end Monterey Bay was clear, flat and pale, with Santa Cruz along the near edge. Farther out the fog lay on the ocean in a gray bank, low, under us. Two turkey vultures came along the face of the rock below our feet, rocking side to side, close enough that I could see their red heads. There was no sound but the wind in the dry grass.
 
 Jo stood at the edge with her hands on her hips. The wind put her shirt flat against her back. I wanted my hand there.
 
@@ -264,7 +264,7 @@ The sun went down behind the ridges to the west at 8:18. The sandstone under us 
 
 I have a word for most things. Since May I had been trying to find the one for this and file it. I had tried *test condition*, and *anomaly*, and *the evening I did not want to end*. None of them held. At 12:31 that morning I had sat down at her table. I had read three hundred and twelve reviews to find nine people. I would have read three thousand.
 
-I had nothing written down. I bring a card to everything that matters and run what is on it until I know where each line will land. Everything I have said that mattered since 2009 I said first to Janice, or to a room, or to the mirror in a hotel bathroom. The only card I had on that rock was in my shirt pocket. It was hers. Seven of my lines were struck through on the back of it in her pencil.
+I had nothing written down. I bring a card to everything that matters and run what is on it until I know where each line will land. Everything I have said that mattered since 2009 I said first to Janice, or to a room, or to the mirror in a hotel bathroom. The only card I had on that rock was in my shirt pocket. It was hers. Seven of my lines were struck through on the back in her pencil.
 
 I could not run this one. She might laugh into her hand, as she had at the falls. She might say nothing at all, get up and drive me home down Skyline. I would sit beside her for forty minutes with it said. In May Remy had told me how long my relationships last. It was four point one months. It was twelve weeks to the day since the Oak. My pulse was in my neck. I put my hand on the rock beside her. It was still warm.
 
@@ -288,7 +288,7 @@ The sun had been down four minutes. There was a mile of trail and about twenty-f
 
 “We should start down,” I said. I did not move.
 
-“Get up, Cal.”
+“Let's go, Cal.”
 
 ***
 

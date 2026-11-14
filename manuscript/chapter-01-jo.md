@@ -294,7 +294,7 @@ He ate it braced, like my son with anything green. He chewed it for a while.
 
 He pushed the glass across the table to me.
 
-I wondered how many women had sat in this chair across from six shrimp nobody ate. I hadn't been in it long enough to finish a beer. I'd already written on his card and fed him. Denise would want all of it by morning. I knew I wasn't going to give her any.
+I wondered how many women had sat in this chair across from six shrimp nobody ate. I hadn't been in it long enough to finish a beer. I'd already written on his card and fed him. Denise would want every word by morning. I knew I wasn't going to give her any.
 
 A woman from the bar was standing at his elbow with her phone held against her chest.
 

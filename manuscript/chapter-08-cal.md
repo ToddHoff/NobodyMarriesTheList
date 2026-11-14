@@ -58,7 +58,7 @@ She had not expected that. Neither had I. One corner of her mouth went up before
 
 I ate lunch in that room on every school day I spent in that building. I could not have told you whether it had a window.
 
-My mother had told Abby about that room. She had never told me. She handed me a tray across that counter five days a week. I looked at the tray. I never asked her what the day was like on her side of it.
+My mother had told Abby about that room. She had never told me. She handed me a tray across that counter five days a week. I looked at the tray. I never asked her what the day was like on her side of the counter.
 
 “I did not know that,” I said.
 
@@ -174,7 +174,7 @@ I am not corrected often, and never at dinner.
 
 “I know it is,” she said. “I'm telling you I can hear the difference. That's all.”
 
-Nobody had told me about the shoulders. At the Oak I had talked with her for three hours. The voice had dropped once in all that time, for a stranger. I did not know what I had sounded like for the rest of the night. I had not been listening. I would have liked a recording of it, so that I could find out what I had done and do it again.
+Nobody had told me about the shoulders. At the Oak I had talked with her for three hours. The voice had dropped once in all that time, for a stranger. I did not know what I had sounded like for the rest of the night. I had not been listening. I would have liked a recording, so that I could find out what I had done and do it again.
 
 She did not go back to her plate.
 
@@ -210,7 +210,7 @@ It was what I had told her about my mother, at the Oak. I heard how it sounded a
 
 “I've got things,” she said. “I bought them myself. What else have you got?”
 
-I went through what I had. It took some time. She had crossed off the top of it in two sentences.
+I went through what I had. It took some time. She had crossed off the top of the list in two sentences.
 
 “I will have to get back to you as well,” I said.
 

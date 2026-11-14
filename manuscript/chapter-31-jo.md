@@ -96,25 +96,13 @@ If it came from my phone, it came from me.
 
 “No,” I said. It came out the way I talk to my crew.
 
-His face shut. He didn't argue. He looked at the dots on his screen and didn't say anything.
+His face shut. He didn't argue. He looked at the dots on his screen.
 
 I sat down on the step next to my son and put my hand on his back.
 
 A man went by with a stroller. The sprinkler came on across the street. Owen's back went up and down under my hand. The screen went dark in his hand. He didn't touch it awake.
 
 It took eleven minutes.
-
-“Pancake's eleven,” he said.
-
-“I know.”
-
-“Golden retrievers live ten to twelve years. I looked it up.”
-
-“He's fine.”
-
-“You don't know that.”
-
-I didn't.
 
 He got up and went in and hung his backpack on its hook.
 
@@ -210,7 +198,7 @@ Everything he had before the wedding was his. So was everything he made after it
 
 It was the Millbrae wife's morning, written up by the other side. A woman who married that man would walk out with what she walked in with. I'd been planning on that since I was seven.
 
-Schedule A was his. Four pages. Recall Technologies, a number of shares with more commas in it than I wanted to read twice. A house in Woodside. A house on Maui. A trust holding a house on West Remington Drive in Sunnyvale. I'd emptied most of that one.
+Schedule A was his. Four pages. Recall Technologies, a number of shares with more commas in it than I wanted to read twice. A house in Woodside. A house on Maui. A company that owned restaurants and other properties. A trust holding a house on West Remington Drive in Sunnyvale. I'd emptied most of that one.
 
 Schedule B was one page. It said *Separate Property of* and my name, with one line under it, blank.
 
@@ -222,9 +210,9 @@ I took the pencil from behind my ear.
 
 “This won't come off.”
 
-I printed it on the line. *The house in San Bruno, and what I owe on it. Silveira Moving & Estate, three trucks, my father's name on the doors since 1987.* It didn't fit. It went off the end of the line and down the margin.
+I printed it on the line. *The house in San Bruno plus what I owe on it. Silveira Moving & Estate, three trucks.*
 
-I turned it around so she could read it. She read it twice. She didn't ask me about the middle of it.
+I turned it around so she could read it. She read it twice. She didn't ask me about the middle.
 
 I put the forty pages back in the envelope without signing anything and held it out to her across the desk.
 
@@ -242,13 +230,13 @@ She took it then. She held it against her chest.
 
 “Abby says your son ranks dogs,” she said. “Is he ranking Cal?”
 
-“He asked me yesterday how long golden retrievers live.”
+“Yesterday he wanted to send him a picture of a meteor. I said no.”
 
 She looked at me for a while.
 
 “Will you let it end?”
 
-“I'll talk to him,” I said. “Not tomorrow at seven.” I could have stopped there. “You drove up from Menlo Park for your kid. I respect that.”
+“You came into my yard with forty pages and a day you want it over by,” I said. “I'll talk to him when I've got something to say. It won't be tomorrow at seven.” I could have stopped there. “You drove up from Menlo Park for your kid. I respect that.”
 
 “He'll let you go now,” she said. “He always does.”
 
@@ -256,7 +244,7 @@ She looked at me for a while.
 
 That stopped her.
 
-“He was at his mother's house on Saturday before my truck was,” I said. “He'll be there this Saturday.”
+“He was at his mother's house on Saturday before my truck was,” I said. “I didn't say one word to him all day. He'll be there this Saturday.”
 
 “How do you know?”
 
@@ -286,9 +274,9 @@ Her office is over a map shop on Jackson Street. The window downstairs was old m
 
 On her mother's garage floor her hair had been brown and down her back. It was silver now and cut short. She was taller than she sounds on the phone.
 
-“Joanna.”
+“Joanna. I thought I might see you.”
 
-Two armchairs, a filing cabinet and a coffee maker on top of it. No desk. Nothing up there would take two men but the cabinet. On the shelf behind her chair was the dish from her mother's garage, with the lid on.
+Two armchairs and a filing cabinet with a coffee maker on top. No desk. Nothing up there would take two men but the cabinet. On the shelf behind her chair was the dish from her mother's garage, with the lid on.
 
 I sat down in the other chair.
 
@@ -300,7 +288,7 @@ She poured half a cup before she answered.
 
 “You told me I wasn't on it.”
 
-“You're not on eleven lines of it. Is that what you came up my stairs for?”
+“You're not on eleven of the lines. Is that what you came up my stairs for?”
 
 “If one person signs a prenup and the other one doesn't,” I said, “does it hold?”
 
@@ -312,7 +300,7 @@ She didn't answer right away.
 
 “Stephanie.” She said it like a case name. “Did he ask you to marry him?”
 
-“No.”
+“I haven't given him the chance.”
 
 “What is Stephanie doing with a prenup?”
 
@@ -370,31 +358,21 @@ She wrote it at the bottom of a page that already had lines on it. I didn't read
 
 She put the pen down. “You know how my marriage ended?”
 
-“No.”
+“You never said.”
 
-“The dishwasher.”
+“You never asked,” Dawn said. “He had an affair. Or two. Or three. For a divorce lawyer it was such a cliché I was almost embarrassed.”
 
 I waited.
 
-“Every night for a year we talked about the dishwasher. Whether he was loading it wrong. What I owed him was an apology. I was making a list, so I wouldn't leave anything out.” She laughed, not much. “I finished it in March. He moved out in February.”
+“The one I know about went on a year and a half. She'd been to our house. I poured her a drink in my own kitchen. Everybody he worked with knew before I did.” She turned the pen over. “I didn't throw him out. I'd done four hundred divorces. I knew what it cost. He ended it. He stayed two years after that and did everything right. I couldn't see any of it. He'd make me laugh at dinner. Then I'd remember, and I'd make him pay for the laugh.”
 
-“When I was practicing, I sent you some of my clients to move,” she said. “Wives, mostly. The week the papers were filed.”
+“I told myself I'd forgive him when I was done being angry,” she said. She laughed, not much. “I was done in March. He moved out in February.”
 
-“The one in Hillsborough with the bracelets. She wouldn't let my guys carry the shoebox.”
+“What he did was rotten, Joanna,” she said. “We started with an ideal marriage. The affair was still the only thing I could see. I can't tell you how to stop. I couldn't get past the resentment. Can you?”
 
-“That one,” Dawn said. “She was fine. Mad, but fine. California gives them half. I had one in Atherton. Thirty-one years. I asked her what she wanted out of it, and she asked me what he was offering.”
+“Why'd you check twelve?” I said.
 
-I didn't say anything.
-
-“I asked her again. She said she'd have to think about it.” She looked at the window a second. “She never did tell me. I don't think she knew anymore.”
-
-“The Millbrae wife got half,” I said. “Half went under a tarp in her sister's garage.”
-
-“What did she tell you she wanted?”
-
-“She put her hand on everything that was hers.”
-
-“That's what she had, Joanna. I asked what she wanted. I checked twelve because you tell me no before I've finished asking,” she said. “I had that down as the same thing.”
+“Because you would tell me no before I've finished asking,” she said. “I had that down as a woman who says what she wants.”
 
 *Only thing you ever asked me for, I had to sign it,* Kevin had said at his car in July.
 
@@ -412,15 +390,15 @@ My phone was on my knee. I didn't pick it up.
 
 If I called him, I didn't know which word would come out first. On the rock I'd had one in my mouth. In his office I'd had it again, behind all the rest, and shut my mouth on it.
 
-“Has he stopped calling you?” she said.
+“Has he stopped texting you?” she said.
 
 “No.”
 
 I said it before she'd finished asking. Then I heard it.
 
-I didn't have to open his thread. I knew what the last thing in it was, and whose.
+I didn't have to open his thread. I knew what the last thing in it was, and whose. It was his. I hadn't answered it.
 
-Dawn didn't say anything. She let me sit there with it, the way I'd sat in my truck for ten minutes in her mother's driveway while she cried in the garage.
+Dawn let me sit there with it, the way I'd sat in my truck for ten minutes in her mother's driveway while she cried in the garage.
 
 “Can I give you some advice?” she said.
 
@@ -448,7 +426,7 @@ I didn't say anything.
 
 “I've got a truck coming in,” I said.
 
-“That was love, Joanna. I just didn't see it.” She reached for the pot. “Go get your truck.”
+“That was love, Joanna. I couldn't see it through the affairs.” She reached for the pot. “Go get your truck.”
 
 She didn't get up. I let myself out. On the stairs I heard her pour.
 
@@ -484,13 +462,13 @@ I sat down on the edge of the dock next to his chair with my boots hanging over.
 
 I picked a pad off the stack and folded it in thirds.
 
-“After your mother,” he said, “I didn't talk to you till July.”
+“The winter my knee went,” he said, “Al Furtado paid the note on the truck. Three months.”
 
 “I know, Dad.”
 
-“That was too long.”
+“I paid him back by Labor Day. He didn't want it. I made him take it. He quit coming by the yard after that. I shouldn't have done it.”
 
-In seven years he'd never said one word about it. He didn't look at me when he said it.
+He'd never brought up that winter to me. He didn't look at me when he said it.
 
 My throat had gone tight. I looked at my boots.
 
@@ -520,7 +498,7 @@ By the time I'd done the dishes Owen was asleep, with his door open a foot.
 
 I sat at my counter with the light over the stove on and nothing else. The fleece was on the back of the chair. I put it on. It still smelled like Pancake and the cold at his gate. I wanted him at my counter so bad my stomach hurt.
 
-On the terrace at Ventana he'd turned his hand over under mine and held on, and looked at me, and waited. I passed him the bread, the way Kevin used to pass me the salt.
+On the terrace at Ventana he'd turned his hand palm up under mine and held on, and looked at me, and waited. I passed him the bread, the way Kevin used to pass me the salt.
 
 I took my phone into the bedroom. I didn't open his thread. I plugged it in on the nightstand face up and turned the ringer all the way up.
 

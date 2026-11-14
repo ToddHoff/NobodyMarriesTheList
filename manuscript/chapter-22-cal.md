@@ -2,7 +2,7 @@
 
 **Cal**
 
-I woke in my old bed with my feet past the end of it and Jo's hand on my back.
+I woke in my old bed with my feet past the end and Jo's hand on my back.
 
 The room had gone gray at the slider. I did not know what time it was. My watch was face down on the desk where I had put it. I did not reach for it. Pancake was standing in the doorway looking at me. He does not need a watch. When he stands in a doorway like that, it is after five.
 
@@ -194,7 +194,7 @@ She turned to Jo and held out her hand. “I'm Stephanie. Abby said you might. I
 
 X looked at Jo for two seconds. Then she looked past Jo, down the hall, where Abby had come out of the kitchen. She watched Abby's face while Abby saw Jo. That was what she had come down the hall for.
 
-Abby's face did what it had done on Saturday. She smiled with all of it.
+Abby's face did what it had done on Saturday. She smiled with her whole face.
 
 “You came,” she said to Jo.
 
@@ -388,7 +388,7 @@ The corner of her mouth went up. She looked at the trash cans until it came down
 
 “Okay,” she said.
 
-I listened for the exclamation point. There was not one.
+I listened for the exclamation point. It was a period.
 
 ***
 
@@ -404,7 +404,7 @@ She turned her head. She was quiet for a while.
 
 “We're movers,” she said.
 
-“Yes.”
+“Since 1987,” I said.
 
 “Why's it on there?”
 
@@ -418,7 +418,7 @@ At the San Bruno exit she said, “My father's taking his boat out tomorrow.”
 
 “Your father has a boat.”
 
-“A sloop. It's older than me. He takes it out under the bridge once a year.” She looked out her window. “His knees can't do the front of it anymore. He said to bring you.”
+“A sloop. It's older than me. He takes it out under the bridge once a year.” She looked out her window. “His knees can't do the front anymore. He said to bring you.”
 
 I knew how to have two men who race sailboats on a dock at Oyster Point by five in the morning. I had the call half made before she finished the sentence. It was her father's boat. If I asked anyone, I would ask him.
 

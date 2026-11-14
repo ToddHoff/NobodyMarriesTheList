@@ -84,7 +84,7 @@ I did a ranch house in San Carlos in April. The wife sat on her own stairs with 
 
 “My daughter's doing Christmas at his place. She says it has more room.”
 
-Half of it went to a one-bedroom by the freeway in Redwood City. The rest went into a storage unit in Belmont she'd pay for by the month, on a card she'd opened that week.
+Half the house went to a one-bedroom by the freeway in Redwood City. The rest went into a storage unit in Belmont she'd pay for by the month, on a card she'd opened that week.
 
 My house has one name on the deed. I bought Kevin out in 2023 to get it that way.
 
@@ -212,7 +212,7 @@ I put Vili and Manny on the bedrooms and did the hall myself.
 
 A hall closet in a house like that is fifty years deep. Coats in dry-cleaner plastic from cleaners that closed before Owen was born. Christmas lights wound on squares of cardboard, every string tagged in a man's square printing, GOOD or BAD. Two pairs of galoshes, one inside the other. Behind the coats on a hook, a gray cardigan with half a roll of mints in the pocket. You check every pocket. After the freezer, the coats are where the money is. I found two dollars and a ticket stub from Candlestick. I called them down the hall to Sharon. She said green without looking up.
 
-The whole time I was in that closet, I was at my counter in the dark, looking at a green bar.
+The whole time I was in that closet, I was at my counter in the dark, looking at *PAID IN FULL.*
 
 The pictures came last. There were eleven of them up the hall wall, every one dead level. I took them down one at a time, called each one, and wrapped it.
 
@@ -260,7 +260,7 @@ By the middle of the afternoon Vili had the last of the blue on the truck, Sharo
 
 I parked on level two of his garage with five minutes to spare, nose out, where I'd parked twice before. I took the clipboard and got on his elevator with pad fuzz all down the front of my shirt.
 
-His floor is sixty desks with nothing between them. I had to walk the length of it. Every head came up. I knew most of them had seen the picture from Abby's party. Somebody by the stairs turned her phone over on her desk when I went by.
+His floor is sixty desks with nothing between them. I had to walk the whole length. Every head came up. I knew most of them had seen the picture from Abby's party. Somebody by the stairs turned her phone over on her desk when I went by.
 
 Janice's door was open at the far end.
 
@@ -337,7 +337,7 @@ I didn't pick it up. I'd read line one before I knew what I was reading. After t
 
 Seven. *Comfortable being looked after.* In April I'd made up a bed in a one-bedroom by the freeway in Redwood City.
 
-Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked me if I really needed to work this much. I'd said my dad still does. On Friday afternoon he'd fixed it so I didn't.
+Eleven. A week ago, on top of Sweeney Ridge with his arms around me, he'd asked me if I really needed to work this much. I'd said my dad still has to work. On Friday afternoon he'd fixed it so I didn't.
 
 *I said I would fix it.* He'd said that to the water at Carmel, about his wife, with his thumb on the corner of the card.
 
@@ -395,7 +395,7 @@ My driveway, in December now, or February. Chairs off the truck. Denise with a s
 
 “My name was on that loan,” I said.
 
-I had more. Under all of it was the thing I hadn't said on the rock. His own assistant had just told me he always gives a present before the end.
+I had more. Under all that was the thing I hadn't said on the rock. His own assistant had just told me he always gives a present before the end.
 
 I didn't say any of it. I went back out through Janice's office and opened her door.
 

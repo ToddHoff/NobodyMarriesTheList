@@ -90,7 +90,7 @@ She takes it past the driveway and backs it in. I had watched her do it on three
 
 This time I could see her face in the side mirror, looking at me. Her hair was tied back and the pencil was behind her ear. She smiled.
 
-The truck kept coming. The back corner of it went into the front of my car with more noise than I would have predicted. The truck stopped all at once. In the mirror her head went back against the seat.
+The truck kept coming. The back corner went into the front of my car with more noise than I would have predicted. The truck stopped all at once. In the mirror her head went back against the seat.
 
 I went to the cab. I was there before I had decided to move. She had the door open and one boot on the step.
 
@@ -129,7 +129,7 @@ Nothing for you to do. Approve?
 
 I did not answer it. Jo was standing in front of me with her arms crossed. She was waiting for what I would say about the car.
 
-I could see the rest of it in how she stood. She was ready to be given a number and to write it down, braced to hear what it would cost her. She had hit my car because she was looking at me in her mirror and smiling. I was not going to put a number on that.
+I could see the rest in how she stood. She was ready to be given a number and to write it down, braced to hear what it would cost her. She had hit my car because she was looking at me in her mirror and smiling. I was not going to put a number on that.
 
 “Good morning,” I said.
 

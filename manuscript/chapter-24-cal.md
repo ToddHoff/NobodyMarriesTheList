@@ -16,7 +16,7 @@ Abby was coming on the fourteenth. I had decided to cook every card in the tin t
 
 Jo had saved the closet across from the hall bathroom for tonight.
 
-On Saturday she had worked around that door all morning. She packed the frames on one side of it and my room on the other and never put her hand on the knob. That afternoon, after Vili had gone, she told me that closet would wait for a weeknight with no crew.
+On Saturday she had worked around that door all morning. She packed the frames on one side of that door and my room on the other and never put her hand on the knob. That afternoon, after Vili had gone, she told me that closet would wait for a weeknight with no crew.
 
 “Tuesday,” she said. “After my last job.”
 
@@ -212,7 +212,9 @@ Jo had not written anything down yet. She was looking at the row of shoeboxes on
 
 “Six-twelve,” she said. “Was that her payment?”
 
-“Yes. I paid off the house in October 2012. She did not ask me to.”
+“I paid off the house in October 2012. She did not ask me to.”
+
+Jo looked at me. I knew the look. Abby has it, for when I have done the thing I do.
 
 I put the twenties back in November and closed the flap. My hands were not steady, so I squared the envelope to the edge of the shoebox until they were.
 
@@ -230,7 +232,7 @@ I signed the found sheet under her line. It was called, seen and signed for. It 
 
 ***
 
-At 10:31 we were lying on the slab in the hall with our heads together and our feet going in opposite directions. We had lain like that on Saturday at three o'clock. The slab was still cool. Her hair was against my ear. It smelled like pads and the cab of her truck. I turned my head until her hair was against my mouth. My face was hot. The fourteen shoeboxes were in a row along the wall, with the green tape on each lid. Pancake was asleep in the empty closet.
+At 10:31 we were lying on the slab in the hall with our heads together and our feet going in opposite directions. We had lain like that on Saturday at three o'clock. The slab was still cool. Her hair was against my ear. It smelled like pads and the cab of her truck. I turned my head until her hair was against my mouth. The fourteen shoeboxes were in a row along the wall, with the green tape on each lid. Pancake was asleep in the empty closet.
 
 Jo's phone buzzed on the floor between us. She picked it up and held it over her face.
 

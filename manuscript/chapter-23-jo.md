@@ -14,7 +14,7 @@ My phone was in the glove box. It stays there till the boat's in.
 
 I took the exit and went out past the biotech buildings, dark except for their lobbies, to the end of the point. There were three cars in the marina lot. One had its front fender pushed in and no headlight on that side. I'd put that there on June 6. Cal had driven up from Woodside in the dark on one headlight.
 
-At that hour the bay was black. The lights of the East Bay were strung along the far side of it from Oakland down past Hayward. To the south the runways at SFO were lit white and blue. The tide was going out. I could smell the mud. In the marina the masts stood up out of the dark, rocking together in the wind.
+At that hour the bay was black. The lights of the East Bay were strung along the far side from Oakland down past Hayward. To the south the runways at SFO were lit white and blue. The tide was going out. I could smell the mud. In the marina the masts stood up out of the dark, rocking together in the wind.
 
 He was standing at the top of the gangway with his hands in his jacket pockets, looking down at the docks. He turned around when my door shut.
 
@@ -148,7 +148,7 @@ I had the jib sheets. On this boat I'm crew. My father calls it. I pull when he 
 
 He steered and gave Cal the names of things. Port. Starboard. Sheet. Halyard. Cal said every one back once. Every question he asked my father was about the boat.
 
-We went under the Bay Bridge. I take loads to Oakland on its lower deck. The bottom of it is gray steel crossed every which way, a long way up, with rust in the seams. Then we were out the other side and the city was right there, lights on here and there in the towers, close enough that I could read the clock on the Ferry Building. It said four minutes after seven.
+We went under the Bay Bridge. I take loads to Oakland on its lower deck. The underside is gray steel crossed every which way, a long way up, with rust in the seams. Then we were out the other side and the city was right there, lights on here and there in the towers, close enough that I could read the clock on the Ferry Building. It said four minutes after seven.
 
 Cal had turned around on the high side to look at the city. The yellow sleeves had ridden up. His wrists were red with cold. I wanted to put my hands around them. I had the jib sheets.
 
@@ -156,7 +156,7 @@ Past the Ferry Building the wind went soft under the city. My father started the
 
 Past Alcatraz there was nothing in front of us but the bridge. It gets bigger the whole way in. Just when you think you're close, it gets bigger again. Cal had quit saying the names of things back.
 
-From the water you can see there's nothing under the road. I move weight for a living. That's what gets me every year. Two towers stand up out of the bay seven hundred and forty-six feet. The road hangs between them off two cables, four thousand two hundred feet of it. I looked that up the first year, when I was twelve. Under the overcast the orange was the only color anywhere. The water was gray, the sky was gray, the Marin hills were gray-brown. The bridge looked lit from inside.
+From the water you can see there's nothing under the road. I move weight for a living. That's what gets me every year. Two towers stand up out of the bay seven hundred and forty-six feet. The road hangs between them off two cables for four thousand two hundred feet. I looked that up the first year, when I was twelve. Under the overcast the orange was the only color anywhere. The water was gray, the sky was gray, the Marin hills were gray-brown. The bridge looked lit from inside.
 
 Slack water at the Golden Gate was a quarter to eight. My father had us under the middle of the bridge right on it, with the main up and the engine turning slow. He's done it that way every year since 1994.
 
@@ -222,13 +222,13 @@ My father hadn't asked me. Nobody new has been to that dinner since she died.
 
 ***
 
-I washed the boat down by myself. Fresh water goes on everything the bay touched. I coiled the lines clockwise, the way my father likes them, and hung each one on the cleat it belongs on. I bagged the jib. I put the cover on the main and wiped the salt off the compass with the hem of my shirt. All over the marina the halyards were slapping on the masts in the wind, a few hundred boats nobody had taken out on a Monday.
+I washed the boat down. Fresh water goes on everything the bay touched. I coiled the lines clockwise, the way my father likes them, and hung each one on the cleat it belongs on. I bagged the jib. I put the cover on the main and wiped the salt off the compass with the hem of my shirt. All over the marina the halyards were slapping on the masts in the wind, a few hundred boats nobody had taken out on a Monday.
 
 The corner of the cockpit by the hatch was dry. Nobody had sat in it all morning.
 
-I sat down in it.
+I sat down.
 
-The cushion was cold through my jeans. I've watched grown sons walk around their father's recliner for an hour rather than sit in it. I tell them it's a chair. It goes on the truck. Seven years I'd hosed this boat down around her corner.
+The cushion was cold through my jeans. I've watched grown sons walk around their father's recliner for an hour rather than sit in it. I tell them it's a chair. It goes on the truck. Seven years I'd washed this boat and left my mother's corner dry.
 
 She'd have been in it this morning, green, asking my father how much longer. She'd have asked Cal about his shoes before I could.
 

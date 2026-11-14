@@ -22,11 +22,15 @@ She went past me into the kitchen and looked at the card propped against the tin
 
 Abby looked at the corner for eleven seconds.
 
-“Who was the other one?” she said.
+“Does it go back to one on Tuesday?” she said.
 
-“Me. Until I left in 2003.”
+“She changed hers when I left, in 2003. I am not changing mine.”
 
 She set the card back against the tin, square to the edge.
+
+“I wonder if Jo likes chicken and rice,” she said.
+
+I hoped she would have a chance to find out.
 
 ***
 
@@ -145,7 +149,7 @@ I put this one on the table in the front hall. It looked small on there. I left 
 
 ***
 
-At 5:00 on Saturday morning Pancake and I walked down to the gate. There was no moon. He took six minutes at the post. I stood beside him in the dark and did not open her thread. I had not sent her anything since the pads. On Wednesday afternoon at 4:25 she had not answered me in my own office, in front of sixty desks. I had nothing to send her that was right. I do not send things that are not right.
+At 5:00 on Saturday morning Pancake and I walked down to the gate. There was no moon. He took six minutes at the post. I stood beside him in the dark and did not open her thread. I had not sent her anything since the pads. On Wednesday afternoon at 4:25 she had not answered me in my own office, in front of sixty desks. I had nothing to send her that was right.
 
 On the way back he stopped at the bottom of the steps and looked up them. I carried him up the last three. He put his chin on my shoulder.
 
@@ -225,7 +229,7 @@ He set the screwdriver under the head of the bottom pin and tapped it up. It did
 
 In June I had put green on this door. This was the ninth Saturday of ten.
 
-They walked the door out of its frame and stood it against the hall wall. My mother's robe swung on the hook on the back of it. Above everybody's head was the strip of green tape I had torn in June.
+They walked the door out of its frame and stood it against the hall wall. My mother's robe swung on the hook on the back. Above everybody's head was the strip of green tape I had torn in June.
 
 Jo put her hand in the robe's left pocket and took out the tissue. She put it back. She put her hand in the right pocket and took out the pen, my mother's blue ballpoint. She looked at it. She put it back in the pocket.
 
@@ -275,7 +279,7 @@ Vili looked at the pads. Then he looked at me for a while, the way he had looked
 
 “Tell her yourself,” he said. “Seven next Saturday.”
 
-He was right. I had asked the man she pays to carry one more thing for me. Next Saturday was the last one. He went out to the truck.
+He was right. Next Saturday was the last one.
 
 ***
 
@@ -321,7 +325,7 @@ She looked at it a while longer. Then she took the pen out of my hand and put it
 
 “It smells good in there,” she said, and went into the kitchen.
 
-The pot roast came out at 7:30. It fell apart when I put the fork in it. Abby had two plates. She did not say anything about it. She took the card out of the tin and turned it over. On the back of it, in her small square printing, she wrote *carrots at 2 hrs, not at start* and put it back in its place.
+The pot roast came out at 7:30. It fell apart when I put the fork in it. Abby had two plates. She did not say anything about it. She took the card out of the tin and turned it over. On the back, in her small square printing, she wrote *carrots at 2 hrs, not at start* and put it back in its place.
 
 ***
 
@@ -466,7 +470,7 @@ She answered on the fourth ring. I heard a coffee maker finishing.
 
 “It's after eleven, Cal.”
 
-“Yes. Are you awake?”
+“Are you awake?”
 
 “I'm pouring. Go ahead.”
 
@@ -494,7 +498,7 @@ When I was finished she was quiet for long enough that I said her name.
 
 “I know,” Dawn said.
 
-I looked at the door across the hall from me. It stood against my wall with its pads folded at the foot of it and the robe hanging on the back. Jo had sent it here without a word to me.
+I looked at the door across the hall from me. It stood against my wall with its pads folded at its foot and the robe hanging on the back. Jo had sent it here without a word to me.
 
 “Remy made me an apology tonight,” I said. “In my voice. It was fifty-two seconds. It was very good.”
 
@@ -504,7 +508,7 @@ I looked at the door across the hall from me. It stood against my wall with its 
 
 “Why?”
 
-“It knew where to stop.”
+“I realized I did not mean it.”
 
 Dawn said nothing for a while. I heard her breathe out through her nose.
 
@@ -526,7 +530,7 @@ She meant hers. I gave her all eleven.
 
 “So you know what nothing looks like. Is this the same nothing?”
 
-I took my time with it. She waited. She did divorces for fifteen years. She lets a witness take as long as he needs.
+I took my time with it. She waited. She lets a witness take as long as he needs.
 
 Since Wednesday I had opened Jo's thread twenty-six times. A week ago Friday I had typed *May I* to her and deleted it. Tonight I had sent nothing.
 
@@ -542,11 +546,11 @@ Since Wednesday I had opened Jo's thread twenty-six times. A week ago Friday I h
 
 “Why haven't you sent her anything?”
 
-“She would have to answer it.”
+“Anything I sent her now would be for me.”
 
 Dawn did not say anything to that. I heard the cup go down.
 
-“Is she still on your mother's house?” she said.
+“Is she still clearing your mother's house?” she said.
 
 “Yes. One more Saturday. The twenty-second.”
 
@@ -556,7 +560,7 @@ I had the answer before she finished. In May I had brought three lunches. In Jul
 
 “Nothing,” I said.
 
-“All right.”
+“Good.”
 
 She let it sit. So did I.
 
@@ -654,7 +658,7 @@ The hall was quiet. Pancake had lifted his head at her voice. He kept it up, wit
 
 Remy had not been wrong. Every word in the summary was hers. She had asked me to call when I had a minute. She had said it was not urgent. A summary leaves out whatever does not change what the person reading it will do. I built it to do that. It had left out *You, Calvin. Not Janice.*
 
-I thought of the shoebox on my desk. *Calvin, house.* She had not been paying off a house. She had been waiting for me to come and ask her why. Every first of the month for thirteen years she had written my name on the front of it, in case I did.
+I thought of the shoebox on my desk. *Calvin, house.* She had not been paying off a house. She had been waiting for me to come and ask her why. Every first of the month for thirteen years she had written my name on the front, in case I did.
 
 I had a minute on the ninth. She died on the eighth.
 

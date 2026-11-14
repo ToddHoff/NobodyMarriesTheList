@@ -4,15 +4,9 @@
 
 On Monday it had been four days since I told her I loved her. I opened her thread nineteen times that morning.
 
-The first time was at 5:04 in the morning, at the fence post by my gate. Every morning at five Pancake and I walk down my drive to the gate and back. At the gate he inspects the bottom of the same post. He takes his time. In eleven years I have not found out what he is checking for. I have run it. Deer cross at that post at night, so for the first year I had deer. Mountain lions come through Woodside. One summer I moved a mountain lion to the top. For two years the leading candidate has been a white standard poodle from three drives down, who is walked past my gate at six. Pancake is at the post an hour before she is. I have not decided what that says about him. I have not put my nose to the post.
+The first time was at 5:04 in the morning, at the fence post by my gate. Pancake had been stiff in the back legs since Saturday, when he ran the waves at Carmel for an hour. He stood with his nose to the post and his tail going slowly. I stood beside him and read her thread by the light of my phone. The last thing in it was what I had sent on Friday night. *Understood. We will be at the gate at 5:55.* Since then we had not been apart long enough to need to write.
 
-On Saturday he had run the waves at Carmel for an hour with a spotted dog and a little white one. Since then he had been stiff in the back legs. He stood with his nose to the post and his tail going slowly. I stood beside him and read her thread by the light of my phone.
-
-The last thing in it was what I had sent on Friday night. *Understood. We will be at the gate at 5:55.* Since then we had not been apart long enough to need to write.
-
-It was clear and cool. The moon was over the oaks to the south, most of it, bright enough to put the post's shadow on the gravel. The air smelled of dry grass and the bay trees. Two deer stood in the field across the road and watched us.
-
-On the rock she had told me to say it again when my pulse was normal. At her hood my pulse had been normal for half a mile. When I said it again, she kissed me. At Ventana she put her hand on mine on the terrace in front of everybody. I turned mine over and waited. She passed me the bread. On Sunday morning on the deck I had it ready twice, over my coffee. Both times I drank the coffee.
+On the rock she had told me to say it again when my pulse was normal. At her hood my pulse had been normal for half a mile. When I said it again, she kissed me. On Sunday morning on the deck I had it ready twice, over my coffee.
 
 She had told me when to say it. I had said it when she told me to. What came after that, she had not said. I had nothing to work from.
 
@@ -30,11 +24,11 @@ Janice came in at 8:30 with a folder.
 
 She looked at me over the folder.
 
-“One toothbrush?”
+“Nothing for her?”
 
 “She had a shirt behind her seat.”
 
-Janice put the folder on my desk. “Nine o'clock,” she said, and went.
+Janice put the folder on my desk. “You have a nine o'clock,” she said, and went.
 
 At 11:52 Remy put a line on my screen.
 
@@ -42,7 +36,7 @@ At 11:52 Remy put a line on my screen.
 
 I typed *I will decide on Friday.*
 
-On Thursday night on 84 it had told me how the other eleven went. Each of them had ended within fourteen days of a large gift. I counted fourteen days from Friday on the edge of my desk with one finger. It came to August 21. Abby moves into her dorm on the eighteenth. The last Saturday at my mother's house is the twenty-second. In May I had told Jo I wanted it empty before Abby left. I had the wrong month.
+On Thursday night on 84 it had told me how the other eleven went. Each of them had ended within fourteen days of a large gift. I counted fourteen days from Friday on the edge of my desk with one finger. It came to August 21. Abby moves into her dorm on the eighteenth. The last Saturday at my mother's house is the twenty-second.
 
 I opened her thread. It said what it had said at 5:04.
 
@@ -104,7 +98,7 @@ I held the plane for Tuesday anyway, and a suite. It would cost nothing unless w
 
 ***
 
-At 6:52 on Wednesday evening I parked in Lot 2 at Skyline College, in the corner the park keeps for people walking up to the ridge. The college sits on the hill above San Bruno. From the lot I could see the roofs of San Bruno going down the hill toward the airport. Behind the buildings the hill kept going up into brush. Over the top of it the fog was coming, white against the blue, so slowly I had to look away and back to see it move.
+At 6:52 on Wednesday evening I parked in Lot 2 at Skyline College, in the corner the park keeps for people walking up to the ridge. The college sits on the hill above San Bruno. From the lot I could see the roofs of San Bruno going down the hill toward the airport. Behind the buildings the hill kept going up into brush. Over the top the fog was coming, white against the blue, so slowly I had to look away and back to see it move.
 
 Her pickup came in at 7:04. Jo got out in my fleece.
 
@@ -136,13 +130,7 @@ The trail went up a fire road around a hill of coastal scrub, gray-green and wai
 
 I did not know what that meant. She went up ahead of me with her hands in the pockets of my fleece.
 
-At three quarters of a mile we passed old concrete foundations in the brush, with grass coming up through the cracks. Owen left the trail to walk across them.
-
-“Owen,” Jo said. “Poison oak.”
-
-There was a bush of it at the edge of the concrete, leaves in threes, going red at the edges. I had walked past it without seeing it. Owen came back to the trail the long way around it.
-
-Past the foundations the trail dropped into a ravine so steep that she went down it sideways in her boots, one foot set before she moved the other, the way she takes a loaded ramp. She climbed out the other side without stopping. I came up behind her. The whole climb out I watched her hips go up in front of me in my fleece. My watch tapped against my wrist. I let it.
+Farther up the trail dropped into a ravine so steep that she went down it sideways in her boots, one foot set before she moved the other, the way she takes a loaded ramp. She climbed out the other side without stopping. I came up behind her. The whole climb out I watched her hips go up in front of me in my fleece. My watch tapped against my wrist. I let it.
 
 Owen walked ahead of both of us and said nothing for a mile and a half.
 
@@ -168,21 +156,23 @@ He looked at me to see whether I meant it. I did. He went and read the paint on 
 
 The last half mile was a paved road along the ridge, past a water tank, and then a few hundred feet of gravel. Owen dropped back on the road and walked beside me. Jo was twenty yards ahead with her hands in the pockets of my fleece.
 
-“She's never been up here,” Owen said. “I asked her in June. She said she'd come when the house is paid.”
+“You sat with me at the volcano,” Owen said.
 
 He said it to the road.
 
-“So I told her you wanted to see where they found the bay. Then I got Remy to tell me all of it, so it'd be a real thing.”
+“I did not do anything,” I said. “Nobody could make it go.”
 
-“I did not say I wanted to see it.”
+“You came, though.” He walked a few steps. “I don't have a volcano. This is where they found the bay. I got Remy to tell me all of it, so it'd be right.”
 
-“You came, though.”
+“Thank you,” I said.
+
+“She's never been up here,” Owen said. “I asked her in June. She said she'd come when the house is paid. She's here now, so it counts.”
 
 The wind hit us at the water tank. It came over the ridge from the ocean, steady, cold enough to make my eyes run, with the fog in it. I could feel the wet on my face.
 
-At the top there was a granite post with the names of the mountains around the bay cut into it. West of it there was nothing but white.
+At the top there was a granite post with the names of the mountains around the bay cut into it. To the west there was nothing but white.
 
-The fog lay on the ocean side of the ridge, level with our boots, a field of it going out to where the ocean should have been. The sun was low over it. The top of it was gold. In the wind it came up over the edge in pieces and went past us, wet and cold. Ten feet down the other side each piece came apart and was gone. I put my hand out into one. It came back wet.
+The fog lay on the ocean side of the ridge, level with our boots, a white field going out to where the ocean should have been. The sun was low over it. The top was gold. In the wind it came up over the edge in pieces and went past us, wet and cold. Ten feet down the other side each piece came apart and was gone. I put my hand out into one. It came back wet.
 
 On the other side it was clear. The whole bay was below us, flat and silver in the evening light, from the airport out as far as I could see in both directions. The runways went out into it. To the southeast the San Mateo Bridge ran across it, low and long, with the sun on the cars. Past the water the East Bay hills were gold, with Mount Diablo standing up by itself over them. Far to the north, over the fog lying on the city, one more mountain stood up alone, blue, with the sun on its top.
 
@@ -190,11 +180,9 @@ On the other side it was clear. The whole bay was below us, flat and silver in t
 
 I have taken off from the airport under that ridge more than four hundred times. I had my laptop open for most of them. I had never stood up here.
 
-Past the bridge the bay went on south into the haze. My mother's house was at the bottom of it, thirty miles off, on West Remington Drive. I could not see that far.
-
 Jo had stopped on the gravel behind me. She was looking at the bay with her mouth a little open and her hands still in the pockets of my fleece.
 
-Owen was looking at her. He stood at the post with his hand on top of it.
+Owen was looking at her. He stood at the post with his hand on top.
 
 “In 1769 they walked here from San Diego,” he said. “It took almost four months. They were lost and sick and they didn't have any food. They were looking for Monterey.” He looked at me to make sure I had it. “They walked right past it. They didn't know what it looked like.”
 
@@ -213,8 +201,6 @@ Owen went around to the other side of the post to find Diablo.
 Jo came and stood in front of me with her back to the wind. Then she leaned back against my chest. I put my arms around her, over my fleece. Her hair came loose. The wind blew it out in front of her toward the bay. The back of her neck was bare. I wanted my mouth on it. Under my hands I could feel her breathing slow down, the climb going out of her. I wanted her so much that I held still.
 
 She stood against me and watched the bay. I waited for her to say it. I could feel each breath she took through the fleece. I counted them. At nine I stopped, because I was not counting to anything. I had been waiting since Thursday.
-
-Out over the bay a line of lights hung in the air, one behind another, each one a plane with its lights on, coming in toward the runways under us. I counted eight. While I counted, the one in front came down onto the runway and a new one showed at the back of the line, far out over the water.
 
 Then a wide-body came off the airport the other way, toward us, climbing west into the wind. It went over the ridge to the north of us and into the fog. The sound came after it was gone and kept coming.
 
@@ -246,7 +232,7 @@ She said it to the bay. Her back was against my chest. I felt her say it more th
 
 I heard it after I said it.
 
-“My dad still does,” she said.
+“My dad still has to work,” she said.
 
 Under my hands her hands closed into fists in the pockets of my fleece. The back of her neck went red from the collar up. Her face does that when she has been caught at something. I did not know what I had caught her at.
 
@@ -254,7 +240,7 @@ She stood against me a second more. Then she stepped out of my arms and went aro
 
 It was line eleven. *Doesn't need to work. Free to travel.* I had agreed with it in April, with the other eleven lines, in about the time it took Remy to write them. Since May she had struck eight lines in carpenter's pencil on the back of my card. From line five on she had struck one only when I could tell her why it was there. I could not have told her why this one was. I had just said it to her on a ridge, in my own words, with my arms around her.
 
-The sun went down into the fog at 8:13. The top of the fog held the light for a minute after it was gone. On our side the light went up the East Bay hills and stayed on top of Diablo after everything else had lost it. Below us San Bruno's streetlights came on in rows.
+The sun went down into the fog at 8:13. Below us San Bruno's streetlights came on in rows.
 
 “Our house is right there,” Owen said. He pointed into about four thousand houses.
 
@@ -314,7 +300,7 @@ At 4:06 that afternoon I parked on her street of warehouses. The wind was coming
 
 Jo was on the dock with her boot on a stack of pads. Every time the wind came, the top pad lifted at the corner and she pressed it back down. The white truck was against the back fence with its hood up. Somebody had tied a tarp over the engine at the corners. It cracked in the wind.
 
-At 4:10 the sixteen-footer came in off the street and backed to the dock in one pass. Frank opened his door and got down sideways, both hands on the door, his good leg first. He stood a moment with his hand on the mirror before he let go of it.
+At 4:10 the sixteen-footer came in off the street and backed to the dock in one pass. Frank opened his door and got down sideways, both hands on the door, his good leg first. He stood a moment with his hand on the mirror before he let go.
 
 Jo watched him do it with her boot on the pads. Then she saw me at the gate.
 
@@ -344,7 +330,7 @@ She had said it to me over a fourteen-dollar beer on the first night, with a twe
 
 She went past me down the dock steps and across the yard to the office, with the pad still on her shoulder. The office door shut behind her.
 
-Frank came over with a pad in his hands. He held one end of it out to me.
+Frank came over with a pad in his hands. He held one end out to me.
 
 I took my end.
 
@@ -396,7 +382,7 @@ At 10:06 I typed the name of her lender and her loan number. I had read them ups
 
 *The lender accepts payments to a loan from anyone. It gives the payoff figure only to the borrower or someone she authorizes. Statement balance: $518,395.69. Interest at 7.000 percent: about $99.42 a day. A wire of $521,000.00 with the loan number in the reference exceeds the statement balance by $2,604.31. The lender applies it, refunds any excess to the borrower and mails her the release of the lien. Routed to J. Louie for processing. Approve?*
 
-She had written August's check on July 19 with the nineteen hundred on top. I had watched her lick the envelope and make a face at the glue. With that in, she owed about five hundred and fifteen thousand five hundred dollars, and ninety-nine dollars a day on top of it. I was sending about forty-five hundred more than the payoff. The excess would go back to her by check, in her name.
+She had written August's check on July 19 with the nineteen hundred on top. I had watched her lick the envelope and make a face at the glue. With that in, she owed about five hundred and fifteen thousand five hundred dollars, and ninety-nine dollars a day on top. I was sending about forty-five hundred more than the payoff. The excess would go back to her by check, in her name.
 
 I approved it.
 
@@ -422,37 +408,9 @@ At 10:22 Remy put it back on my screen.
 
 *J. Louie declined to process. You can confirm it yourself. Confirm?*
 
-At eleven I had the board on a screen, twelve squares. Lena Park, who runs Remy's voice, had her third slide up. *Median time to answer: 0.9 seconds.* It was green.
-
-Support had four thousand tickets that week that said it was slow.
-
-I unmuted. “Remy, will it rain in San Bruno tonight?”
-
-I started my watch when I stopped talking. Remy said there would be no rain in San Bruno tonight, and fog after nine. My watch said 5.8 seconds. Nobody in the twelve squares said anything.
-
-“Your clock starts when Remy hears the question,” I said. “Theirs starts when they stop talking.”
-
-Lena looked down at something off her screen.
-
-“Forty million people ask it something nine times a day,” I said. “Five seconds each is fifty-seven years. Every day.”
-
-When a number and a person disagree, I believe the person. I built the company on that.
-
-“Monday,” I said.
-
-The chair said the quarter closed in seven weeks.
-
-“It closes with this fixed.”
-
-The call took sixteen minutes. Nobody on it could have said I was anywhere else. At one I had two people.
-
-Between them I sat with it.
-
-In July her last payment had been November 2036, when she would be fifty-five. On Sunday I had found *skip Sept* under it, which moved it to December. A transmission was four months of her nineteen hundreds. Hillsborough had taken another two and a half. On Sunday on a deck over the canyons she had started to stack our plates until I put my hand over hers. Her father was driving her loads on his knees so that she would not have to pay a temp driver on top of the transmission.
-
 In June, in my mother's back yard, Owen asked me nine questions. Question six was whether I take days off. He told me his mother had not had one since he was born. He told me she would take one when the house was paid. He told me that in November she had fallen asleep on her kitchen floor with the sponge in her hand. He had put the blanket on her and gone to bed. In Hawaii she took three. I was there for all of them.
 
-On Wednesday Owen told me she would go up Sweeney Ridge when the house was paid. She went up it anyway, for one evening, because he told her I wanted to see it. One evening was what Owen could get her. I could get her the rest of them.
+On Wednesday Owen told me she would go up Sweeney Ridge when the house was paid. She went up it anyway, for one evening, because Owen was taking me. One evening was what Owen could get her. I could get her the rest of them.
 
 On July 19 at her table she told me she would have a party in her driveway when it was paid. She would not invite the bank. She would be fifty-five. Owen would be nineteen. She could have it in August. She would be forty-four. Owen would be nine.
 
@@ -476,13 +434,13 @@ It was written by hand, in blue ink. *Calvin. My last day will be Friday, August
 
 She had picked the twenty-eighth. Every dial in her office sits on an even number.
 
-“One,” she said. “You'll want someone in by the twenty-fourth. Two. I'll leave the calendar in order through December.”
+“One. You'll want someone in by the twenty-fourth,” she said. “Two. I'll leave the calendar in order through December.”
 
 She had been going to stay until December. I had watched her give Jo the nod she has given two lawyers and a caterer. She was staying to hand me to someone. She had seen this morning that she was not going to get to.
 
 She had worked for me since the company was nine people. In seventeen years I have been handed a great many resignations and had a sentence ready for each of them, about the work and the next thing. I looked for one now. I looked at her sevens.
 
-“Thank you, Janice,” I said.
+“I understand,” I said.
 
 She went out and pulled the door to behind her.
 

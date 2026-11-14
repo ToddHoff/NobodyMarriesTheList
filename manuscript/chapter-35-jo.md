@@ -60,7 +60,7 @@ My father makes it every Sunday it rains. It's potatoes and onion in water till 
 
 I cut it anyway. I got it as thin as I could and put the thick ones in with the rest.
 
-On Saturday I'd given him his mother's keys back. Ten Saturdays with a clipboard in my hand. If he'd taken my bet in May, I'd have had eleven. Cal was not paying me to be in a room with him anymore.
+On Saturday I'd given him his mother's keys back. Ten Saturdays with a clipboard in my hand. If he'd taken my bet in May, I'd have had eleven. Cal wasn't paying me to be in a room with him anymore.
 
 The linguiça was my father's, from the freezer. I sliced it in rounds and fried them in the pan till the fat came out. They went in the pot, fat and all. I turned the burner down and set two places at the table and moved Owen's charger off his chair onto the counter.
 
@@ -70,7 +70,7 @@ Then I changed my shirt. When I came back I took the glass out from under it and
 
 The fog came over the ridge. It does in August. The street went gray. The sprinkler across the street came on and ticked.
 
-His car came down my street at six with its one headlight on in the fog. He parked at my curb. The fender I'd put in it in June was still in it.
+His car came down my street at six with its one headlight on in the fog. He parked at my curb. The dent I'd put in his fender in June was still there.
 
 He got out and opened the back door and leaned in. When he straightened up he had Pancake in his arms, with his chin on his shoulder.
 
@@ -88,17 +88,19 @@ He hadn't seen it since Carmel.
 
 My face went hot from the collar up. I stepped back out of the door.
 
-“Come in. Pancake can lay down in the kitchen.”
+“Come in. Pancake, go lay down in the kitchen.”
 
 Pancake had his nose up before he was through my door. He went down the hall with it going, head over. He bumped the wall once. In the kitchen he stopped at the stove with his nose up at the pot.
 
-I came in behind him. He turned around, slow, and leaned his head on my knee, the heavy side. He let me have the weight of it.
+I came in behind him. He turned around, slow, and leaned his head on my knee, the heavy side. He let me have the weight.
 
 I got down on my kitchen floor. I had his head in both hands. He breathed out through his nose and his eyes closed. There was hair all over my hands again. I left it there.
 
 “Owen says you're still first,” I told him. “The head only makes you cuter.”
 
-I got up and filled my big mixing bowl at the tap and set it on the floor by the table. He drank with his head over. Half of it went on my floor.
+I got up and filled my big mixing bowl at the tap and set it on the floor by the table. He drank with his head over. Half went on my floor.
+
+I know he's close when I shiver.
 
 “Can I give him a piece of the linguiça?” I said, with my back to the door.
 
@@ -202,11 +204,7 @@ Nine lines in my capitals. Nine lines through them.
 
 I put my spoon in the bowl.
 
-“At the fence in June you asked me who wanted *comfortable being looked after*. I told you about my mother's clock.”
-
-“I remember.”
-
-“That was half of it. I heard it through the wall.” He had his hands on the table on either side of the card. “I wanted someone who would use what I sent. That way I would not have to come. I could pick it out from the back of a car and never be in the room.”
+“You heard most of it on my mother's hearth,” he said. “I sent things. I wanted someone who would want them.”
 
 He said it to my face.
 
@@ -330,7 +328,7 @@ He looked at the fleece. He put his shirt on.
 
 Outside it was cold and dripping. The streetlight at the corner had a ring around it. At my step Cal lifted Pancake down, front end and then back. Pancake went down my walk with his head over and his nails loud on the concrete. On the sidewalk he found the direction he wanted and leaned into it. We went that way, slow, the three of us, down the middle of my street, because there was nobody on it.
 
-At the corner there's a signpost. Pancake stopped at it and put his nose to the bottom of it and stayed there.
+At the corner there's a signpost. Pancake stopped at it and put his nose to the bottom and stayed there.
 
 Cal stopped. He stood with the leash slack and looked at the fog where the ridge is. He waited for Pancake.
 
@@ -338,6 +336,6 @@ I stood next to him with my hands pulled up inside the sleeves of his fleece.
 
 I held out my hand for the leash.
 
-Cal looked at my hand. Then he put the loop of it in my palm and let go.
+Cal looked at my hand. Then he put the loop in my palm and let go.
 
 Pancake finished with the post. He turned around and went back up my street the way he'd come, slow, with me on the end of the leash. Cal walked up the middle of the street beside me with nothing in his hands. He didn't know what to do with them.

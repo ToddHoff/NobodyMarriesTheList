@@ -68,7 +68,7 @@ He looked at the kitchen. In that house you can see it from anywhere.
 
 That made two things in five minutes I'd done for him that I would have made Vili do for himself. I turned around before he could say thank you again.
 
-I went back to my bench. I left the door open the six inches, because there was a bowl of water in the way of it and I didn't think.
+I went back to my bench. I left the door open the six inches, because there was a bowl of water in the way and I didn't think.
 
 He came through the house a few minutes later and stood in the atrium with his hands still wet.
 

@@ -94,7 +94,7 @@ Her truck turned onto Remington at 6:59. She was driving it herself, for the fir
 
 My watch had tapped when her truck came around the corner. I had not looked at it. On June 6 she had smiled at me in that mirror and put the back corner of the truck into my front fender. The fender was still as she had left it.
 
-Vili got down with Manny and went around to the back to pull the door up. The clipboard was on its hook inside, with the found sheet from Tuesday on top, facing out. My signature was at the bottom of it.
+Vili got down with Manny and went around to the back to pull the door up. The clipboard was on its hook inside, with the found sheet from Tuesday on top, facing out. My signature was at the bottom.
 
 Vili looked from the sheet to me to the cab.
 
@@ -127,6 +127,18 @@ Her hair was tied back tighter than usual. I looked at the back of her neck more
 A week before, in the hall, my hand had been in that hair until the tie came half out.
 
 The job that day was my mother's bedroom. By nine she had spoken to me only in colors and directions.
+
+At 9:21 she picked the alarm clock up off the nightstand and held it out.
+
+“Green or blue?”
+
+I took it from her. It was still set for five.
+
+“Blue,” I said.
+
+Jo was across the room with the nightstand drawer emptied out on the bed. She had not been there when I took the clock. Vili was in the doorway. He looked at the clock in my hand and then at his watch.
+
+It was 9:31.
 
 At 9:40 she opened the top drawer of the dresser. It held nightgowns, folded in thirds. She laid them on the bed and lifted the paper that lined the drawer.
 
@@ -184,7 +196,7 @@ She took her time with it.
 
 “For about a year,” she said. “Then I had a crew to pay. Nobody's asked me that since.”
 
-I had asked because I wanted to know, which is not my usual reason for a question. I wanted to ask her the rest of it. I did not. I did not want her to be sorry she had told me.
+I had asked because I wanted to know, which is not my usual reason for a question. I wanted to ask her the rest. I did not. I did not want her to be sorry she had told me.
 
 She held out her hand. I gave her the card. She took the pencil from behind her ear and wrote *COLLEGE DEGREE, MINIMUM* under the other five and drew the line through it.
 

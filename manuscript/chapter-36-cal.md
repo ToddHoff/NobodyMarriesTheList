@@ -6,7 +6,7 @@
 
 At 10:34 on Tuesday morning, September 15, I walked to the front of the stage in the Civic Auditorium in San Francisco and let four thousand people wait for me.
 
-The Civic holds eight and a half thousand. We had set it for four, with the floor in rows and the balcony closed past the third row, so it would look full on the stream. The stream had one million three hundred thousand people on it. In December 1968 Douglas Engelbart sat at a console on a stage in this building for ninety minutes and showed a thousand engineers a mouse. I read the transcript of it when I was nineteen. I had asked for this room every fall since we were big enough to fill it.
+The Civic holds eight and a half thousand. We had set it for four, with the floor in rows and the balcony closed past the third row, so it would look full on the stream. The stream had one million three hundred thousand people on it. In December 1968 Douglas Engelbart sat at a console on a stage in this building for ninety minutes and showed a thousand engineers a mouse. I read the transcript when I was nineteen. I had asked for this room every fall since we were big enough to fill it.
 
 I had been on for thirty-four minutes of forty-five. At minute nineteen Remy had sat on hold with an airline for eleven minutes while I talked about something else. When a person picked up, it moved a seat. Four thousand people cheered for a seat. My watch said sixty-one. It says sixty-one on a stage.
 
@@ -26,7 +26,7 @@ They laughed again. The woman from the Chronicle picked up her pen and wrote tha
 
 My phone moved against my left leg.
 
-It was one minute and fifty-two seconds into the hour, which is what we call that speech. The whole of it runs four minutes and ten seconds. Owen knows where every one of the seconds goes.
+It was one minute and fifty-two seconds into the hour, which is what we call that speech. The long version runs four minutes and ten seconds. Owen knows where every one of the seconds goes.
 
 The phone was in my left front pocket. At 9:50 the stage manager had put her hand out for it at the foot of the steps. For seventeen years Janice had held it in the wing. Janice retired on August 28. I kept it.
 
@@ -238,7 +238,7 @@ I held out my hand for his backpack. He looked at my hand. Then he took one stra
 
 ***
 
-I put him in the back seat. He held the basin in his lap with a hand on either side of it. I put the car on self-driving and gave it Jo's address. Its record is better than mine. I turned around in my seat and watched him instead of the road.
+I put him in the back seat. He held the basin in his lap with a hand on either side. I put the car on self-driving and gave it Jo's address. Its record is better than mine. I turned around in my seat and watched him instead of the road.
 
 At the light on San Bruno Avenue he went gray around the mouth and leaned over the basin. I reached back between the seats and held it under him with both hands, so he did not have to. He was sick into it all at once. I held it until he was done and he had sat back and breathed.
 
@@ -274,9 +274,9 @@ When I came back into the kitchen with the dosing cup, Owen was at the sink. He 
 
 “I'm thirsty,” he said.
 
-I took a juice glass out of the cupboard on the left and filled it at the tap. He drank all of it without stopping. He held it out. I filled it again. He drank that too.
+I took a juice glass out of the cupboard on the left and filled it at the tap. He drank it all without stopping. He held it out. I filled it again. He drank that too.
 
-At 11:27 it came back up, all of it, into Jo's sink.
+At 11:27 it all came back up, into Jo's sink.
 
 I stood behind him. I did not know where to put my hands. Then I put one flat on his back, between his shoulder blades, where his mother had put hers on mine at the rim of the volcano. I kept it there until he was done.
 

@@ -64,7 +64,7 @@ On the refrigerator, under one of her company's magnets, there was a calendar. E
 
 I am on a great many calendars. Janice puts me on them. I find out where I am supposed to be by looking. I could not remember the last time someone had written me on one by hand. The square was in a KEVIN week. I could have worked out what that meant in about a second. I did not let myself, in case I had it wrong.
 
-We ate at her table, which had three chairs. One had a phone charger hanging off the back of it. She gave me one of the other two. The linguiça went on rolls with peppers and onions out of the same pan.
+We ate at her table, which had three chairs. One had a phone charger hanging off the back. She gave me one of the other two. The linguiça went on rolls with peppers and onions out of the same pan.
 
 “Does this count against the half I owe you?” I said.
 
@@ -240,7 +240,7 @@ I read it right. I ran it, nineteen hundred a month extra at seven percent, from
 
 It was ten years and four months from that table to her driveway. I wanted to be standing in it in November 2036. I did not say so. She had done the spreadsheet by herself. It was her party.
 
-She wrote the check for the payment and the nineteen hundred and signed it. She tore it out, folded the coupon around it and licked the envelope. She made a face at the glue. She put the statement on the counter by the coffee maker, with the envelope on top of it for the mail.
+She wrote the check for the payment and the nineteen hundred and signed it. She tore it out, folded the coupon around it and licked the envelope. She made a face at the glue. She put the statement on the counter by the coffee maker, with the envelope on top for the mail.
 
 It was a number I could have sent from her kitchen in less time than it took her to lick that envelope. I had promised her on Wednesday. I put both hands around the mug.
 

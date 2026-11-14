@@ -42,7 +42,7 @@ I didn't answer her. I didn't know what you say to an eighteen-year-old who has 
 
 On Wednesday she wrote again. I was on the dock pulling pads.
 
-*He made me a lunch for the car. Butter out to the edge.*
+*He made me a lunch. Peanut butter out to the edge.*
 
 *He hugged me at check-in. I had to let go first.*
 
@@ -54,7 +54,7 @@ On the left was a window envelope from my lender.
 
 On the right was a flat cardboard envelope from the post office, Express, overnight, from San Luis Obispo. Denise had put it on top, with a yellow sticky note on it in her capitals. *IS THIS HIM??* Inside it was a white envelope, the long kind. It was addressed to me in blue ink, in square printing that leaned a little to the right. *Jo Silveira.* My street. San Bruno, the zip. The postmark said SAN LUIS OBISPO CA, the eighteenth.
 
-I didn't know the printing. I'd seen two letters of it, CB, in the margin of two pages on my tailgate.
+I didn't know the printing. I'd seen two letters, CB, in the margin of two pages on my tailgate.
 
 I opened the bank first.
 
@@ -92,7 +92,7 @@ He'd spelled approved with one p.
 
 I put the page down on the counter and put my hand on it.
 
-Stephanie had told me most of it on Monday, in my yard, in her flat shoes. It was different in his printing.
+Stephanie had told me most of this on Monday, in my yard, in her flat shoes. It was different in his printing.
 
 I picked it up again.
 
@@ -104,7 +104,7 @@ I picked it up again.
 
 *Since then I have not asked Remy anything about you. I am not going to.*
 
-*The hospital called at 4:10 this afternoon. He stood up. He ate. Someone called them at ten to six this morning to ask whether he had eaten. They did not get her name.*
+*The hospital called at 4:10 this afternoon. Pancake stood up. He ate. Someone called them at ten to six this morning to ask whether he had eaten. They did not get her name.*
 
 *Thank you for coming.*
 
@@ -232,7 +232,7 @@ He got in and pulled away. In the back window Owen lifted one hand without looki
 
 I stood at the gate until I couldn't hear the car.
 
-My hand on the latch was cold. Five weeks old. I'd had him on my shoulder in that hall with a roller in my other hand. I'd been proud of it.
+My hand on the latch was cold. Five weeks old. I'd had him on my shoulder that week, with a paint roller in my other hand. I'd been proud of it.
 
 *I did not ask you, because I knew what you would say.*
 
@@ -272,7 +272,7 @@ She turned the burner down without looking at it. She put a plate in front of me
 
 “Eat,” she said. “Then talk.”
 
-I ate half of it. Then I told her. The store. The Saturday. The diapers, and the size up, and the hall closet.
+I ate half. Then I told her. The store. The Saturday. The diapers, and the size up, and the hall closet.
 
 Denise's face did everything while I talked. When I got to the diapers it stopped.
 
@@ -320,7 +320,7 @@ I almost said I'd been busy. I'd had a baby and the trucks.
 
 “Because he'd have told me,” I said.
 
-Denise didn't say anything. In the front room Rob laughed at the TV. She didn't look over.
+In the front room Rob laughed at the TV. Denise didn't look over.
 
 “And Cal,” she said. “Two in the morning. What did you ask him?”
 
@@ -328,7 +328,7 @@ Denise didn't say anything. In the front room Rob laughed at the TV. She didn't 
 
 “And why he paid off your house? Did you ask him that?”
 
-I didn't say anything.
+I shook my head.
 
 She picked up my plate and put the other half of my dinner in a container with a lid and wrote JO on the lid in marker, and put it in front of me.
 
@@ -381,8 +381,6 @@ I didn't answer.
 I didn't have anything for that.
 
 “So you'll pay him back the money,” Denise said. “Every penny, with interest.” She put the page down. “And the days? You going to mail him those too?”
-
-I didn't say anything.
 
 She picked my phone up off the table and held it out to me.
 
@@ -480,9 +478,9 @@ I'd paid Kevin's mother back in one check, with interest. I'd felt clean for abo
 
 “No,” I said. I didn't like where this was going.
 
-“What's the other plan?”
+“What's your plan B?”
 
-I didn't have anything.
+I didn't have a plan A, let alone a plan B.
 
 Denise pulled out the chair across from me and sat down. She pushed the calculator out of the way with the back of her hand.
 

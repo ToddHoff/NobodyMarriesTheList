@@ -6,7 +6,7 @@
 
 On Thursday I packed a dead woman's kitchen in Westlake by myself. The fog came in off the ocean and sat on the house all day. My nose was peeling from Maui. Every time I wiped it on my sleeve I was back on that lanai.
 
-Her son had flown in from Phoenix. He sat in the garage with the door up, on a folding chair, with his phone, coming in every hour to ask if I needed anything. I've cleared a lot of houses for people's children. They'll go through their mother's closet and her jewelry and her desk with a box of tissues. The kitchen they call in one word. He'd said blue for all of it before I had the first box built.
+Her son had flown in from Phoenix. He sat in the garage with the door up, on a folding chair, with his phone, coming in every hour to ask if I needed anything. I've cleared a lot of houses for people's children. They'll go through their mother's closet and her jewelry and her desk with a box of tissues. The kitchen they call in one word. He'd said blue for the whole room before I had the first box built.
 
 I built two dish packs on her counter and taped the bottoms in an H. Plates on edge, cups rim down, glasses in their own cells. I can do a kitchen like hers in five hours if nobody talks to me. Nobody did. The house was so quiet I heard the furnace come on twice before noon, in July.
 
@@ -126,11 +126,11 @@ I wasn't going to bill him for the afternoon. I'd decided that on the floor. I d
 
 His room was the hottest one in the house. The sun came straight through the back windows onto the bed.
 
-He'd said green for the ribbons and nothing for the bed. I'd left it. When a client can't call something, I leave it in the room until he can. The bed was made with the corners tucked under tight. I've stripped a lot of beds. You can tell one somebody slept in from one somebody made. This one had been made, over and over. I could smell the dryer sheet from the door. I'd seen beds like it on Monday, on Maui, made every week for a man who didn't come.
+He'd said green for the ribbons and nothing for the bed. I'd left it. When a client can't call something, I leave it in the room until they can. The bed was made with the corners tucked under tight. I've stripped a lot of beds. You can tell one somebody slept in from one somebody made. This one had been made, over and over. I could smell the dryer sheet from the door. I'd seen beds like it on Monday, on Maui, made every week for a man who didn't come.
 
 I sent Cal to take the ribbons down himself and wrap them while I did the desk.
 
-You learn a lot about a person from a desk. I've packed a hundred boys' desks. There's gum stuck under the drawer, a note from a girl, a dead watch, something they'd die before they let their mother see. His had none of it. Mechanical pencils in a row, by lead size. Graph paper with the edges squared. A calculator with a label on the back in his mother's blue ballpoint, CALVIN B. A school calendar from 2003 with something written in every day through June. After June it was blank. I wrapped it and didn't read June.
+You learn a lot about a person from a desk. I've packed a hundred boys' desks. There's gum stuck under the drawer, a note from a girl, a dead watch, something they'd die before they let their mother see. His had none of that. Mechanical pencils in a row, by lead size. Graph paper with the edges squared. A calculator with a label on the back in his mother's blue ballpoint, CALVIN B. A school calendar from 2003 with something written in every day through June. After June it was blank. I wrapped it and didn't read June.
 
 The sweat ran down the insides of my arms. I could hear him in the hall, the paper and the tape, and then nothing for a while, and then the paper again. He was reading every ribbon before he wrapped it. I didn't go see.
 
@@ -262,11 +262,11 @@ I didn't get up.
 
 He'd heard me say something about him to my sister that I hadn't said to him. I was owed one of his. I'd found the piano on that lanai. I'd been afraid ever since that eight was a second one. If he wanted a baby, that was the end of it. I'm forty-four. I'm done having kids. You can't strike that one with a pencil.
 
-“On the plane you did not ask me whose line eight was,” he said.
+“On the plane you did not ask me about line eight,” he said.
 
 “I'm asking.”
 
-“It was mine.”
+“Remy put it there. I knew why as soon as I read it.”
 
 “Why?”
 
@@ -290,7 +290,7 @@ My stomach went over.
 
 I've got a phone full of Owen at two. I hardly look at them. I was there.
 
-“I wanted one I was there for,” he said. “I wanted to hear one skip six.”
+“Remy has that number,” he said. “It is where the line came from. I wanted one I was there for. I wanted to hear one skip six.”
 
 “Why not a woman with kids?”
 

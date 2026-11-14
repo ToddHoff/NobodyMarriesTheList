@@ -164,7 +164,7 @@ Cal set the box on the ramp. He didn't drop his shoulders or change his voice. H
 
 He went back in for the next box. The son stood on the lawn a while before he went back to the kitchen, where his mother put him on the lamps.
 
-I heard all of it from the back of the truck. I'd been watching him all morning for the piano. A man doing this for my benefit would have checked whether I'd heard. He never looked at the truck. Manny had been standing on the ramp with a box for I don't know how long.
+I heard every word from the back of the truck. I'd been watching him all morning for the piano. A man doing this for my benefit would have checked whether I'd heard. He never looked at the truck. Manny had been standing on the ramp with a box for I don't know how long.
 
 Then Vili put him on the high end of a dresser. On stairs the low man takes the weight, so the low man calls the lift. Vili called it. Cal lifted when he was told and not before. At the turn on the landing he said “Wait.” They waited, then brought it around with about a pencil's width between the corner and the wall. I was at the bottom of the stairs holding my breath. I don't do that.
 

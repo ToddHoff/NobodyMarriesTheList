@@ -38,7 +38,7 @@ Abby has told Janice things first since she was twelve. Janice tells me what she
 
 At nine I sat at the end of a table with eight people who wanted to talk about the quarter. Nobody asked about the volcano. On the second slide I found I was tapping the table with one finger. It was the song. Owen had played it from somewhere over the ocean until the fog. *Pancake. Make no mistake.* Our general counsel was looking at my finger. I put my whole hand down on the table and kept it there.
 
-Somewhere in the revenue slides I was back in the water on Maui with my arms out, Owen telling me not to do anything. I had done it. I had lain on top of the Pacific Ocean for a minute and a half and done nothing at all. It held me up. I did not know where to put that in a meeting. I kept my hand down until the quarter was over.
+Somewhere in the revenue slides I was back in the water on Maui with my arms out, Owen telling me not to do anything. I had sunk twice. Both times I had been helping. The third time I did nothing at all. The Pacific Ocean held me up for a minute and a half. Everything else that has held me up, I built or I pay. I did not know where to put that in a meeting. I kept my hand down until the quarter was over.
 
 ***
 
@@ -74,11 +74,11 @@ Her truck turned onto Remington at 6:59. Vili was driving. He backed it in on on
 
 Vili went to the back and pulled the door up. He looked at the house, and at me on the curb with a dog bed, and at her.
 
-“Forty minutes down 101,” he said, “for a man who takes ten minutes on a lamp.”
+“Forty minutes down 101,” he said, “for a man who takes ten minutes on a clock.”
 
 “He's paying for the drive,” Jo said.
 
-“Nobody pays me enough for a Saturday.”
+“Not enough for a Saturday.”
 
 I could have. I had the number before he had finished the sentence: a day at time and a half, and something on top for Burlingame. I kept it to myself. He had given up his Saturday for her, not for me.
 
@@ -142,7 +142,7 @@ She sat down on the bench in the shade with a tote bag and a calculator, took a 
 
 ***
 
-At eleven Jo called lunch. She went out to the bench. Denise was on my end of it.
+At eleven Jo called lunch. She went out to the bench. Denise was on my end.
 
 I took my lunch to the kitchen counter by the slider. The slider was open for the air, with the screen shut. Pancake came and lay on my feet. From the counter I could see the backs of their heads and hear every word.
 
@@ -220,7 +220,7 @@ I had shipped an airship across an ocean. I had made a promise to a governor. I 
 
 I had sat down at the rim because I could not think of anything to buy. In June I had asked whether there was anyone to call about a volcano. There was not. For three days I had thought of it as the part of the trip I had failed to arrange.
 
-I wanted to go out through the screen and sit down on the bench between them. I wanted to tell her I had not known what else to do. I stayed where I was, with Pancake on my feet. If I went out there she would stop talking. I wanted to hear the rest of it more than I wanted to be seen.
+I wanted to go out through the screen and sit down on the bench between them. I wanted to tell her I had not known what else to do. I stayed where I was, with Pancake on my feet. If I went out there she would stop talking. I wanted to hear the rest more than I wanted to be seen.
 
 “Then it went,” Jo said. “You see it first. Fourteen hundred feet. Two of them. I had my hand on my chest like a lady in church.”
 
@@ -272,7 +272,7 @@ Jo turned around on the bench. She looked at me. Then she looked at her sister. 
 
 Denise had looked straight at the kitchen at 11:06 and smiled into her coffee. She had asked about the text at 11:21. I had been arranged. I knew what it looked like. Janice has done it for me since 2009.
 
-At 11:45 I walked Denise to her car. She put the tote on the passenger seat and stood with the door open and the heat coming out of it.
+At 11:45 I walked Denise to her car. She put the tote on the passenger seat and stood with the door open and the heat coming out.
 
 “Two more Saturdays after this one,” she said.
 
@@ -418,7 +418,7 @@ She let the tape run back into the case. It went in with a snap.
 
 “How much did you hear?”
 
-“I heard all of it from the milk.”
+“I heard everything from the milk.”
 
 She looked at the frames instead of me. There was sweat at her hairline. By noon even the hall was hot. It was three feet wide. I was close enough to see the peeling place on her nose and the freckles under it that had not been there two weeks ago.
 
@@ -516,7 +516,7 @@ Abby looked at me.
 
 Abby went down the hall to wash the glass dust off her hands. I heard the water run in the hall bathroom. Then it stopped. She did not come out.
 
-I went down the hall. She was standing in the bathroom with my mother's robe in one hand, off its hook. The door was still on its hinges, with green tape on its edge. Her lines went up the right side of it in my mother's blue ballpoint, ABBY 3 to ABBY 14. Mine were on the left, CALVIN 4 to CALVIN 12.
+I went down the hall. She was standing in the bathroom with my mother's robe in one hand, off its hook. The door was still on its hinges, with green tape on its edge. Her lines went up the right side in my mother's blue ballpoint, ABBY 3 to ABBY 14. Mine were on the left, CALVIN 4 to CALVIN 12.
 
 On her side, half an inch above her nine, a short flat line in carpenter's pencil said OWEN 9.
 
@@ -530,7 +530,7 @@ She looked at the pencil. Then she looked at her own nine, in pen, half an inch 
 
 “Jo put her hand on his head. I wrote it.”
 
-She hung the robe back on its hook over all of it.
+She hung the robe back on its hook over the marks.
 
 “You were here for his,” she said.
 

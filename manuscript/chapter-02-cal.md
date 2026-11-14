@@ -124,7 +124,7 @@ I did not tell her that he can no longer manage the last three steps to my door,
 
 “I'm not good with dogs,” Jo said. “I got bit on a job when I was twenty-six. Keep him behind a railing.”
 
-I waited for the rest of it. I had heard the rest at minute thirty-one.
+I waited for the rest. I had heard the rest at minute thirty-one.
 
 “You would have asked what she asked.”
 
@@ -328,7 +328,7 @@ Pending: 3 introductions (D. Pruitt).
 Confirm?
 ```
 
-I read the fourth line twice. Remy has fourteen years of my calendar. In all of it there was no other night like this one.
+I read the fourth line twice. Remy has fourteen years of my calendar. In fourteen years there was no other night like this one.
 
 “Cancel the introductions,” I said.
 
@@ -344,7 +344,7 @@ Each of the three matched all twelve lines I had approved. I did not ask for the
 
 “Booked. Tomorrow at 7:00 a.m., at the house. I gave them your name and the address. Their office runs Remy Starter. It confirmed at 11:52.”
 
-I had not been inside that house in seven months. I had just agreed to stand in front of it in seven hours.
+I had not been inside that house in seven months. I had just agreed to stand in front of that house in seven hours.
 
 I had asked for the first opening because it was the soonest I could see her again. I pictured the walk up to my mother's front door and got as far as the door. My mouth went dry. I put it down to the third drink.
 

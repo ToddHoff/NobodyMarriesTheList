@@ -64,7 +64,7 @@ I stood in the doorway with my keys in my hand.
 
 “She wouldn't promise.”
 
-My face went hot. I put my keys in my pocket so that I would have somewhere to put my hand.
+That gave me hope. I put my keys in my pocket so that I would have somewhere to put my hand.
 
 “Then Mom gave her that.” Abby put one finger on the envelope. “It's a prenup. Her lawyer drew it in July, after my party.”
 
@@ -106,17 +106,17 @@ Then she went down the steps to her car. I stood in my doorway and watched her t
 
 At 11:52 that night I took the envelope to the kitchen counter and read the agreement.
 
-I read all of it, from the first page to the last, the way Jo had.
+I read it from the first page to the last, the way Jo had.
 
 Stephanie's lawyer had my share count from my last filing with the SEC. It was correct to the share. He had the house in Woodside, the house on Maui, and the trust that holds the house on West Remington Drive, which Jo had spent nine Saturdays emptying for me. Page eleven waived support, in capitals. Page nineteen kept Abby's trust whole. It was a careful document. Everything in it that was mine was right.
 
 Schedule B was the last page. *Separate Property of,* and her name. Under it there was one line. It had been left blank for her.
 
-She had written on it in carpenter's pencil, in her square printing. *The house in San Bruno, and what I owe on it. Silveira Moving & Estate, three trucks, my father's name on the doors since 1987.* It did not fit. It went off the end of the line and down the margin, the last four words turning the corner at the bottom of the page.
+She had written on it in carpenter's pencil, in her square printing. *The house in San Bruno plus what I owe on it. Silveira Moving & Estate, three trucks.*
 
 She had not signed it.
 
-I read the line three times. *And what I owe on it.*
+I read the line three times. *Plus what I owe on it.*
 
 I took my phone out and opened the payoff confirmation. *Balance: $0.00.* I looked from the screen to her pencil and back.
 
@@ -138,7 +138,7 @@ I turned the light on.
 
 He was trying to stand up. His back legs came under him and went out to the left. He went down on his side. When he tried again, the same legs went out the same way. He rolled. He came up against the dresser and lay there with his head tipped hard to the left.
 
-His eyes were going. Both of them, side to side, fast, the way a man reads a line of print and jumps back to the start of it and reads it again. He could not hold them on me. He tried. I watched him try.
+His eyes were going. Both of them, side to side, fast, the way a man reads a line of print and jumps back to the start and reads it again. He could not hold them on me. He tried. I watched him try.
 
 I got down on the floor. I said his name. His tail moved once on the boards.
 
@@ -154,7 +154,7 @@ I carried him down the stairs and out to the car. He is sixty-four pounds. Every
 
 The fog had come over the ridge. It was on my windshield in drops.
 
-Woodside Road goes down the hill in curves. I took them faster than I have ever taken them. At every curve I heard him slide on the towels, so I put my right arm back between the seats and kept it on him. Nobody was on the road. The lights at the bottom were all red. At each one I slowed, looked both ways and went through, with my arm between the seats. I had never run a red light in my life.
+Woodside Road goes down the hill in curves. I took them faster than I have ever taken them. At every curve I heard him slide on the towels, so I put my right arm back between the seats and kept it on him. Nobody was on the road. The lights at the bottom were all red. At each one I slowed and went through, with my arm between the seats. I had never run a red light in my life.
 
 ***
 
@@ -168,7 +168,7 @@ She stopped inside the doors and found me on the floor. Then she looked at the d
 
 I did not get up.
 
-She came across the room and sat down on the floor beside me with her back to the wall. Her shoulder was four inches from mine. I could feel the warmth off her through the fleece and smell my own dog on it, and her sleep. My shirt still had him down the front of it. She did not move away. I wanted to put my face against her neck and leave it there. I kept my hands on my knees.
+She came across the room and sat down on the floor beside me with her back to the wall. Her shoulder was four inches from mine. I could feel the warmth off her through the fleece and smell my own dog on it, and her sleep. My shirt still had him down the front. She did not move away. I wanted to put my face against her neck and leave it there. I kept my hands on my knees.
 
 “What happened,” she said.
 
@@ -214,7 +214,7 @@ I did not say anything about the envelope on my hall table.
 
 The woman in blue scrubs came through the door with a clipboard. She looked at the two of us on her floor and crouched down to us. She had an estimate. She explained it in one breath. An emergency exam. Bloodwork. Fluids under the skin or through a line in his leg. Something for the nausea. Overnight in the hospital, maybe two nights. It was $1,900 to $3,600, depending.
 
-I took the pen. Jo did not say anything. She looked at the clipboard in my hands.
+I took the pen. Jo looked at the clipboard in my hands.
 
 I turned back to the first page and read it. The exam. The panel. The line in his leg. The overnight, and the second night, priced separately. The deposit, half. It was a page and a half. The woman in scrubs waited with her hands on her knees. Jo waited beside me. When I had read the last line I signed it and handed it back.
 
@@ -288,7 +288,7 @@ She had her hands in the sleeves of my fleece.
 
 Then she came in and got down on the floor on the other side of him, by his head. She took one hand out of the sleeve and put it on him, flat, behind his ears, in the place he likes. Nobody had shown her that place.
 
-Pancake turned his head into her hand. He could not hold it straight, so he leaned it there and let her take the weight of it.
+Pancake turned his head into her hand. He could not hold it straight, so he leaned it there and let her take the weight.
 
 She did not move her hand.
 
@@ -304,7 +304,7 @@ Jo took her hand off him. She looked at it. There was dog hair all over her palm
 
 “You should call Abby,” she said. “When it's light.”
 
-“That was my plan.”
+“All right.”
 
 She got up.
 
@@ -466,9 +466,7 @@ I had wanted to ask her since the bar. I had never asked.
 
 I looked at the door to the study, where he sleeps under the desk.
 
-“Jo,” I said.
-
-She did not say anything.
+“Tonight I called Jo,” I said.
 
 “Have you told her?” she said.
 
@@ -484,11 +482,23 @@ I looked up the stairs at the open door of my bedroom, at the place on the floor
 
 “That is not the answer I expected,” I said.
 
-“When my marriage ended I paid a woman in San Mateo a hundred and eighty dollars an hour to tell me why.” I heard her shift. “Third week, she asked me who did the work.”
+“When my marriage ended I paid a woman in San Mateo a hundred and eighty dollars an hour to tell me it was his fault.” I heard her shift. “Third week, she told me something else.”
 
-“What did you tell her?”
+“What did she tell you?”
 
-“Me. Sixty hours a week. I brought her my billing records.” There was a clank behind her, somebody setting something down. “She didn't open them. I paid her for two more months so I could keep hating her.”
+“That two kinds of marriage last. They love each other the same. Or he's gone on her. Out of his mind. More than she is.”
+
+“And the third kind?”
+
+“She loves him more.” She drank. “That one doesn't make it.”
+
+“Why not?”
+
+“Because a man that far gone will do the work. He'll give things up.”
+
+“And if she is the one?”
+
+“Then she does all of it.” There was a clank behind her, somebody setting something down. “I hated that woman for saying it. I paid her for two more months so I could keep hating her.”
 
 I sat on the step.
 
@@ -496,7 +506,7 @@ I had sent Jo five hundred and twenty-one thousand dollars from my desk. It took
 
 She had sat on a hospital floor at two in the morning in my fleece and put her hand on Pancake.
 
-I would have brought my billing records too. I had not done the work.
+I knew which one I was. I had not done the work.
 
 Behind Dawn, a man's voice said her last name.
 
@@ -508,23 +518,21 @@ Behind Dawn, a man's voice said her last name.
 
 She did not answer him. I listened to her not answer him for four seconds.
 
-“Who did the work?” I said.
+“Which one were you?” I said.
 
 She did not answer me either.
 
 I heard her breathe once, the way my mother did on the voicemail before *Calvin*. Then the machine started again behind her, and the beat, and she said, “Drive your daughter, Cal,” and she was gone.
 
-I went into the kitchen. I buttered two pieces of bread out to the edge, put a tomato between them and cut it in half. I put it in a paper bag with an apple and wrote ABBY on the bag. It was the first lunch I had made her. She was eighteen.
-
 ***
 
 At 6:56 that morning I pulled into Stephanie's driveway in Menlo Park in a clean shirt. Abby was on the front step with one bag and her phone, her mother behind her in the door with her arms folded, in a sweater, with her sleeves turned back twice.
 
-Abby came down the walk. She picked the paper bag up off the seat before she sat down. She read her name on it and put it in her bag, on top. Then she got in and put the bag between her feet. She looked at the back seat, at the lamp belted in, and at the empty place on the seat where Pancake rides.
+Abby came down the walk. She got in and put her bag between her feet. She looked at the back seat, at the lamp belted in, and at the empty place on the seat where Pancake rides.
 
 “Where's Pancake?”
 
-I told her. The nails on the floor, and the stairs, and the hospital, and the word the doctor had used, and the chicken and rice at ten to six. She listened to all of it with her hands on her knees.
+I told her. The nails on the floor, and the stairs, and the hospital, and the word the doctor had used, and the chicken and rice at ten to six. She listened to the end with her hands on her knees.
 
 “Is he okay?”
 
@@ -547,3 +555,13 @@ Abby turned her head and looked at me.
 “Yes,” I said. “I did not thank her.”
 
 Abby looked at me a little longer. Then she reached down into the bag between her feet and took out the roll of green tape and held it in her lap, with both hands, the whole way down 280 to 101.
+
+At 10:48 we were at her dorm in San Luis Obispo. I carried eleven boxes up two flights. She told me where each one went.
+
+I stayed the night. On Wednesday morning she checked in. At the curb I gave her a paper bag with ABBY on it. I had made it at six that morning in the hotel room. Peanut butter on both pieces of bread, out to the edge, jelly between them, cut in half, and an apple. It was the first lunch I had made her. She was eighteen.
+
+She looked in the bag. “You cut it in half,” she said.
+
+I sent her the login for my Starbucks account. “You do not have to tell me when you use it,” I said.
+
+Then she hugged me. I did not let go until she did.

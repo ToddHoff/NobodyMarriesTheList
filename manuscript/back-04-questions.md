@@ -18,4 +18,4 @@
 
 9. "Every house has a piano nobody put on the estimate." What was Jo's? What was Cal's?
 
-10. Jo adds a thirteenth line: SAYS WHEN HE WAS WRONG. What would yours be? And which line on your own list would you least want to explain?
+10. Jo leaves the twelfth line standing. What line would you add? And which line on your own list would you least want to explain?

@@ -104,7 +104,7 @@ I thought about Vili running both trucks in Burlingame, and Denise on the phone 
 
 ***
 
-He came back that afternoon, after Kevin's car had gone, and asked my son in my front room. Owen stood with his hands at his sides and heard all of it before he said anything.
+He came back that afternoon, after Kevin's car had gone, and asked my son in my front room. Owen stood with his hands at his sides and heard him out before he said anything.
 
 “Is it erupting?”
 
@@ -206,7 +206,7 @@ I looked over the lip. There was the trough, and a grate, and the pump housing t
 
 I've moved houses in Atherton that yell at you about what they cost. This one didn't say a word. Somebody with taste had built it. Then nobody had come.
 
-The refrigerator was stocked for five people. Milk with a Thursday date, two gallons of it. Two dozen eggs. A ham, steaks in butcher paper, a whole fish wrapped in paper. Cheese, butter, juice in glass bottles. Papaya, pineapple and mango, cut and under plastic. Portuguese sausage. At home we call it linguiça. A loaf of Portuguese sweet bread in the drawer, the same kind my father buys.
+The refrigerator was stocked for five people. Two gallons of milk with a Thursday date. Two dozen eggs. A ham, steaks in butcher paper, a whole fish wrapped in paper. Cheese, butter, juice in glass bottles. Papaya, pineapple and mango, cut and under plastic. Portuguese sausage. At home we call it linguiça. A loaf of Portuguese sweet bread in the drawer, the same kind my father buys.
 
 “They stock it Thursday,” Gil said behind me.
 
@@ -230,7 +230,7 @@ On my way back through the house I checked the back of the bathroom door. I alwa
 
 “What are you looking for?” Gil said.
 
-“Kids' heights,” I said.
+“Names and lines,” I said.
 
 There was nothing written on it. Nobody had ever stood against it to be measured.
 
@@ -256,7 +256,7 @@ I'd known since May that he had eleven billion dollars. I'd known it the way you
 
 It hadn't crossed my mind since May. I'd been too busy not owing him for things.
 
-So I let myself have one minute of it.
+So I let myself have one minute.
 
 Owen here every summer, brown as a penny. My father in a chair on that lawn, with both his knees done by somebody good. Denise in that pool in her earrings. No payroll on Friday. Owen at whatever college he wanted, not the one my spreadsheet picked. November 2036 would be a thing I'd said once in my kitchen. It would take him one word. He wouldn't have to get out of the water.
 
@@ -264,7 +264,11 @@ And me, asleep at seven in the morning. Nobody in my family has slept until seve
 
 That was the minute. Then I went looking for the piano.
 
-It wasn't hard to find. I could never pay him back for a house like that. All I could do was lean on him, me and my kid, with our whole weight.
+It wasn't hard to find.
+
+Kevin's folks gave us a down payment. I didn't hang a picture for eleven years.
+
+I knew what this one would cost. For one minute I'd wanted it anyway, handcuffs and all. I'd wanted to put my whole weight on him, me and my kid. I hadn't known I was that tired.
 
 ***
 
@@ -316,7 +320,7 @@ He paced it first, heel to toe. Six and a half feet across. He drew the circle w
 
 Cal made his ridges the same distance apart all the way around. I didn't ask if he was measuring. He was on his knees in the sand in his good pants. He'd given up on the pants around three.
 
-They were two ridges from done when a wave came up farther than the others and took half of it.
+They were two ridges from done when a wave came up farther than the others and took half.
 
 Cal sat back on his heels and looked at what was left.
 
@@ -432,9 +436,9 @@ We went out over Hilo with the bay on one side, flat and silver, and the town on
 
 “Telescopes,” Dr. Okamura said. “Thirteen thousand feet.”
 
-A shower came across the bay ahead of us with the sun at our backs. Owen yelled. The rainbow wasn't an arch. It was a whole circle, hanging in the rain below us, with our shadow in the middle of it.
+A shower came across the bay ahead of us with the sun at our backs. Owen yelled. The rainbow wasn't an arch. It was a whole circle, hanging in the rain below us, with our shadow in the middle.
 
-“You only get all of it from up here,” Dr. Okamura said. “The ground cuts off the bottom.”
+“You only get the whole circle from up here,” Dr. Okamura said. “The ground cuts off the bottom.”
 
 Then we turned down the coast. The green went on for miles, so green it looked wet. Then it stopped.
 
@@ -456,11 +460,17 @@ Owen pulled his head in from the window. He looked at the land for a long time.
 
 “I'm older than Hawaii,” he said.
 
-“Than that part.”
+“Than that part.” She pointed past the point, out at the open water. “There's a younger one coming. Twenty miles out, three thousand feet down. It's got a name already.”
 
-He thought about it. He put his head back out the window to have another look at it, now that he knew.
+“What is it?”
 
-Off the new point a pod of dolphins was working the water. One came straight up out of it and spun around twice and went back in sideways. Owen made a sound I hadn't heard out of him since he was four.
+“Kamaʻehuakanaloa. The red child of the sea.”
+
+He said it back to her. It took him two tries.
+
+He put his head back out the window and looked at the water, now that he knew.
+
+Off the new point a pod of dolphins was working the water. One came straight up and spun around twice and went back in sideways. Owen made a sound I hadn't heard out of him since he was four.
 
 “Spinners,” Dr. Okamura said. “They come in to rest in the bays in the morning.” She looked at the black point. “They used to come in to that one.”
 
@@ -480,7 +490,7 @@ My face went hot at a thousand feet.
 
 Then we went up the mountain toward the top, over black ground and green ground and black again. The steam came first, out of cracks in the ground in long white rows. Then the ground fell away under us all at once. We were over the crater. Heat came in Owen's window. The whole airship rose a little on it, the long room all at once, like my father's boat lifting on a wake.
 
-I measure everything by eye. I've done it since I was a kid in the cab with my father. I couldn't put a number on that hole. It went on for miles. The walls were cliffs, gray and tan, with layers in them. The floor was black and shining, like a parking lot after rain. Down in one end of it were two black hills with steam coming off the tops, like they were breathing.
+I measure everything by eye. I've done it since I was a kid in the cab with my father. I couldn't put a number on that hole. It went on for miles. The walls were cliffs, gray and tan, with layers in them. The floor was black and shining, like a parking lot after rain. Down in one end were two black hills with steam coming off the tops, like they were breathing.
 
 “North vent and south vent,” Dr. Okamura said. “Those are what fountain.” She leaned in next to Owen at the window. “The gas comes up underneath, like a can of soda you shook. When there's enough, it throws the lava straight up out of those hills. Watch the north one. It goes first.”
 
@@ -536,7 +546,7 @@ I stayed on the bench with him. He'd had the zeppelin put on a ship and sent acr
 
 We landed late that morning. After lunch Dr. Okamura drove us up to the top in her truck, which had a cracked windshield and a dashboard full of rocks. She took us out to a place on the rim with a rope across it and a ranger who knew her name. From there the crater lay out in front of us. The two hills were down at the far end of the floor, a couple of miles off. The north one was still spilling.
 
-Every few minutes it did something I didn't have a word for. The red would rise up inside the top of it, bringing a roar up with it, louder and louder. Then it would stop dead. The red would drop out of sight. Then it would come back up and spill a little more.
+Every few minutes it did something I didn't have a word for. The red would rise up inside the top, bringing a roar up with it, louder and louder. Then it would stop dead. The red would drop out of sight. Then it would come back up and spill a little more.
 
 “Gas pistoning,” Dr. Okamura said. “She's clearing her throat.”
 
@@ -602,7 +612,7 @@ The light reached us. Every ledge on the cliffs across the crater lit up gold. I
 
 I did it in my head. Almost six of our zeppelin, stood on its nose.
 
-Down on the crater floor the lava had found the low ground. It went out from the bottom of the fountains in rivers, red and gold, splitting and joining up again, all of it going the same way. It looked like 101 from the top of my street at night, all the taillights going south. It went that slow. It didn't stop.
+Down on the crater floor the lava had found the low ground. It went out from the bottom of the fountains in rivers, red and gold, splitting and joining up again, all going the same way. It looked like 101 from the top of my street at night, all the taillights going south. It went that slow. It didn't stop.
 
 Down the rim from us a woman started to chant. She was older, with gray hair down her back. Her voice carried over the roar and held there. I didn't know the words. They weren't for us. Nobody along that rope said anything while she did it.
 
@@ -620,7 +630,7 @@ Owen held his arm out in front of him and didn't move it.
 
 Owen looked at it a while longer. Then he turned his arm over and let the wind have it.
 
-I don't take anything home from a job. I've never told Owen that. He had it anyway.
+I don't take anything home from a job. I've never told Owen that. He knew it anyway.
 
 I had my hand on my own chest. I didn't know when I'd put it there.
 
@@ -634,7 +644,7 @@ Owen sat back down on the ground next to Cal. I sat down on his other side, on t
 
 “It counts,” Cal said.
 
-It went for three hours. We stayed for all of it. Then it quit, both vents at once. It was so quiet I could hear Owen breathing.
+It went for three hours. We stayed for every minute. Then it quit, both vents at once. It was so quiet I could hear Owen breathing.
 
 Then the people along the rope started to clap. They clapped for a long time. You clap for a volcano. I didn't know that.
 
@@ -654,11 +664,11 @@ I've never done that. Not when Owen was a baby. Not on Christmas. I lay there fo
 
 I took my coffee down to the beach. Gil was on the sand with his. Cal and Owen were out in the water up to their chests. Cal had been up since four. His body thought Pancake was waiting.
 
-“Put your ears in,” Owen was saying. “Your ears are the problem.”
+“You have to put your ears in,” Owen was saying. “You keep holding your head up.”
 
-“My ears are not the problem.”
+“I am not holding my head up.”
 
-“They're the problem.”
+“You are.”
 
 Cal put his ears in. He lay back and sank. He stood up and wiped his face and lay back again. On the third try he stayed up, with his arms out and his eyes shut and the light coming across him.
 

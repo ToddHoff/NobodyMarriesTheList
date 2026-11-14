@@ -28,7 +28,7 @@ He nodded. “Five-thirty.”
 
 He looked at me. Then he looked at the white truck against the back fence with its hood up.
 
-“I know you do,” he said.
+“You always do,” he said.
 
 He went to his chair by the office door, in the shade, and sat down. There wasn't any cushion on it.
 
@@ -156,7 +156,7 @@ Cal stopped and bent down at the edge of the wet sand. He rinsed something in th
 
 “It is blue,” he said. “Blue is rare. About one piece in two hundred and fifty is blue.”
 
-“What are you, a beach glass expert?”
+“Are you a beach glass expert now?”
 
 “My mother bought me a rock tumbler when I was nine. You can tumble glass in one, so I read about glass too.”
 
@@ -182,35 +182,33 @@ I opened my mouth. Cal turned his whole head.
 
 “Kevin used to go quiet,” I said.
 
+It wasn't what I'd opened my mouth for.
+
 Cal waited.
 
-“Five days, six. He'd still come home for dinner. I'd ask him what was wrong. He never told me.”
-
-I watched Pancake's ribs go up and down under my hand.
+“Five days, six. He'd still come home for dinner. I'd ask him what was wrong. He wouldn't tell me.”
 
 I'd asked him once.
+
+I watched Pancake's ribs go up and down under my hand.
 
 “At his car,” Cal said, “Kevin said that you asked him for one thing.”
 
 “You heard him.”
 
-“I have been trying to think of one thing you would let me do.”
+“He was right,” I said. “Eleven years. The only thing I ever asked Kevin for was his signature. I put the papers on the kitchen table with a pen on top.”
 
-“Kevin was right,” I said. “When he went quiet, I painted the hall. Twice in one year.”
+Cal didn't say anything.
 
-I'd told Vili the rest of it once, in May, in the cab. I'd never told anybody about the hall.
+“Every job's got something nobody put on the estimate,” I said. “Mine is I don't ask. I'm telling you before you sign anything else.”
 
-“What color?” Cal said.
-
-“The same white. Both times.”
-
-I didn't tell Cal when it started. A Tuesday in March. Owen was five weeks old. Kevin used to come home and stand in the kitchen looking for something to do. I'd tell him to sit down. He'd been teaching all day.
+I didn't tell Cal when the quiet started. Owen was five weeks old. Kevin used to come home and stand in the kitchen looking to help. I'd tell him to sit down, I got it. He'd been teaching all day.
 
 Cal had said he loved me on Thursday. It was Saturday.
 
 He took the card out of his shirt pocket. The corners had gone soft.
 
-“Line ten was mine,” he said. “*Never married.* Remy put it there because I was divorced at twenty-seven. I agreed with it in about a minute.”
+“Line ten,” he said. “*Never married.* Remy put it there because I was divorced at twenty-seven. I agreed with it in about a minute.”
 
 “Why?”
 
@@ -244,6 +242,8 @@ I gave it back. He put it in his pocket and kept his hand over the pocket.
 
 I had my hand in my pocket, on the glass. When I opened my mouth, what was in it was the house, paid off by fifty-five. Since Friday night that was December. What I wanted was twenty minutes ago, him on my left without being asked, and no piano after. I shut my mouth on both of them. I put my knee against his and left it there.
 
+He waited, the way he had on the rock. I didn't say. After a while he looked down at my knee against his. He didn't ask again.
+
 Pancake sighed against my leg.
 
 While we sat there the fog peeled back off the bay, from one end. Under it the water was blue all the way across to Point Lobos, and the beach ran away south from us in one white curve, and the cypress on the bluff went from black to green. Right over our heads, at the top of the bluff, was the Pebble Beach golf course, green to the edge, with men in sweaters on it already. The surfers had sun on their backs.
@@ -262,17 +262,17 @@ Cal looked up at the edge of the bluff, then at my arm.
 
 “All right.”
 
-It was a long way back down the beach to the slope, on soft sand now that the tide had come in. Pancake walked in front of Cal the whole way, slow, with his head down. Halfway up the slope he stopped and shook on both of us. I came up behind them with my sneakers in my hand. Cal's shirt was stuck to his back between the shoulders where Pancake had got him. I wanted both my hands there.
+It was a long walk back down the beach to the slope, on soft sand now that the tide had come in. Pancake walked in front of Cal the whole way, slow, with his head down. Halfway up the slope he stopped and shook on both of us. I came up behind them with my sneakers in my hand. Cal's shirt was stuck to his back between the shoulders where Pancake had got him. I wanted both my hands there.
 
 At the top Cal clipped the leash on. I dropped my tailgate. I'd put a towel back there, a gallon of water, a mixing bowl out of my kitchen and a bag of soft dog treats. He's old. I didn't know what his teeth were like.
 
 I got down on the asphalt and started on his legs. He wouldn't stand still for it. He wiggled the whole time, nose to tail. When I did his back he turned all the way around so I'd do it again. His tail got me in the face twice. I got the sand out from between his toes with him leaning on my shoulder. I'd never had my hands on a dog that long in my life.
 
-I poured the bowl full. He drank all of it. Then I held a treat out on my flat hand. He took it without touching me with a tooth.
+I poured the bowl full. He drank it all. Then I held a treat out on my flat hand. He took it without touching me with a tooth.
 
 Cal had been standing there the whole time with the leash. He crouched down across from me.
 
-“Thank you,” he said.
+“Pancake appreciates it,” he said.
 
 “He was wet.”
 
@@ -298,7 +298,7 @@ I drove.
 
 At the end of Scenic I cut over to Rio Road and went past the Mission. I crossed myself going by. Then we were on 1 going south.
 
-Point Lobos won't let a dog past the gate, not even shut up in a car. I'd looked that up Friday night. I pulled into the turnout on 1 short of the gate, which saves the ten dollars too. Pancake was asleep on my seat covers before I had the engine off, with sand in his ears. Cal rolled the windows down halfway and filled the water bowl. Pancake didn't open his eyes.
+Point Lobos won't let a dog past the gate, not even in a car. I'd looked that up Friday night. I pulled into the turnout on 1 short of the gate, which saves the ten dollars too. Pancake was asleep on my seat covers before I had the engine off, with sand in his ears. Cal rolled the windows down halfway and filled the water bowl. Pancake didn't open his eyes.
 
 Cal took a trail guide out of the box at the gate and read it walking.
 
@@ -368,7 +368,7 @@ The last picture anybody took of us had cost me forty-eight sixty and a Saturday
 
 “Come on. One.”
 
-“No.”
+“The ocean's that way.”
 
 The man put his phone away. When I sat back down, Cal took his hand off his knee and put it on my back, between my shoulders, and left it there. My shoulders came down an inch.
 
@@ -416,7 +416,7 @@ I knew the place. I'd moved two couples who went there every anniversary. A nigh
 
 “May I get a room?”
 
-He'd been trying to think of one thing I would let him do. It was one room, one night. Checkout was at eleven. Pancake had been asleep in my truck since Point Lobos.
+It was one room, one night. Checkout was at eleven. Pancake had been asleep in my truck since Point Lobos.
 
 “What do they charge for Pancake?”
 
@@ -448,9 +448,9 @@ That evening the boy in the vest knocked with two shopping bags from a store in 
 
 We ate our dinner on the terrace with Pancake under the table. Dinner came with the room. I'd said yes to the room. Cal ordered the wine without showing me the list, a Pinot from the Santa Lucia Highlands, on the other side of the mountains behind us. It was dark red and tasted like cherries and smoke. I didn't ask what it cost. I could guess. I had a second glass anyway.
 
-While we ate, the fog came back in off the ocean underneath us. It filled the canyons first and then everything below the hotel, until there was no road and no Nepenthe and no ocean, only white, flat, all the way out, with the tops of the ridges standing up out of it. The sun went down into it orange. The white went pink, then gray, until the stars came out over it, more of them than I knew there were.
+While we ate, the fog came back in off the ocean underneath us. It filled the canyons first and then everything below the hotel, until there was no road and no Nepenthe and no ocean, only white, flat, all the way out, with the tops of the ridges standing up through it. The sun went down into it orange. The white went pink, then gray, until the stars came out over it, more of them than I knew there were.
 
-Cal had his hand on the table. I put mine on top of it, in front of everybody. He turned his hand over and held on. He looked at me and waited. I passed him the bread.
+Cal had his hand on the table. I put mine on top, in front of everybody. He turned his hand over and held on. He looked at me and waited. I passed him the bread.
 
 In the room I lit the fire.
 
@@ -472,11 +472,11 @@ I shut my mouth against his shoulder and kept my hand where it was until he was 
 
 ***
 
-In the morning the menu on the desk had no prices on it. Breakfast came with the room. I didn't know which side to read it from.
+In the morning the menu on the desk had no prices on it. Breakfast came with the room. I'd never ordered off a menu without reading the prices first.
 
-It came on a cart. The waiter set it out on our deck with the coffee in a pot and the orange juice with pulp on the side of the glass. We ate it in the hotel's robes. Below the deck the fog was still down in the canyons, white and flat, with the ridges standing up out of it in the sun. Past the last ridge the ocean had started to come out blue. Something in the oaks under us sang the same three notes over and over. Pancake had eaten out of the new bag at seven and lay on my bare feet.
+It came on a cart. The waiter set it out on our deck with the coffee in a pot and the orange juice with pulp on the side of the glass. We ate it in the hotel's robes. Below the deck the fog was still down in the canyons, white and flat, with the ridges standing up through it in the sun. Past the last ridge the ocean had started to come out blue. Something in the oaks under us sang the same three notes over and over. Pancake had eaten out of the new bag at seven and lay on my bare feet.
 
-I had eggs and bacon, and the lox on a bagel because it was there, and a warm roll out of a basket under a napkin. Cal had the same as me. Under the table he gave Pancake one piece of his bacon and looked up to see if I'd seen.
+I had eggs and bacon, and the lox on a bagel because it was there, and a warm roll out of a basket under a napkin. Cal had the same as me. Under the table he gave Pancake a piece of bacon and looked up to see if I'd seen.
 
 Two gray squirrels chased each other around an oak trunk below the rail, up and around and down again. Pancake lifted his head off my feet to watch them. We watched them too, the whole time it took me to drink a second cup. Cal's robe had come open at the collar.
 

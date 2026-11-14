@@ -76,7 +76,7 @@ Nobody had asked me that. At the funeral a great many people told me about my mo
 
 “She worked at the school across the street,” I said.
 
-I waited for the rest of it. I had lived eighteen years in that house. What came was the school.
+I waited for the rest. I had lived eighteen years in that house. What came was the school.
 
 “What was her name?”
 
@@ -222,7 +222,7 @@ The bigger of the two men came in behind us with a roll of runner on his shoulde
 
 He whistled, two notes. Then he stood there with the roll on his shoulder, waiting on the sliding door.
 
-Jo was waiting on it too. She had stopped a step short of it, without touching the handle.
+Jo was waiting on it too. She had stopped a step short of the door, without touching the handle.
 
 “It is not locked,” I said.
 
@@ -357,7 +357,7 @@ She looked at the strip of aluminum. She looked at the telephone, for no reason 
 
 “Why is that?”
 
-“You need the coffee maker till the end. Everybody does.” She came back across the linoleum and stepped over the strip to my side of it. “We start in the hall closet. I need forty boxes built while Vili's on the runners.”
+“You need the coffee maker till the end. Everybody does.” She came back across the linoleum and stepped over the strip to my side. “We start in the hall closet. I need forty boxes built while Vili's on the runners.”
 
 She had given my boots a reason to be there. She was close enough to touch. I wanted to take hold of her arm above the elbow, where she had taken hold of mine on the ramp. She was on a job. I kept my hands at my sides.
 

@@ -16,7 +16,7 @@ At my mother's house that morning Jo had said very little to me that was not gre
 
 She had said yes on Thursday before Vili could answer for her. I heard it again all day Friday, at intervals I did not choose. Janice did not know where I would be after one.
 
-The car at her curb was a black sedan with the engine running. The driver was out of it, holding the rear door open for nobody. He was about sixty. Jo was on her front walk with her arms folded and a canvas bag on her shoulder.
+The car at her curb was a black sedan with the engine running. The driver was out, holding the rear door open for nobody. He was about sixty. Jo was on her front walk with her arms folded and a canvas bag on her shoulder.
 
 Her hair was down. I had seen it down once, in Los Gatos, for four hours. She had on jeans and a white shirt with a collar.
 
@@ -138,7 +138,7 @@ The pink went down the side of her neck into her collar. I watched it until she 
 
 She took 101 with her sleeves pushed up, her forearms brown to the elbow from the trucks. I looked at them most of the way to Mountain View.
 
-When the big hangar at Moffett came up on the left, she pointed at it with two fingers off the wheel. The new siding was the silver of a laptop before the film comes off. I had to turn my head to get from one end of it to the other.
+When the big hangar at Moffett came up on the left, she pointed at it with two fingers off the wheel. The new siding was the silver of a laptop before the film comes off. I had to turn my head to get from one end to the other.
 
 “I used to watch the zeppelin from right here,” she said. “In this lane. It came right over the freeway.”
 
@@ -290,7 +290,7 @@ I got down on my side and went around the front of the truck. The dog met me at 
 
 Jo got down and came around the back of the truck, the long way, with me between her and the dog.
 
-The dog went into the winery ahead of us and lay down in what looked to be his favorite spot. Nobody there was going to move him. The tasting room was one long bar, cool after the sun. Jo went to the far end of it. I took the end nearest the dog.
+The dog went into the winery ahead of us and lay down in what looked to be his favorite spot. Nobody there was going to move him. The tasting room was one long bar, cool after the sun. Jo went to the far end. I took the end nearest the dog.
 
 The man behind the bar owned the place. He did not know who I was. He poured the Chardonnay and pointed the bottle out the door at the vines below the deck.
 
@@ -428,7 +428,7 @@ She looked at the bag on her shoulder. She had carried it since 1:31. Then she l
 
 I took a while with it.
 
-I could have said Remy. She knew a machine had written the list in nine seconds and that I had agreed with every line of it. That answer had not been enough in June. I went looking for one that was mine, with her hand on the wire and the dogs going by.
+I could have said Remy. She knew a machine had written the list in nine seconds and that I had agreed with every line. That answer had not been enough in June. I went looking for one that was mine, with her hand on the wire and the dogs going by.
 
 “I send things,” I said. “I like it when they are used.”
 

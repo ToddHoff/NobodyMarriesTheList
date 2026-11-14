@@ -12,7 +12,7 @@ read the slips on three boxes..."
 Approve?
 ```
 
-I opened it and read all of it, which I do not usually do.
+I opened it and read the whole message, which I do not usually do.
 
 At 7:30 I had given Janice eleven minutes on the day, with times. I had told her about the labels, Pancake and the half sandwich. I had told her that he has never said why he leans on people.
 
@@ -24,7 +24,7 @@ I tested Janice's sentence. At lunch I had told Jo what Pancake does and that I 
 
 “Approve,” I said. It went at 9:14.
 
-I had not told Janice about my thumb. Jo had wrapped it in green tape and kept hold of my wrist afterward. She had looked at my forearm for six seconds. I had seen her look. I could still feel where her hand had been, rough across the middle. I left all of it out of the eleven minutes. Everything I tell Janice comes back to me better written. I did not want that part improved.
+I had not told Janice about my thumb. Jo had wrapped it in green tape and kept hold of my wrist afterward. She had looked at my forearm for six seconds. I had seen her look. I could still feel where her hand had been, rough across the middle. I left all of that out of the eleven minutes. Everything I tell Janice comes back to me better written. I did not want that part improved.
 
 Her answer came at 9:21.
 
@@ -84,7 +84,7 @@ I did not get her name. When her hand went over the phone, I heard nobody else i
 
 On Tuesday I put off a product review meeting so I could drive to San Jose. I had never put one off before.
 
-On October 6, at 2:14 in the afternoon, I was in one. I did not come out of it. Remy took my mother's call. I did not think of that when I put this one off. I thought of it at a red light in San Jose and sat through the green.
+On October 6, at 2:14 in the afternoon, I was in one. I did not step out. Remy took my mother's call. I did not think of that when I put this one off. I thought of it at a red light in San Jose and sat through the green.
 
 I walked Pancake at five in the morning and was in San Jose by ten. There is a neighborhood there called Little Portugal. I did not ask Remy for the best bakery in it. I drove down the street until I found a door with nine people over seventy waiting outside. I stood behind them for fourteen minutes. Farther along, the white towers of a church stood up over the roofs. The people in line were all speaking Portuguese at once. Inside, the air was warm and smelled of yeast and burnt sugar. The case ran the length of the room. Most of it was round loaves of sweet bread with shining tops. The custard tarts at the end were scorched black in spots. The woman behind the counter called every customer *querida* or *querido*. When it was my turn she called me *querido* too. I wanted her to say it again.
 
@@ -154,7 +154,7 @@ She unwrapped it on the edge of the dock and lifted the top of the roll.
 
 “The flowers were right. The text was right. You don't have to be right all the time.” She took another bite. “I'm eating, Cal.”
 
-I watched her eat the bifana, all of it. I did not think about the product review. She wiped her hands on her jeans.
+I watched her eat the whole bifana. I did not think about the product review. She wiped her hands on her jeans.
 
 “That doesn't count,” she said. “You still owe me half a linguiça.”
 
@@ -220,7 +220,7 @@ He pointed the tide book at a ramp lying along the edge of the dock. It was four
 
 “He's got hands.”
 
-Jo looked at me. I went to the middle of the ramp and took hold of it there.
+Jo looked at me. I went to the middle of the ramp and took hold there.
 
 “Not there,” she said. “That's not how you carry one. You take an end. Palms up.”
 
@@ -238,7 +238,7 @@ I lifted on two.
 
 We put it down. We did it again, on three, and walked it twenty feet with her going backward and telling me where the truck was. I slid my end into the slot. I was more pleased with that minute than the task warranted.
 
-The old man had watched all of it.
+The old man had watched the whole thing.
 
 “Hm,” he said, and went back to the tide book.
 
@@ -270,7 +270,7 @@ He went, taking his time.
 
 I had brought one sandwich into a yard where seven people worked. I had not thought about the other six until Vili said the number. I had been thinking about the half I owed, and about her. I had not gotten any further than that. Vili had. He wanted to know what I was doing in her yard on a Tuesday. The wrapper was all he had to go on.
 
-She walked me toward my car and stopped short of it, at the fender of the white truck.
+She walked me toward my car and stopped short, at the fender of the white truck.
 
 “Rowena Bautista called me yesterday.”
 

@@ -80,7 +80,7 @@ She was on the office steps in her good shoes with her phone out in front of her
 
 “We had four hundred and thirty-one yesterday,” Denise said. “Four hundred and thirty-one, EVER. We got two hundred and six since last night.”
 
-I took my coffee.
+She handed me my coffee.
 
 “Read them to me.”
 
@@ -102,7 +102,7 @@ I looked at the street. There was nobody on it, no van, no camera. Denise had al
 
 The white truck was up against the back fence where the tow had left it Monday, hood up. I'd called the shop at seven on Tuesday. Seventy-six hundred dollars and three weeks for the part. Denise would have the invoice by Friday.
 
-The keys to the sixteen-footer weren't on the board. My father was in the cab of it with the window down and the tide book on the dash, reading the tides like he was going sailing instead of to Burlingame with Manny.
+The keys to the sixteen-footer weren't on the board. My father was in the cab with the window down and the tide book on the dash, reading the tides like he was going sailing instead of to Burlingame with Manny.
 
 Burlingame was a four-bedroom, three loads on the sixteen-footer. Vili had the big truck in Hillsborough. I was a driver short.
 
@@ -130,7 +130,7 @@ My phone went before the first truck was out. Denise saw the name before I did. 
 
 He was quiet for a second.
 
-“Understood,” he said.
+“All right,” he said.
 
 I hung up. Denise was looking at me with her whole face.
 
@@ -250,7 +250,9 @@ I watched him from the front window. He parked behind my pickup, went around to 
 
 “I said bring nothing,” I said.
 
-“He is not a thing.”
+“Pancake is not a thing.”
+
+Pancake sighed like I'd insulted him.
 
 I let them in. Pancake stopped in my doorway and wagged at me, slow, the whole back half of him going. I had my hand on his head before I'd decided to. Then he went into my kitchen like he'd been there before.
 
@@ -396,7 +398,7 @@ I got out and let the tailgate down and put the pages on it.
 
 “Did you read this?” I said.
 
-He looked at the first page. Then he looked at the bottom of it, at the gray type. I watched him read the line with his own name in it.
+He looked at the first page. Then he looked at the bottom, at the gray type. I watched him read the line with his own name in it.
 
 “No,” he said. “I approved it from the back of the car.”
 
@@ -410,15 +412,15 @@ He turned to page nine. He read it with one hand on my tailgate. His ears went r
 
 “No. Ms. Holcomb got ten days to pack up your things.”
 
-“I will have it withdrawn this afternoon. You will not see another page of it.”
+“I will have it withdrawn this afternoon. You will not see it again.”
 
-“No. I'm not done with it.”
+“I'm not done with it.”
 
 He looked up.
 
 “Three,” I said. “Three women signed this before me.”
 
-“Yes. Ask me anything about them.”
+“Ask me anything about them.”
 
 He kept his eyes on me.
 

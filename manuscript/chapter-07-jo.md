@@ -178,7 +178,7 @@ I didn't have a night. Owen came back in the morning for seven days, so it would
 
 The job that day was the hutch.
 
-It stood at the end of the bedroom hall, six feet of dark oak with glass doors on top. He had boxed the dishes out of it that morning, in boxes with an H on every bottom. Pancake was at the back door, watching. I had left the mixing bowl out there for him.
+It stood at the end of the bedroom hall, six feet of dark oak with glass doors on top. He had boxed the dishes out of the hutch that morning, in boxes with an H on every bottom. Pancake was at the back door, watching. I had left the mixing bowl out there for him.
 
 “Green or blue?” I said.
 
@@ -276,7 +276,7 @@ The ramp was dry this time. He went up it backward, because the high end goes fi
 
 “At me.”
 
-He did. He looked at me the whole fourteen feet, across a hundred and fifty pounds of his grandmother's oak. I called every step of it. I have walked a thousand pieces up that ramp. I never had trouble before with where to put my eyes.
+He did. He looked at me the whole fourteen feet, across a hundred and fifty pounds of his grandmother's oak. I called every step. I have walked a thousand pieces up that ramp. I never had trouble before with where to put my eyes.
 
 We set it down against the wall of the truck. He was breathing hard. I wasn't.
 

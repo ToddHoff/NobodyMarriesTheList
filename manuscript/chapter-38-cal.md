@@ -10,27 +10,27 @@ At 7:10 that morning Vili backed it down my drive in Woodside for the piano.
 
 Abby had asked for it on a Sunday in September. She calls at ten on Sundays now, from her room in San Luis Obispo. I answer it myself.
 
-"Can Grandma's piano come?" she said.
+“Can Grandma's piano come?” she said.
 
-"Do you still play?"
+“Do you still play?”
 
-"You'll find out."
+“You'll find out.”
 
 Vili and Manny walked it out of the front room on the four-wheel dolly, with every pad on the truck around it. I took the low end with Vili. At the foot of the ramp he looked at me and waited.
 
-"Lift on three," I said.
+“Lift on three,” I said.
 
 Abby rode in the middle of the cab with her knees up and her grandmother's three piano books in her lap. My mother's glass dish rode on the floor between my feet, wrapped in a furniture pad. Vili said a pad would keep it hot till noon. I had made the chicken and rice at five that morning from her card, 350 for an hour and a quarter, covered. The card does not say potato chips. I had put them on.
 
 At 8:40 we stopped at the parish hall in San Bruno for the chairs. There were a hundred and twenty of them, gray steel, folded flat on two carts, with the name of the parish stenciled across every back. A woman in a cardigan counted them onto the truck and made Vili sign for them. Then she looked at Abby.
 
-"You're Joanna's girl?"
+“You're Joanna's girl?”
 
-"Yes," Abby said.
+“Yes,” Abby said.
 
 She did not look at me. She took the clipboard from Vili and signed under his name.
 
-\*\*\*
+***
 
 Jo's street was putting out lawn chairs when we came up it at nine.
 
@@ -42,43 +42,43 @@ Jo was in the kitchen with flour to her elbows.
 
 Her mother's recipe tin was open on the counter by the stove. In August I had held that tin shut in both hands and put it back on its shelf. Now a card stood against it, soft at the corners, in a hand I did not know. MASSA SOVADA. Down the table a row of dish towels had come up into hills.
 
-"The first batch didn't rise," Jo said. "I started over at three."
+“The first batch didn't rise,” Jo said. “I started over at three.”
 
 She set the card back against the tin, square to the edge. Then she looked at the furniture pad in my arms.
 
-"What's in the pad?"
+“What's in the pad?”
 
-"It is a dish."
+“It is a dish.”
 
-"Whose?"
+“Whose?”
 
-"It is mine."
+“It is mine.”
 
 She looked at me a second longer. Then she pointed her chin at the oven, which was off and empty, and went back to her towels. I put my mother's dish in it, pad and all, and shut the door.
 
 Denise came in at ten with a sheet cake held level in front of her in both hands, and her earrings in. She would not let anyone see the top. Frank had come with her. Owen was walking him up the drive by the elbow. Denise saw me at the sink.
 
-"He's not supposed to SEE you."
+“He's not supposed to SEE you.”
 
-"He's seen me," Jo said.
+“He's seen me,” Jo said.
 
-"Mom would've thrown him out."
+“Mom would've thrown him out.”
 
-"Mom would've fed him." Jo tore the end off the first loaf and put it in my hand. It was hot. It smelled of lemon and of something else I did not have a name for.
+“Mom would've fed him.” Jo tore the end off the first loaf and put it in my hand. It was hot. It smelled of lemon and of something else I did not have a name for.
 
 Owen had Jo's clipboard. He had been carrying it since eight. Nobody had been allowed to read it.
 
 Frank's chair was at the top of the drive with his cushion on it. He sat. Jo brought him a roll on a paper towel. He held it under his nose for a long time with his eyes shut.
 
-"Too much lemon," he said.
+“Too much lemon,” he said.
 
-"It's on her card."
+“It's on her card.”
 
-"She never did what was on her card."
+“She never did what was on her card.”
 
 He ate it in four bites and held out his hand for another. Jo went in for it. At the screen door she put the heel of her hand to one eye, quickly, and went on in.
 
-\*\*\*
+***
 
 At eleven I drove to Sunnyvale for Pat Dolan. She was on her step in a navy dress with a corsage she had bought for herself. She talked about my mother from Remington Drive to the San Bruno exit. In 1981 my mother had fixed Pat's garbage disposal with a broom handle. In 1994 she had won forty dollars on a scratcher and given half of it to the church, and told nobody but Pat. I had known neither of these things. I drove in the slow lane so there would be time for more.
 
@@ -98,17 +98,17 @@ I watched her walk the table. She walks a table the way she walks a house, one e
 
 Then she came to mine.
 
-I had taken it out of her oven at a quarter to two and put it at the end. It was my mother's dish, the one Jo had wrapped in my mother's kitchen and taped green for Woodside. She knew the dish. She tipped it up to look underneath.
+I had taken it out of her oven at a quarter to two and put it at the end. It was my mother's chicken and rice, in her dish, the one Jo had wrapped in my mother's kitchen and taped green for Woodside. She knew the dish. She tipped it up to look underneath.
 
 I had put a strip of green tape on the bottom. On it, in my printing, it said JO.
 
 She read it. She set it back down level, carefully, so the chips would not slide.
 
-"Green," she said.
+“Green,” she said.
 
 She cut the first corner piece herself and ate it.
 
-\*\*\*
+***
 
 Dawn Pruitt had been sworn in as a deputy marriage commissioner for one day. She had driven to the county clerk to do it. She arrived at half past three in a suit and running shoes, carrying a folder and a thermos, and asked for a chair she could put the thermos on.
 
@@ -118,63 +118,63 @@ At four o'clock Abby sat down at the piano.
 
 It stood in the mouth of the garage on its dolly, with the door run all the way up. She had her grandmother's book open on the stand. She did not look at it. She played the bridal chorus from *Lohengrin*. Wagner wrote it for an opera first performed in 1850. In the opera the bride asks the one question he has told her never to ask. He leaves her. I did not mention this to anyone.
 
-She played it at about two-thirds of the tempo on the page. She missed the same note twice, in the same bar, and went on both times. I had not known whether she could play. I had not known whether she still could.
+She played it at about two-thirds of the tempo on the page. She missed the same note twice, in the same bar, and went on both times. I had not known whether she could still play.
 
 Jo came out the front door on her father's arm. It was 4:03. On the first night she had been twenty minutes late.
 
 She had on a long silk dress I had never seen, with her shoulders bare and her hair down. It was green, the green of her tape. Green goes. Denise had wanted white. In August she lost that argument and the one about the boots. The glass was on the outside, on its chain. My ring was on her hand. She had both hands on Frank.
 
-Frank came down the ramp one step at a time with his other hand on the rail. Pancake lay across the bottom of it and watched them come. He did not get up. Frank stepped over him. So did she. Abby played the last line over again until they were down.
+Frank came down the ramp one step at a time with his other hand on the rail. Pancake lay across the bottom and watched them come. He did not get up. Frank stepped over him. So did she. Abby played the last line over again until they were down.
 
 Behind me Vili whistled his two notes.
 
-My watch tapped against my wrist. Every time it does that, I look.
+My watch tapped against my wrist.
 
 She came down the driveway between a hundred and twenty church chairs and stopped in front of me. She looked at my wrist. She reached over and turned my watch face in, and kept hold of my hand.
 
-"I'm told you both know my speech," Dawn said.
+“I'm told you both know my speech,” Dawn said.
 
-"Word for word," Jo said.
+“Word for word,” Jo said.
 
 The street laughed. Dawn waited for it to finish.
 
-"So I'll ask," she said. "Joanna. What do you want?"
+“So I'll ask,” she said. “Joanna. What do you want?”
 
 Jo did not look at the street. She looked at me.
 
-"I want him to put my roasting pan away where it doesn't go," she said. "For about forty years."
+“I want him on the low end,” she said. “Every time.”
 
-"Cal?"
+“Cal?”
 
-"I would like to be told where it goes."
+“I would like to be the one she calls.”
 
 A plane went over. It was a 777 out of SFO, climbing, low enough that the windows on her street hummed. Nobody tried to talk over it. Dawn looked up at it. A hundred and twenty people looked up at it. Jo did not. She looked at me until it was gone.
 
 When it was gone, Dawn opened her folder.
 
-"Joanna Silveira, do you take Calvin Brennan to be your husband," she said.
+“Joanna Silveira, do you take Calvin Brennan to be your husband,” she said.
 
-"I do," Jo said.
+“I do,” Jo said.
 
 Dawn finished the question anyway, all the way to the end. Jo let her.
 
-"Calvin Brennan, do you take Joanna Silveira to be your wife, from today, for as long as you both shall live?"
+“Calvin Brennan, do you take Joanna Silveira to be your wife, from today, for as long as you both shall live?”
 
-I waited until she had finished. "I do."
+I waited until she had finished. “I do.”
 
 Owen held out the clipboard. On the top sheet, under a strip of green tape, was a plain gold band. Jo peeled the tape up with her thumbnail and took the ring off it. She had bought it from a jeweler in San Bruno and paid for it in twenties. Owen had told me. He was not supposed to.
 
 It went over my knuckle on the second try.
 
-"By the authority vested in me by the State of California," Dawn said. She stopped there and looked down at Owen.
+“By the authority vested in me by the State of California,” Dawn said. She stopped there and looked down at Owen.
 
 Owen looked at his clipboard. He looked at me. He looked at the street.
 
-"It counts," he said. "Everything on Mom's list happened."
+“It counts,” he said. “Chairs. Abby's layout. Cake. Grandpa's chair. Everything on Mom's list happened.”
 
 Jo put her hand on the back of my neck and pulled my head down. She kissed me in front of her whole street. She tasted of lemon. The street came up out of the church chairs. Pancake got up in three tries and leaned on both of us.
 
-\*\*\*
+***
 
 The license had two lines for witnesses. Denise signed the first in her good pen, pressing hard. Abby signed the second. Dawn poured herself half a cup. Then she signed at the bottom and put the license in her folder.
 
@@ -186,17 +186,17 @@ I had never seen it. I knew what it was. In August she had told me what was on i
 
 She held out her hand to her father. He put the tongs in it.
 
-Behind me Pat Dolan said, "Oh, we did that in 2004." She said it to Janice. "Out in the driveway. My husband cried."
+Behind me Pat Dolan said, “Oh, we did that in 2004.” She said it to Janice. “Out in the driveway. My husband cried.”
 
 Jo held the note over the coals. The corner went brown. Then it caught. She held it there until the whole sheet was burning, with her feet set wide and her face lit orange from underneath. She was grinning at it. Owen held up his phone and took the picture. Denise was crying with her mouth open. Nobody said anything until it was ash.
 
 Jo shook the tongs off over the grill and handed them back to her father.
 
-"Linguiça," she said.
+“Linguiça,” she said.
 
 Frank laid it on.
 
-\*\*\*
+***
 
 Denise's cake said ABOUT TIME across the top in blue capitals, with a border of roses. She cut it with Jo's box knife, because nobody could find the cake knife. Nobody asked where the box knife had been.
 
@@ -204,41 +204,37 @@ At ten to six Stephanie got up from the last row, squared her chair to the other
 
 By eight the street had folded its lawn chairs and gone home with its dishes. Everyone knew whose was whose without looking underneath. Vili and Manny and the cousins loaded the church chairs back onto the truck in the dark, counting them by tens. A hundred and twenty. The piano went last, with Abby and Manny on the high end and Vili and me on the low one.
 
-"On three," Abby said.
+“On three,” Abby said.
 
 The low man calls the lift. I lifted on three.
 
 When the truck was gone, Jo and I sat in the driveway in two lawn chairs from her garage, with Pancake asleep across both our feet. The coals in her father's kettle had gone gray. Planes went over every two or three minutes, climbing out toward the ocean with their lights on. I did not count them.
 
-"What did your watch say?" Jo said. "When I came down."
+“What did your watch say?” Jo said. “When I came down.”
 
-"I do not know. You turned it in."
+“I do not know. You turned it in.”
 
-"Turn it over."
+“Turn it over.”
 
 I turned it over. The last number it had for me was at 4:03. It was a hundred and twelve.
 
-"That's higher than the Oak," she said.
+“That's higher than the Oak,” she said.
 
-"The driveway is longer."
+“The driveway is longer.”
 
 She laughed. She took a red pencil from behind her ear and gave it to me. I put it in my shirt pocket, behind the old card.
 
-\*\*\*
+***
 
 That was a year ago this month.
 
-Pancake sleeps at the bottom of Frank's ramp in the afternoons, where the sun is. In Owen's app he is number one of four hundred and twelve dogs. Owen gives him extra for the head tilt.
+Pancake sleeps at the bottom of Frank's ramp in the afternoons, where the sun is. In Owen's app he is number one of four hundred and twelve dogs. Owen gives him extra for the head tilt. I asked Owen once what he thought of Remy. He said it was fine but slow. I said I would look into it.
 
-Since the wedding Owen has asked me to help with his app three times. Each time I changed the one thing he asked about and nothing else. I asked him once what he thought of Remy. He said it was fine but slow. I said I would look into it.
-
-Abby is in her third year at Cal Poly. Her second-year studio project was an Eichler on a corner lot, with an atrium and no roof over it, drawn from memory. It was my mother's, to the inch. I checked. She still calls on Sundays.
-
-She has my Starbucks login. I gave it to her outside her dorm the morning she checked in. I get the receipts. On studio days they come at 7:48. Before her finals there were four in one day. Remy asked whether I wanted them summarized. I read them myself.
+Abby is in her third year at Cal Poly. Her second-year studio project was a cafeteria for the middle school across from my mother's house. The kitchen has the glass wall. In June Abby asked me whether it could be built. I said I would find out. I have met four times with the woman who runs facilities for the district. Abby comes to the meetings and does the talking. She still calls on Sundays.
 
 In November Jo put a paper in front of Denise. Silveira Moving & Estate, two owners, half and half. Denise ran every number on it twice on the old calculator before she signed it on the hood of the white truck. The doors say what they always said. Denise says they read different now.
 
-The same week Jo gave Vili the sixteen-footer to run with his own crew, and every other Saturday off. He whistled his two notes and called his mother.
+The same week Jo gave Vili the sixteen-footer to run with his own crew, and every Saturday off. He whistled his two notes and called his mother.
 
 Frank has his chair on the dock and his cushion on the chair. In the spring he took the boat out twice with Owen and came back both times with no fish and a sunburn on his left side only. The second time he asked me to come. I held the net. There was nothing in it.
 
@@ -252,18 +248,22 @@ Remy waits on hold for forty-four million people. Beside Jo's name in its settin
 
 Kevin still brings the salt. Jo says I will understand it when I am older.
 
-We live in San Bruno. The house in Woodside is dark most nights. Rita has stopped leaving the lights on. About once a week I put Jo's roasting pan away where it does not go. She tells me where it goes. The next time, I put it there. The time after that, I do not.
+We live in San Bruno. The house in Woodside is dark most nights. Rita has stopped leaving the lights on.
 
 Dawn Pruitt has a new client. He came up her stairs in Jackson Square in September with a list. It had nine lines. She called Jo that night to ask what she should do with him. Jo put her on the speaker and went on stirring.
 
-"Find him the one who isn't on it," Jo said.
+“Find him the one who isn't on it,” Jo said.
 
-"I've got a woman in Pacifica," Dawn said. "She drives a tow truck."
+“I gave my client a new question tonight,” Dawn said. “What's paradise to you?”
 
-"I gave him a new one tonight," Dawn said. "What's paradise to you?"
+I gave it some thought. I own a house on Maui. People call that paradise. What I thought of was a bench in my mother's atrium on May 16, and half of a linguiça sandwich. I thought of two tri tips gone warm in her truck, with Monterey Bay in front of us. She broke the cookie and gave me the bigger half.
 
-"Eating a sandwich anywhere with you," I said.
+“Eating a sandwich anywhere with you,” I said.
 
-"I'll eat to that," Jo said.
+“I'll eat to that,” Jo said.
 
-Over the speaker I heard her pour half a cup. Jo laughed at the stove with her back to me. It went on in her shoulders after the sound had stopped.
+Over the speaker I heard Dawn pour half a cup. Jo laughed, the low one.
+
+“I still have not made you a linguiça sandwich without breaking the yolk,” I said.
+
+“We have time,” she said.

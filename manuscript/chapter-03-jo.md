@@ -286,7 +286,7 @@ Inside the truck the pads were folded in stacks and the straps hung on the rail.
 
 He took the green roll out of my hand and turned it over. I think he was looking for instructions.
 
-“What if all of it is blue?” he said.
+“What if everything is blue?” he said.
 
 He'd gotten to that question on a truck ramp, before he'd set foot inside. Most people get to it in the kitchen, somewhere around the drawer of bread ties.
 

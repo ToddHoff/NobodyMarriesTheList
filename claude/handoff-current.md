@@ -1,14 +1,1166 @@
 # Nobody Marries the List: Handoff (current)
 
-Last updated: Wednesday, November 11, 2026, 9:35 PM PST
+Last updated: Friday, November 13, 2026, 6:16 PM PST
 
-START HERE. This is the live handoff from the night of October 19 on. `claude/handoff.md` is the archive (October 5 to the 10:13 PM entry of October 19); it has grown past what `project_read` returns whole (its last 4 KB, the 6:45 PM chapter 34 entry and its three sub-bullets, come back only through `project_search`), so new entries go here, newest first. Everything below the "Standing" line is carried over from the archive and is still in force. Nothing here is new invention; it records only what was discussed and decided.
+This file is the log. Read `claude/standing.md` first: it has the standing rules and where the book lives (November 12). Open this file to look up the history of a line or a decision. New entries go here, newest first. `claude/handoff.md` is the older archive (October 5 to October 19). The log records only what was discussed and decided.
+
+### What's next (OPEN: asked 6:16 PM Nov 13)
+- Todd asked "What's next". Offered: 1 he commits git / 2 I reread ch 1 to 30 closely / 3 rebuild the Word file / 4 he generates ebook and print from Vellum and pages through them. Todd: "3 is only when i say so don't keep suggesting it". Rule added to standing.md: never suggest the Word rebuild or list it as undone. Re-offered the other three.
+
+### Final check (CLOSED 6:15 PM Nov 13)
+- Todd reached the end of ch 38 and asked for a final check. Done: machine checks on the whole book, close read of ch 31 to 38, Vellum compared with the files (the pending compare is DONE: all paragraphs match, added paragraphs are real paragraphs, only the two known italics are missing). Twenty findings in claude/final-check-2026-11-13.md. One fix made: the thirteenth line removed from The List in Vellum (missed earlier). Top finding is my own miss: the new ending's sandwich debt was paid in ch 34. Asked Todd which numbers to apply. Scratch files in claude/tmp.
+- Todd, 6:03 PM: "apply your picks" (1, 2, 3, 6, 7, 8, 12, 13, 18, 19, 20). Applied in the files: 1 (ending: "I still have not made you one without breaking the yolk," I said.), 2 (ch 32: "I stayed the night. On Wednesday morning she checked in." and the lunch made "at six that morning in the hotel room"), 3 (twenty years), 6 (a new question), 7 (Dawn pour), 8 (Owen once), 12 (dent/fender), 13 (wasn't), 18 file part (chapter-38 file now curly with plain breaks), 20 (book plan ch 38 note).
+- 6:04 PM: items 1, 2, 3, 6, 7, 8, 12, 13 are also in the manuscript doc and the Vellum book. NOT done, told Todd: 18's doc part (chapters 37 and 38 of the doc still mix straight and curly quotes; fixing it means rewriting every dialogue paragraph through the doc tool) and 19 (the two italics in Vellum need a full read of chapters 29 and 34 through the Vellum tool; two Cmd-I's by hand in Vellum is cheaper). Still open for Todd: items 4, 9, 10, 11, 14, 15, 16, 17. Chapters 1 to 30 not reread; doc not compared with the files.
+- Todd, 6:08 PM: "do 10, 11, 14, 15, 16 and 17". Applied in all three places (my wording; quoted to him):
+  - 10, ch 31: after "I knew what the last thing in it was, and whose." added "It was his. I hadn't answered it."
+  - 11, ch 32: Dawn's therapist line is now "...a hundred and eighty dollars an hour to tell me it was his fault." / "Third week, she told me something else." (was "to tell me why" / "she told me"). This passage was restored from git today; only those words changed.
+  - 14, ch 31: "...when I was done being angry," she said. She laughed, not much. / "What he did was rotten, Joanna," she said. "We started..."
+  - 15, ch 34: the second "She handed me a tray five days a week for three years." (in the July paragraph) cut; the first, in the line-nine telling, stays.
+  - 16: ch 31 "He looked at the dots on his screen." and "Dawn let me sit there with it..."; ch 32 "Jo looked at the clipboard in my hands." and the lone "She did not say anything." after "Tonight I called Jo" cut; ch 33 "In the front room Rob laughed at the TV. Denise didn't look over.", "I shook my head." after "Did you ask him that?", and the lone "I didn't say anything." after "mail him those too?" cut; ch 34 "She called the item and looked at me." The other "waited"s in ch 34 were left: they separate two speeches by one speaker, or are the heart pair.
+  - 17, The List line 6: "three hundred reviews" (ch 25, 26, 33).
+- Still open: 4 (never thanked her / ch 4), 9 (Starbucks login in ch 32), 18 in the doc, 19 (two italics in Vellum).
+- Todd, 6:10 PM: "Skip 4 & 9". CLOSED, not to be raised again: ch 34 "I never thanked her. Not once, out loud." stays, and the Starbucks login line in ch 32 stays. Left from the final check: 18 in the doc and 19 (Vellum italics), both waiting on his answer.
+- Todd, 6:11 PM: selected "one" in the last exchange and said "should probably say linquxia sandwidth". Now: "I still have not made you a linguiça sandwich without breaking the yolk," I said. / "We have time," she said. In all three places and the book plan.
+- Todd, 6:11 PM: "do the vellum check". Re-ran the compare on a fresh Word export (claude/tmp/vellum-export-2.docx) after all of today's edits: all 7,834 paragraphs in the chapter and back-matter files are in Vellum word for word; no line-break paragraphs; no empty paragraphs left by the cuts; Vellum-only text is the copyright page, the review link and Pancake's Song. Only the two italics are missing (ch 29 "PAID IN FULL.", ch 34 "Nothing, Calvin. I have everything I need."). Asked whether he wants me to set them.
+- Todd, 6:12 PM: "1". He sets the two Vellum italics by hand (ch 29 "PAID IN FULL.", ch 34 "Nothing, Calvin. I have everything I need."). CLOSED for me. Only 18's doc part (mixed quotes in ch 37 and 38 of the doc) was never answered; not to be raised again unless he does. Nothing from Nov 13 is committed; the Word file has not been rebuilt.
+- Todd, 6:14 PM: "I set the italics". Reopened the Vellum file (he had saved it; the old handle was stale) and checked a fresh export; result in the reply.
+- Todd confirmed he set the two italics; verified in a fresh export (the Vellum file was reopened; handle is still nobody-marries-the-list-1). Todd, 6:15 PM, on the doc's mixed quotes in ch 37 and 38: "1", leave it. CLOSED. The final check is finished: every item is applied, skipped by Todd, or closed. Not done and not asked for: rereading ch 1 to 30; comparing the manuscript doc with the files; rebuilding the Word file. Todd commits git himself; nothing from Nov 13 is committed.
+
+### Ch 38, the book's last two sentences (CLOSED 5:49 PM; first applied 5:48 PM; asked 5:45 PM Nov 13)
+- Todd selected "at the stove with her back to me. It went on in her shoulders after the sound had stopped." and said: "Not good enough. This part reads oddly". It echoes ch 2 ("The laugh was low. It went on in her shoulders after the sound had stopped."), but "laughed at the stove" reads as laughing at the stove and "It" has no noun. "Over the speaker I heard her pour half a cup." stays in every option.
+- Option 1 (repair only): "Jo was at the stove with her back to me. She laughed, the low one. Her shoulders went on with it after the sound had stopped."
+- Option 2 (ch 2 paid off): option 1, then "On the first night I went back over my sentence and could not find the joke. This time I did not look."
+- Option 3 (she leans; her weight, Pancake's lean, the low end): "Jo was at the stove with her back to me. She laughed, the low one. Her shoulders went on with it after the sound had stopped. I got up and stood behind her. She leaned back and gave me her weight."
+- My pick: 3. Nothing changed yet.
+- Todd, 5:46 PM: "gave me her weight is not anythng a person would say". Agreed. Offered for the last sentence after "I got up and stood behind her.": 1 "She leaned on me." (Cal's words for the dog in ch 34, "He leaned on me.") / 2 "She leaned back against me." / 3 "She leaned back, and I held her up." My pick: 1. Nothing changed yet.
+- Todd, 5:47 PM: "She is not a dog. I should symbolize their relationship as it is now". Leaning dropped. New proposal, the debt neither settles (ch 18: he has owed her half a linguiça sandwich since May 16 and is "in no hurry to put it down"; ch 31 Frank paid Al Furtado back and lost him; ch 37 "plus what I owe on it" struck): "Over the speaker I heard her pour half a cup. Jo laughed, the low one, with her back to me." / "I still owe you half a linguiça sandwich," I said. "From May 16." / then her last line: 1 "Don't pay it," she said. / 2 "Keep owing me," she said. / 3 "I know. I'm not collecting," she said. My pick: 1. Nothing changed yet.
+- Todd, 5:48 PM: "1". The book now ends: Jo laughed, the low one, with her back to me. / "I still owe you half a linguiça sandwich," I said. "From May 16." / "Don't pay it," she said. In all three places (Vellum: two new paragraphs added with newlines; check the breaks in the end compare). Book plan's ch 38 ending note is now stale.
+- Todd, 5:48 PM, on "Don't pay it," she said.: "This doesn't land". Offered for Jo's last line: 1 "Thirty-year note," she said. "No paying it off early." / 2 "It's a whole one by now," she said. "I charge interest." (ch 6: "so it is a whole one") / 3 Cal gets the last line: "Don't pay it," she said. / "I was not going to," I said. My pick: 1. Nothing changed yet; "Don't pay it" is still in all three places.
+- Todd, 5:49 PM: "Maybe We have time". Applied as typed: the last line is now "We have time," she said. In all three places. Flagged: Jo would more likely say "We've got time" (her "I've got it").
+- Todd, 5:50 PM: selected ", with her back to me" and said "cut". Now: "Jo laughed, the low one." In all three places.
+
+### Ch 38, Cal thinks before the paradise answer (CLOSED: option 1 applied 5:42 PM; asked 5:41 PM Nov 13)
+- Todd selected Cal's "Eating a sandwich anywhere with you," and Jo's "I'll eat to that," and said: "He should give it some thought. Remembering their coursthip." A paragraph goes before Cal's answer. Roots: ch 6/ch 16 the half linguiça sandwich on the atrium bench, May 16; ch 16 the tri tips gone warm in her truck, eaten with the bay in front of them; Schedule A's house on Maui.
+- Option 1: "I gave it some thought. I own a house on Maui. People call that paradise. What I thought of was a bench in my mother's atrium on May 16, and half of a linguiça sandwich. I thought of two tri tips gone warm in her truck, with the bay in front of us. She broke the cookie and gave me the bigger half."
+- Option 2 (shorter): "I took my time. I thought of the bench in my mother's atrium and half of a linguiça sandwich. I thought of two tri tips gone warm in her truck, with the bay in front of us."
+- My pick: 1. Todd, 5:42 PM: "1". Inserted after Dawn's question in all three places (Vellum: new paragraph added with a newline; check the break in the end compare).
+- Todd, 5:43 PM: "moneteray bay". "the bay" is now "Monterey Bay" (ch 16 names it). In all three places.
+
+### Ch 38, "I gave him a new one tonight" (CLOSED 5:40 PM; asked 5:39 PM Nov 13)
+- Todd selected "him" and asked "him who". Answered: Dawn's new client with the nine-line list; "a new one" is a new question. Dawn speaks twice in a row with nothing between, which is why it is unclear. Option 1: one speech, client named: "I've got a woman in Pacifica," Dawn said. "She drives a tow truck. I gave my client a new question tonight. What's paradise to you?" Option 2: cut the paradise exchange (Dawn's line, Cal's sandwich line, Jo's "I'll eat to that"). Option 3: leave. My pick: 1. Todd did not pick; at 5:40 PM he selected Dawn's tow-truck line ("I've got a woman in Pacifica... She drives a tow truck.") and said "cut". Cut in all three places. "I gave him a new one tonight" now follows Jo's "Find him the one who isn't on it," so "him" is clear. The options are closed.
+- Todd, 5:40 PM: selected "him" and typed "my new client". Now: "I gave my new client a new one tonight," Dawn said. In all three places. Flagged the repeated "new".
+- Todd, 5:41 PM: selected the first "new" and said "cut". Now: "I gave my client a new one tonight," Dawn said. In all three places.
+
+### Ch 38, Vili's Saturdays (CLOSED 5:35 PM Nov 13)
+- Todd selected "other" in "and every other Saturday off" and said "cut". Now: "The same week Jo gave Vili the sixteen-footer to run with his own crew, and every Saturday off." In all three places.
+
+### Ch 38, Abby's studio project in the year-on section (CLOSED: option 1 applied 5:33 PM; asked 5:32 PM Nov 13)
+- Todd selected "Abby is in her third year at Cal Poly. Her second-year studio project was an Eichler on a corner lot... She still calls on Sundays." and said: "I dont think this is good enough, it should be a cafeteria for grandma and cal should be working with someone to see if he can make her dream come true". Answers ch 8 (Abby: school cafeterias, "Grandma's didn't have a window", the kitchen gets the glass wall, "your tray from somebody standing in the sun").
+- Option 1 (Abby asks, he does not buy it): "Abby is in her third year at Cal Poly. Her second-year studio project was a cafeteria for the middle school across from my mother's house. The kitchen has the glass wall. My mother worked that line for thirty years and never had a window. In June Abby asked me whether it could be built. I said I would find out. I have met four times with the woman who runs facilities for the district. Abby comes to the meetings and does the talking. She still calls on Sundays."
+- Option 2 (he asks her first): same through "never had a window." then "I asked her whether I could show it to someone. She took a week to say yes. I have met four times with the woman who runs facilities for the district. I have not offered to pay for it. Abby told me not to. She still calls on Sundays."
+- My pick: 1. Todd, 5:33 PM: "1". Applied in all three places. The Eichler-drawn-from-memory project is gone. Book plan ch 38 note not yet updated for this or for the Owen's-app cut.
+- Todd, 5:34 PM: selected "My mother worked that line for thirty years and never had a window." and said "cut". Cut in all three places.
+- Todd, 5:35 PM: selected the whole Starbucks paragraph ("She has my Starbucks login... I read them myself.") and said "cut". Cut in all three places (Vellum: cut with the paragraph break before it).
+
+### Ch 38, Owen's app in the year-on section (CLOSED: option 2 applied 5:29 PM; asked 5:28 PM Nov 13)
+- Todd selected "Since the wedding Owen has asked me to help with his app three times. Each time I changed the one thing he asked about and nothing else." and said "we removed the reference for this". Confirmed: the app appears only in ch 11, ch 12 and ch 38; no scene is left where Cal changes more than Owen asked. Option 1: cut the two sentences; the paragraph becomes "I asked Owen once what he thought of Remy. He said it was fine but slow. I said I would look into it." Option 2: cut the whole paragraph. Option 3: leave. My pick: 1. Todd, 5:29 PM: "2". Whole paragraph cut in all three places (Vellum: cut with the paragraph break before it; check in the end compare).
+- Todd, 5:30 PM: "Append: I asked him once what he thought of Remy. He said it was fine but slow. I said I would look into it." Appended as typed to the Pancake paragraph, after "Owen gives him extra for the head tilt." In all three places. Flagged: "him" follows a "him" that is Pancake.
+
+### Ch 38, "Everything on Mom's list happened" (CLOSED: option 2 applied 5:26 PM; asked 5:25 PM Nov 13)
+- Todd selected it and asked "what list". Answered: Jo's wedding list from the Oak in ch 37 (chairs off the truck, Abby designs the layout, Denise brings a sheet cake, Dad in his chair with his cushion, Owen rules on whether it counts). Ch 38 shows each one and Owen carries her clipboard, but never says what is on it, and "list" reads as Cal's list. Option 1: leave. Option 2: Owen reads it off: "It counts," he said. "Chairs. Abby's layout. Cake. Grandpa's chair. Everything on Mom's list happened." Option 3: say it where the clipboard first appears: "Owen had Jo's clipboard. It had her list from the Oak on it, and a box by each line. He had been carrying it since eight." My pick: 2. Todd, 5:26 PM: "2". Applied in all three places.
+
+### Ch 37, the opening two lines (CLOSED: option 1 applied 5:23 PM Nov 13)
+- Todd selected the roasting-pan opening line and "Will you meet me at the Oak on Friday?" he said., and typed "cut". Asked: 1 cut only the roasting pan, "he said" becomes "Cal said" / 2 cut both and rework. Todd, 5:23 PM: "1". The chapter now opens: "Will you meet me at the Oak on Friday?" Cal said. The roasting pan is now nowhere in ch 37 or 38. In all three places.
+
+### Ch 38, the vows (CLOSED: option 1 applied 5:19 PM; opened 5:18 PM Nov 13)
+- Todd selected Dawn's "What do you want?" exchange (the roasting pan, "I would like to be told where it goes.") and said "This really has not relation to the story". Agreed: the roasting pan first appears in ch 37.
+- Option 1: Jo: "I want him on the low end," she said. "Every time." / "Cal?" / "I would like to be the one she calls." Option 2: keep the roasting pan. My pick: 1 (the piano and Frank's heavy end; "I did not know who else to call").
+- Todd, 5:19 PM: "1". Applied in the chapter file, the manuscript doc and the Vellum book. STILL OPEN, to ask next: the roasting pan in ch 37's first line and ch 38's year-on section.
+
+- Roasting pan: offered 1 leave both / 2 cut ch 38's lines / 3 cut both. Todd, 5:20 PM: "2". Cut from ch 38's year-on section: "About once a week I put Jo's roasting pan away where it does not go. She tells me where it goes. The next time, I put it there. The time after that, I do not." Ch 37's opening line stays. In all three places.
+- Todd, 5:22 PM: "origin of 'I would like to be the one she calls.'" Answered, no change: it is my line from 5:18 PM, not from his draft. It answers ch 32 (Pancake down, "Who did you call?" / "Jo."), ch 33 (Kevin quit calling from the store), ch 37 (Jo calls Cal from the hardware store with nothing to ask), ch 30/34 (his mother wanted him to call; the office line answered for him) and ch 36 (the school calls him).
+
+### Ch 38, the watch (CLOSED: cut 5:17 PM, Nov 13)
+- Todd selected "Every time it does that, I look." and said "cut". The paragraph is now "My watch tapped against my wrist." In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 38, Abby at the piano (CLOSED: cut 5:16 PM, Nov 13)
+- Todd selected "I had not known whether she still could." and said "cut". The paragraph now ends "I had not known whether she could play." In the chapter file, the manuscript doc and the Vellum book.
+- Todd, 5:17 PM: "still play". Now: "I had not known whether she could still play." In all three places.
+
+
+### Ch 38, Cal's dish on the table (CLOSED: applied 5:14 PM, Nov 13)
+- Todd selected the passage and asked "what is it?" The food was never named. Offered 1 name it / 2 leave; Todd: "1". Now: "It was my mother's chicken and rice, in her dish, the one Jo had wrapped in my mother's kitchen and taped green for Woodside." In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Rule from Todd, 5:06 PM Nov 13: numbered choices, one question per reply
+- "don't offer two suggestion where the anwer is yes. I need to be able to indicate which choice". Added to standing.md. The ch 37 greeting question re-asked as 1 / 2.
+
+
+### Ch 37, "Abby squares them up" and a duplicate kiss (OPEN, nothing changed yet, 5:03 PM Nov 13)
+- Todd selected "Abby squares them up." and said "THat's not abby". Option 1: "Abby measures the driveway." (she wore Jo's tape measure in 22; architecture). Option 2: "Abby draws where they go." My pick: 1.
+- Found while reading: the greeting I wrote at 4:50 PM ("I put my hands in it and kissed him, in front of the hostess and the whole bar") spends the same gesture as the proposal kiss later in the scene ("I put my hands in the gray over his ears and kissed him in front of all of them."). The old "I wanted my hands in it" was the setup for that. Proposed greeting instead: "I walked the ten feet and he put his arms around me. I kissed him. He had on the gray shirt. The gray was coming in over his ears. I wanted my hands in it."
+- Todd, 5:04 PM: "I like some variation of 2, but something different"; three variations offered. Todd, 5:05 PM: "Abby designs the layout". Applied: "Abby designs the layout." in all three places. The greeting/duplicate-kiss fix is still OPEN (offered twice, not answered; do not raise again unless he does).
+
+- Todd, 5:07 PM: "1" on the greeting. Now: "I walked the ten feet and he put his arms around me. I kissed him. He had on the gray shirt. The gray was coming in over his ears. I wanted my hands in it." In all three places. CLOSED.
+
+### Ch 37, what is engraved in the ring (CLOSED: GREEN applied 5:02 PM; opened 5:01 PM Nov 13)
+- Todd selected the engraving (62¼ / "Sixty-two and a quarter" / "Without the boots."): "This her height. I can't help but think there's some more meaningful".
+- Option 1: GREEN, their word for keep. Inside the band, engraved small, it said GREEN. / "Green," I said. / "You asked me that about everything in my mother's house," he said. "This is the one I did not have to think about." Option 2: MAY I. Option 3: keep 62¼ (ch 1: he measured her against the list and she was short). My pick: 1.
+- Todd, 5:02 PM: "1". Applied in the chapter file, the manuscript doc and the Vellum book. 62¼ and "Without the boots." are gone from 37 (ch 1's measuring stands).
+
+
+### Ch 37, the champagne (CLOSED: applied 4:59 PM, Nov 13)
+- Todd selected "a nail gun" and typed "the muffler on the 16 footer". Now: "It went off like the muffler on the sixteen-footer." (number spelled out, as elsewhere). In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 37, "I own a number of restaurants" against Schedule A (CLOSED: option 1 applied 4:53 PM; opened 4:53 PM Nov 13)
+- Todd selected "a number of restaurants" and said "I don't think these were on the property list earlier". Correct: ch 31's Schedule A names the Recall shares, Woodside, Maui and the Sunnyvale trust (four pages, not all listed); ch 32 the same.
+- Option 1: add to ch 31 after "A house on Maui.": "A company that owned restaurants." Option 2: leave it; Schedule A is four pages and Jo names only some. My pick: 1.
+- Todd, 4:53 PM: "1". Ch 31 Schedule A now reads "...A house on Maui. A company that owned restaurants. A trust holding a house on West Remington Drive in Sunnyvale." In the chapter file, the manuscript doc and the Vellum book.
+
+- Todd, 4:55 PM: "and other properties". Now: "A company that owned restaurants and other properties." In all three places.
+
+### Ch 37, the greeting at the Oak (CLOSED: applied 4:50 PM, Nov 13)
+- Todd selected "He had on the gray shirt. The gray was coming in over his ears. I wanted my hands in it." and said "They should hug and kiss". That paragraph is removed from after the shrimp; a new one follows "...and hung up.": "I walked the ten feet. He had on the gray shirt. The gray was coming in over his ears. I put my hands in it and kissed him, in front of the hostess and the whole bar. He held on to me after, longer than I did." Claude's wording; told Todd. In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 37, arriving at the Oak (CLOSED: cut 4:45 PM, Nov 13)
+- Todd selected two paragraphs and said "cut": "I put the truck on Minna Street. The curb's a loading zone until six. It was after." and "The oak was still behind the bar." Cut in the chapter file, the manuscript doc and the Vellum book.
+
+- Todd, 4:46 PM: "Undo. You cut too much". Both paragraphs restored in all three places. Asked which part he wanted cut.
+- Todd, 4:47 PM: "cut The curb's a loading zone until six. It was after." Now: "I put the truck on Minna Street." / "The oak was still behind the bar." In all three places.
+- Todd, 4:47 PM: "put" becomes "parked": "I parked the truck on Minna Street." In all three places.
+
+### PENDING, end of this read-through: compare Vellum against the chapter files (noted 4:43 PM, Nov 13)
+- Claude flagged that today's multi-paragraph Vellum insertions may have landed as line breaks inside one paragraph (matched text showed a newline only where Claude had inserted one). Todd: "At the end you can do a compare, but not yet". Do not run it until he says. When run: check paragraph breaks in ch 31, 32, 34, 35, 37 especially, and italics lost in Vellum (ch 29 PAID IN FULL, ch 34 the mother's words).
+
+
+### Ch 37, the thirteenth line (CLOSED: reordered 4:38 PM; opened 4:37 PM Nov 13)
+- Todd selected "*SAYS WHEN HE WAS WRONG.*" and asked "why? This seems unmotivated and out of nowhere".
+- Answer given: the line appears before its reason, and nothing says why Jo would add a line of her own to his list. The reason exists: line twelve is "Says what she wants", and this is her saying it.
+- Proposed reorder: "Twelve was *Says what she wants*. I'd left that one alone. In February I used it." Then the Owen's-app story as it is. Then: "Cal got up off the floor and went in. I dried my hands. Then I went to the fridge and wrote what I wanted under the twelfth. / *SAYS WHEN HE WAS WRONG.*" The paragraph "Under it, in my printing, there was a thirteenth." and "I wrote it in February, the week after Owen turned ten." fold into that ("It was the week after Owen turned ten.").
+- ALSO FOUND, stale after today's changes: manuscript/back-01-list.md, Jo's notes on line 7 ("so he'd never have to come") and line 12 ("she went cold on him. He was eleven..."). Needs updating to match ch 34 and 35. Told Todd.
+- Todd, 4:38 PM: "yes" to both. Ch 37 reordered as proposed. Back-matter list: line 7 note now "He'd sent things all his life. He'd wanted somebody who would want them."; line 12 note now "She never asked him for one thing, so he quit asking and sent her things. He put it on his list so he wouldn't do that to anybody again." In the files, the manuscript doc and the Vellum book (the moved thirteenth line is not italic in Vellum).
+
+- Todd, 4:41 PM: "Why?" (the whole February story). Claude argued to keep it as evidence of change. Todd, 4:42 PM: "We have evidence he's changed we've been building it". Agreed; proposed cutting. Todd, 4:42 PM: "yes". CUT: ch 37 from "In February I used it." through "*SAYS WHEN HE WAS WRONG.*" (162 words); back-matter list line 13; discussion question 10 reworded to "Jo leaves the twelfth line standing. What line would you add? And which line on your own list would you least want to explain?" (Claude's wording, told Todd); the book plan's thirteenth-line row. Ch 38's sentence about Owen's app left. In the files, the manuscript doc and the Vellum book.
+
+### Ch 35, line seven at Jo's table (CLOSED: applied 3:43 PM; opened 3:43 PM Nov 13)
+- Todd selected the line-seven exchange (from "At the fence in June you asked me who wanted *comfortable being looked after*" through "I am in your kitchen") and asked "Maybe we covered this last chapter?"
+- Answer given: yes, since today's change to ch 34 (he sent things hoping one would be what she wanted; what she wanted was for him to call). Ch 35 also now disagrees with it ("That way I would not have to come"). But the card needs seven struck here, and "And when she doesn't?" / "I am in your kitchen." is the turn worth keeping.
+- Proposed: replace "At the fence in June... my mother's clock." / "I remember." / "That was half of it... never be in the room." with one line: "You heard most of it on my mother's hearth," he said. "I sent things. I wanted someone who would want them." The rest stands.
+- Todd, 3:43 PM: "yes". Applied in the chapter file, the manuscript doc and the Vellum book. Gone from 35: the mother's clock, "through the wall", "from the back of a car".
+
+
+### "Pancake can lay down in the kitchen." (CLOSED: applied 3:39 PM, Nov 13)
+- Todd selected "can" and typed "go". Now: "Come in. Pancake, go lay down in the kitchen." (comma added, so she is speaking to the dog). In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 34, Jo at her truck (CLOSED: applied 3:35 PM, Nov 13)
+- Todd selected "to" and typed "and say hi to". Now: "Go home and say hi to Pancake," she said. In the chapter file, the manuscript doc and the Vellum book.
+- Todd, 3:36 PM: "Pancake for me". Now: "Go home and say hi to Pancake for me," she said. In all three places.
+
+
+### Ch 34, "I did not build that dog" (CLOSED: applied 3:30 PM; opened 3:30 PM Nov 13)
+- Todd selected the paragraph ending "I had left her off the list for thirty-six years." and said "Maybe not just the dog? This seems important".
+- Proposed, adding three things already in the book between the shelter and the last sentence: "She bought me a rock tumbler when I was nine. She handed me a tray five days a week for three years. She bought my daughter a piano at a hundred dollars a month and never told me. She had held me up my whole life and asked me for nothing."
+- Todd, 3:30 PM: "yes". Applied in the chapter file, the manuscript doc and the Vellum book.
+
+- Todd, 3:31 PM: "Too abstract". Offered: cut "She had held me up my whole life and asked me for nothing." or replace it. Todd, 3:32 PM: "1". Cut in all three places.
+- Todd, 3:33 PM: selected "I did not build that dog. I did not pay for him. My mother drove to the county shelter and got him." and typed "She bought me materials for all my projects without asking why." Applied as "My mother bought me materials for all my projects without asking why." ("My mother" so "She" has someone to point at). The dog sentences are gone from the paragraph; told Todd. In all three places.
+- Todd, 3:34 PM: "No, my selection didn't include the dog". The selection range I was given covered the dog sentences, so I misread what he meant to replace. Dog sentences restored; his sentence now follows them as "She bought me materials for all my projects without asking why." In all three places. Lesson: when a typed replacement would delete something that matters, ask before applying.
+
+### Ch 34, where line twelve comes from (CLOSED: applied with Todd's angle 3:07 PM; opened 3:05 PM Nov 13)
+- Todd selected the line-twelve explanation (his mother "went cold", the report card, Jo's "I did that. To you. Since the twelfth." / "Ten days.") and said: "This part still feels forced. The she went cold is a lot like going quiet. It would be powerful to come up with something better".
+- Proposed: his mother never said what she wanted because she always said she wanted nothing. Every birthday: "Nothing, Calvin. I have everything I need." So he guessed, and sent things; the last three guesses are the boxes on the hearth. Jo hears her own "I've got it." The one time his mother said it is the voicemail that follows.
+- Draft (replaces from "When something hurt my mother, she went cold" through "Ten days."):
+  - "Every year I asked my mother what she wanted for her birthday," I said. "From when I was six. She said the same thing every year. *Nothing, Calvin. I have everything I need.*"
+  - "So what did you get her?"
+  - "The first year, a potholder I made at school. After 2009, whatever Janice chose." I looked at the boxes with the blue tape on them. "She did not open them. I thought I kept guessing wrong. I put it on the list so I could stop guessing."
+  - Jo looked down at her hands, at the tape-gun callus across the palm of the left one.
+  - "I've got it," she said. "I've said that to you since the first night."
+  - "Four times."
+  - "Did she ever tell you?"
+  - "Once."
+- Knock-on lines later in the chapter that say "went cold": "The first time she went cold was that week." (cut); "When she ignored me, he leaned on me." (becomes "He leaned on me."); Jo's "She knew she'd gone cold on you. So she went and got you something to lean on." (becomes "She couldn't say it. So she went and got you something to lean on.").
+- Claude's inventions: six, the potholder, 2009 (Janice has written his messages since 2009, ch 6), "Four times" (the beer, her bag, lunch, the truck, per ch 28).
+- Todd, 3:07 PM: "That's good. Mothers tend to be selfless, which is why the get ignored and taken for granted. People forget they exist. That angle might be better". Applied with that angle: "And you believed her." / "It was easier. She fed four hundred children a day and me. She did not ask for one thing. After a while I stopped asking her. I sent what Janice chose." ... "By the end I did not think of her as someone who could want anything. I put it on the list so I could not do that to anyone again." / Jo: "I've got it. I've said that to you since the first night." / "Four times. I believed you every time." / "Did she ever tell you?" / "Once." The potholder line dropped. The three later "cold" lines changed as listed. Claude's: four hundred children. In the chapter file, the manuscript doc and the Vellum book (Vellum has no italics on the mother's words).
+
+- Todd, 3:10 PM: "It's good origin of him sending things too. Cal sends things to his mom hoping one of them will be what she wants." Applied in two places: "After a while I stopped asking her. I sent things. I kept hoping one of them would be what she wanted." (was "I sent what Janice chose.") and, after the voicemail, "I sent her things for forty years. What she wanted was for me to call." (was "I sent her things so I would not have to call."). In all three places. Told Todd both are his idea in my words.
+- Todd, 3:11 PM: "and christmas". Now: "what she wanted for her birthday and Christmas". In all three places.
+- Todd, 3:12 PM: Jo's "And you believed her." becomes "Mothers are like that." Cal's reply now opens "I believed her. It was easier." so it still follows (added, told Todd). In all three places.
+- Todd, 3:13 PM: cut "I believed her. It was easier." Cal's reply now opens "She fed four hundred children a day and me." In all three places.
+- Todd, 3:15 PM: "By the end I did not think of her as someone who could want anything." becomes "By the end I think I just gave up." In all three places.
+- Todd, 3:16 PM: cut "and me". Now: "She fed four hundred children a day." In all three places.
+- Todd, 3:17 PM: "in order" becomes "figured out": "I did not have it figured out." In all three places.
+- Todd, 3:19 PM: cut "Once." and "I looked past her, through the open kitchen, at the yellow phone on the wall by the back door. She turned her head and looked at it too." Now "Did she ever tell you?" is answered by "She called me from that phone," I said. "Two days before she died." Flagged: "that phone" now has nothing pointing at it. In all three places.
+- Todd, 3:20 PM: "Add back the yellow phone look". The paragraph is back before "She called me from that phone"; "Once." stays cut. In all three places.
+- Todd, 3:26 PM: Jo's "She couldn't say it. So she went and got you something to lean on." (my rewording of the "gone cold" line) "Doesn't fit". OPEN. Option 1: "She knew whose name it was," Jo said. "She called it every night anyway." Option 2: "She went and got you something to lean on," Jo said. My pick: 1. Todd, 3:28 PM: "1". Applied in the chapter file, the manuscript doc and the Vellum book.
+
+### Ch 34, the three boxes on the hearth (CLOSED: the call applied 3:01 PM; opened 2:58 PM Nov 13)
+- Todd, 2:46 to 2:53 PM: asked what else was cut and to compare later chapters. Answered from git: ch 34 lost only Millbrae, "No piano man" and "Then you should not tell me."; ch 35, 36, 37 lost nothing in the batch; the Epilogue's cuts were Todd's own 7:48 PM rewrite. The 10:11 PM commit (Nov 4 to 8 work) not diffed.
+- Todd selected the hearth passage (the three boxes, the tablet, "Office of C. Brennan", "Blue") and said "I feel this doesn't pay off".
+- Opinion given: agreed. The boxes wait fourteen weeks and the opening gets no reaction; the real payoff is two pages later ("You, Calvin. Not Janice.") and nothing ties the two together.
+- Proposed: one plain line after "The one contact said *Office of C. Brennan.*": "I had sent my mother a way to call Janice."
+- Todd, 2:59 PM: "What can we do that's much better?"
+- Proposed: he presses the one contact, and his own voice answers. Remy made it out of him. He hears what his mother would have got if she had called. Draft, replacing from "I turned it on." to "Jo read it over my shoulder. She did not say anything.":
+  - I turned it on. It had its own service. Janice had thought of that. The one contact said *Office of C. Brennan.*
+  - I pressed it.
+  - It rang twice. Then my own voice said, "You have reached the office of Calvin Brennan. He is in a meeting. I can take a message for him, or I can find you a time."
+  - I had never recorded it. Remy had made it out of me.
+  - "Is that you?" Jo said.
+  - "No," I said. "That is what she would have gotten."
+  - I ended the call.
+  - "Blue," I said. Then: "All three. Blue." (as now)
+- Claude's inventions: the tablet's own service; Remy answering in his voice with those words.
+- Todd, 3:01 PM: "ok, but it won't be powered". Applied with: "It was dead. I plugged the stand into the outlet beside the hearth and we waited. It took six minutes to wake." In the chapter file, the manuscript doc and the Vellum book.
+
+- Todd, 3:02 PM: "He needs to react somehow" (after the call). OPEN. Option 1, after "I ended the call.": "My hands were not steady. I was ashamed. I had built that, and I had sent it to my mother." Option 2: "I sat back on my heels. I had sent my mother my office for Mother's Day, seven months after she died, and nobody had stopped it. I had not known it went." My pick: 1. Todd, 3:03 PM: "1". Applied in the chapter file, the manuscript doc and the Vellum book.
+- Todd, 3:03 PM: selected "and we waited. It took six minutes to wake" and said "cut". Now: "It was dead. I plugged the stand into the outlet beside the hearth. It had its own service. Janice had thought of that." In all three places.
+
+### Ch 34, the Millbrae telling (CLOSED: restored 2:45 PM; opened 2:44 PM Nov 13)
+- Todd selected six paragraphs of Jo telling Cal about Millbrae and said "something got cut here". Confirmed by diff against git (before commit 5eb5051): the November 8 batch condensed it. Gone: the son carrying his own boxes to his father's trunk; "What did she say?" / the hygienist, twenty-six, "Fifteen years she didn't need to work."; "And money?" / no pay stub since Nixon, every card in his name; Daly City, the back bedroom; "What did you do?"; "And the son?" / "Went with him." Added that night: "On the first Saturday I had sat in my car at this curb for forty-one minutes." Changed: "Then you should not tell me." to "You should not be telling me."
+- Offered: restore the old exchange word for word and keep the forty-one-minutes line.
+- Todd, 2:45 PM: "restore". The old exchange is back word for word, with the forty-one-minutes line kept after the first paragraph. "You should not be telling me." left as is. In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 34, Jo on her father's knees (CLOSED: applied 2:40 PM, Nov 13)
+- Todd selected ", and he drove" and typed ". I let him drive". Now: "I said it to my dad in July. I let him drive the sixteen-footer for a week on those knees." In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 34, "You would not show it to me." (CLOSED: applied 2:38 PM, Nov 13)
+- Todd selected "not show it to me" and typed "have done it too". Now: "I know. You would have done it too." In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 34, Cal's "No." to "It wasn't the money." (CLOSED: option 1 applied 2:36 PM; opened 2:35 PM Nov 13)
+- Todd selected Cal's "No." and said "reveal character". Jo's next line is "I know. I read your letter.", so his answer has to agree with the letter ("I wanted it to be this year, while he is nine").
+- Option 1: "No. I did not want to wait ten years to see you rest." Option 2: "No. I wanted to be standing in your driveway." (his thought from ch 18, never said aloud; not in the letter). My pick: 1.
+- Todd, 2:36 PM: "1". Applied to the chapter file, the manuscript doc and the Vellum book.
+
+- Todd, 2:37 PM: selected "No. " and said "cut". Now: "I did not want to wait ten years to see you rest." In all three places.
+
+### Ch 34, "No piano man" restored (CLOSED: applied 2:09 PM, Nov 13)
+- Todd selected the "a" in "I'm not calling a piano man" and typed "it"; asked what he meant and told the line was his "No piano man" until the November 8 batch. Todd: "yes, restore it". Now: "No piano man," she said. "You bet you're on the low end. With Vili." In the chapter file, the manuscript doc and the Vellum book.
+
+- Todd, 2:11 PM: "remove the initial no piano man. Change to: You bet you're on the low end no piano man." Now: "You bet you're on the low end, no piano man," she said. "With Vili." (comma added, "she said" kept). In all three places.
+- Todd, 2:13 PM: "Didn't we have a bet earlier on the garage? He lost". Answered: ch 4, she offered an extra Saturday, he said "I do not gamble." Offered a payoff line. Todd, 2:33 PM: "above" (taken as: add it). Added after "Green," I said.: "Good thing you don't gamble," she said. And "You bet" dropped: "You're on the low end, no piano man," she said. "With Vili." In all three places.
+
+### Ch 34, the garage (CLOSED: cut 2:06 PM, Nov 13)
+- Todd selected "I don't give the keys back on a room I haven't been in." and said "cut". Jo's line now ends "Everybody forgets the garage." In the chapter file, the manuscript doc and the Vellum book.
+
+
+### The refrigerator nook in Darlene's house (CLOSED: option 1 applied 2:04 PM; opened 2:04 PM Nov 13)
+- Todd selected "nook where the refrigerator had been" and asked "when did they get rid of the refrigerator". Answer: never on the page; no chapter shows it leaving, and a house being sold usually keeps its refrigerator.
+- Option 1: "She opened the oven. She opened the refrigerator." Option 2: cut the sentence. My pick: 1.
+- Todd, 2:04 PM: "1". Applied to the chapter file (ch 34), the manuscript doc and the Vellum book.
+
+
+### "What's the other plan?" (CLOSED: applied 1:57 PM, Nov 13)
+- Todd, 1:49 PM, asked whether Denise's revised payoff date came out later than November 2036. Answered: yes, but Cal's letter quotes what Jo said in July; nothing changed.
+- Todd selected "the other plan" and typed "your plan B". Now: "What's your plan B?" In the chapter file, the manuscript doc and the Vellum book.
+- Todd, 1:58 PM: selected "anything." and typed "a plan A let alone a plan B". Now: "I didn't have a plan A, let alone a plan B." (comma added). In all three places.
+
+
+### Cal's letter, "He stood up" (CLOSED: applied 1:46 PM, Nov 13)
+- Todd selected "He" and typed "Pancake". Now: "The hospital called at 4:10 this afternoon. Pancake stood up. He ate." In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 32, moving Abby's lunch to the drop-off (CLOSED: applied 1:37 PM; opened 1:36 PM Nov 13)
+- Todd selected the paragraph where Abby picks the bag up off the car seat: "I think I wanted this when he dropped her off to college as sign of change. Putting it her doesn't show development".
+- Found: the drop-off is not on the page anywhere. Ch 33 reports it in Abby's texts to Jo (the lunch, the hug) and ch 38 mentions the Starbucks login. The November 9 plan put the lunch before the drive.
+- Proposed: cut the kitchen paragraph after Dawn's call and the bag from the car paragraph; add a short scene at the end of 32 at her dorm with all three acts (lunch, login, hug). Draft:
+  - *** / We were at her dorm at 10:48. I carried eleven boxes up two flights. She told me where each one went.
+  - At the curb I gave her a paper bag with ABBY on it. I had made it at five that morning. Peanut butter on both pieces of bread, out to the edge, jelly between them, cut in half, and an apple. It was the first lunch I had made her. She was eighteen.
+  - She looked in the bag. "You cut it in half," she said.
+  - I sent her the login for my Starbucks account. "You do not have to tell me when you use it," I said.
+  - Then she hugged me. I did not let go until she did.
+- Also needed either way: ch 33's text "*He made me a lunch for the car. Butter out to the edge.*" no longer matches (peanut butter; and "for the car" if the lunch moves).
+- Claude's inventions in the draft: 10:48, eleven boxes, two flights, "You cut it in half".
+- Todd, 1:37 PM: "yes". Applied with no ornamental break: the scene opens "At 10:48 we were at her dorm in San Luis Obispo." Ch 33's text is now "*He made me a lunch. Peanut butter out to the edge.*" In the chapter files, the manuscript doc and the Vellum book.
+
+
+### Ch 32, Abby's lunch (CLOSED: peanut butter and jelly applied 1:32 PM; opened 1:31 PM Nov 13)
+- Todd, 1:28 PM: "IS there any place else this happened". Answered from the November 8 batch: ch 34's Millbrae telling cut, three things moved from the Epilogue to the Second Epilogue, Remy's plan cut to three items, ch 1's "So you don't need me." Not re-read against git yet; offered side by side on request.
+- Todd selected "I buttered two pieces of bread out to the edge, put a tomato between them and cut it in half." and said "That's a bad sandwitch". The butter to the edge is Jo's rule from ch 11 ("It keeps the wet off"); the sandwich has nothing in it but tomato.
+- Option 1: "I buttered two pieces of bread out to the edge, put turkey and a slice of tomato between them and cut it in half." Option 2: the same with cheese. My pick: 1 (Jo's lunch for him in 30 was turkey).
+- Todd, 1:32 PM: "Or penut butter jelly. That kind of goes back to chidhood". Now: "I spread peanut butter on two pieces of bread, out to the edge, put jelly between them and cut it in half." Peanut butter on both pieces keeps Jo's ch 11 rule (it keeps the wet off). In all three places.
+
+
+### Ch 32, Dawn's billing records (CLOSED: pre-November 8 text restored 1:28 PM; opened 1:27 PM Nov 13)
+- Todd, 1:24 PM: "so why was it removed?" Answered: the log gives no reason; most likely Claude applied the "theory of a type" rule from the dialogue review to a theory Todd had brought in himself. Wrong call.
+- Todd, 1:27 PM: "Why would she bring billing records? Doesn't make sense". Answer given: it was Claude's November 8 invention, a lawyer hearing "work" as her job and bringing proof. The therapist was asking about the marriage, so it does not hold.
+- Proposed: go back to the text from before November 8 in the three places it was changed:
+  - "Because a man that far gone will do the work. He'll give things up." / "And if she is the one?" / "Then she does all of it." There was a clank behind her, somebody setting something down. "I hated that woman for saying it. I paid her for two more months so I could keep hating her."
+  - "I knew which one I was. I had not done the work." (now: "I would have brought my billing records too. I had not done the work.")
+  - "Which one were you?" I said. (now: "Who did the work?")
+- Todd, 1:28 PM: "yes". All three restored in the chapter file, the manuscript doc and the Vellum book. The billing records are gone from the book.
+
+
+### Ch 32, Dawn's "who loves more" rule (CLOSED: rule restored 1:23 PM; opened 1:22 PM Nov 13)
+- Todd selected the Dawn call around "Good." and asked "Do we lose something here? I though there was a bit about who loves more".
+- Answer given: yes. On November 8 at 11:31 PM, in the batch after the outside critique ("Make all the changes you think will make the book better"), Claude replaced the two-kinds-of-marriage rule with "she asked me who did the work" and the billing records. Git has the old text (before commit 5eb5051). What is left of it now is "Which of you was more in love?" / "They were." and "Good.", which no longer gets its reason.
+- Proposed: put the rule back in front of the billing records, so both stay:
+  - "...to tell me why." I heard her shift. "Third week, she told me."
+  - "What did she tell you?"
+  - "That two kinds of marriage last. They love each other the same. Or he's gone on her. Out of his mind. More than she is."
+  - "And the third kind?"
+  - "She loves him more." She drank. "That one doesn't make it."
+  - "Why not?"
+  - "Because a man that far gone will do the work. Then she asked me who did the work in mine."
+  - "What did you tell her?"
+  - "Me. Sixty hours a week. I brought her my billing records." (rest as now)
+- Todd, 1:23 PM: "yes". Restored in the chapter file, the manuscript doc and the Vellum book. Lesson: a change made in a "make the book better" batch can remove something Todd valued; when one is found, say whose change it was and offer the old text.
+
+
+### Ch 32, Cal's "Jo," to Dawn (CLOSED: option 1 applied 1:16 PM; opened 1:14 PM Nov 13)
+- Todd selected "Jo," I said. (after Dawn's "If it was you on that floor tonight, who would Abby call?" / "Janice." / "Janice leaves on the twenty-eighth.") and said "Really?"
+- Answer given: no. As an answer to Dawn's question it is wrong; Abby would call her mother, and Jo has not spoken to him in ten days. What the line is reaching for is that Jo is who he called tonight.
+- Option 1: "Tonight I called Jo," I said. Option 2: "I do not know," I said. "Tonight I called Jo." My pick: 1.
+- Todd, 1:16 PM: "1". Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 32, Cal's answer to "You should call Abby" (CLOSED: applied 1:10 PM, Nov 13)
+- Todd selected "That was my plan." and typed "Maybe: All right." Now: "All right." In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 32, the red lights (CLOSED: cut 1:02 PM, Nov 13)
+- Todd selected ", looked both ways" and said "cut". Now: "At each one I slowed and went through, with my arm between the seats." In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 31, 32 and 37, the pencil line running off the page (CLOSED: applied 12:55 PM; opened 12:54 PM Nov 13)
+- Todd selected "It did not fit. It went off the end of the line and down the margin, the last two words turning the corner at the bottom of the page." in ch 32 and said "I think it would fit". He is right: with the father's-name clause cut, the line is short enough to fit. I should have caught it when I proposed the cut.
+- Proposed: ch 32, cut those two sentences. Ch 31, cut "It didn't fit. It went off the end of the line and down the margin." Ch 37, "My printing still ran off the end of the line and down the margin. He hadn't added a word to it." becomes "My printing was still there. He hadn't added a word to it."
+- Todd, 12:55 PM: "yes". All three applied in the chapter files, the manuscript doc and the Vellum book.
+
+
+### Ch 31 and 32, "my father's name on the doors since 1987" on Schedule B (CLOSED: option 1 applied 12:53 PM; opened 12:52 PM Nov 13)
+- Todd selected ", my father's name on the doors since 1987" in ch 32 and said "Not sure this fits".
+- Opinion given: it is the one part of the line that is not property, and it reads like the company's slogan; nothing in 32 reacts to it (Cal reads only "what I owe on it").
+- Option 1: cut the clause in both chapters ("Silveira Moving & Estate, three trucks."), and in 32 "the last four words turning the corner" becomes "the last two words". Option 2: keep. My pick: 1.
+- Fixed at the same time, my miss from this morning: ch 32 still had Cal rereading "*And what I owe on it.*" after Todd changed the pencil line to "plus". Now "*Plus what I owe on it.*" in all three places. Told Todd.
+- Also carried through, same miss: ch 34 ("You wrote *plus what I owe on it.*") and ch 37 (she draws a line through *plus what I owe on it*), in all three places, and the book plan and character sheet mentions.
+- Todd, 12:53 PM: "1". The line now ends "Silveira Moving & Estate, three trucks." in 31 and 32; in 32, "the last two words turning the corner". In the chapter files, the manuscript doc and the Vellum book.
+
+
+### Ch 32, Cal's "My face went hot." (CLOSED: Todd's line applied 12:48 PM; opened 12:46 PM Nov 13)
+- Todd selected "My face went hot." (after Abby's "She wouldn't promise.") and said "Something better".
+- Read first: how Cal sounds in his own head (he reports feelings as readings; his watch tells him his pulse). The watch tap runs through ch 2 to 26 and has not been used since.
+- Option 1: "My watch tapped against my wrist. I let it." Option 2: "She had not promised. I went over it twice." Either is followed by "I put my keys in my pocket so that I would have somewhere to put my hand."
+- My pick: 1. What he does not say is that he hopes.
+- Todd, 12:48 PM: "We don't always need show not tell. Maybe: That gave me hope or something". Both options dropped. Now: "That gave me hope. I put my keys in my pocket so that I would have somewhere to put my hand." In the chapter file, the manuscript doc and the Vellum book. Rule added to standing.md.
+
+
+### Ch 31, "turned his hand over under mine" (CLOSED: option 1 applied 12:42 PM; opened 12:40 PM Nov 13)
+- Todd selected "over under mine" and typed "?".
+- Answer: her hand was on top of his at Ventana (ch 27); he turned his palm up beneath it and held hers. "Over under" reads as a tangle.
+- Option 1: "he'd turned his hand palm up under mine and held on, and looked at me, and waited." Option 2: "he'd turned his hand over and held mine, and looked at me, and waited." My pick: 1.
+- Todd, 12:42 PM: "1". Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 31, Frank's "I didn't talk to you till July" (CLOSED: applied 12:37 PM; opened 12:36 PM Nov 13)
+- Todd selected the four paragraphs from "After your mother," he said, "I didn't talk to you till July." through "He didn't look at me when he said it." and said "This is another going silent thing we need to change."
+- Read first: Frank on the sheet ("Everyone carries an end"), Jo's wound (the winter of the knee, 1990: a man from the parish paid the truck note for three months and everybody knew who; she tells Cal in 34), and this chapter's Sunday night, when she set up a monthly payment for the house.
+- Proposed: Frank owns what he did with that man's help, which is what Jo started doing to Cal the night before.
+  - "The winter my knee went," he said, "Al Furtado paid the note on the truck. Three months."
+  - "I know, Dad."
+  - "I paid him back by Labor Day. He didn't want it. I made him take it. He quit coming by the yard after that. I shouldn't have done it."
+  - He'd never brought up that winter to me. He didn't look at me when he said it.
+- Claude's inventions: the name Al Furtado, Labor Day, that the man stopped coming by. Plants 34's "A man from the parish paid my dad's truck note for three months."
+- Todd, 12:37 PM: "yes". Applied without the cap gesture. In the chapter file, the manuscript doc and the Vellum book. Book plan updated.
+
+
+### Ch 31, the coffee story after the affair (CLOSED: one line changed 12:33 PM; opened 12:30 PM Nov 13)
+- Todd selected the coffee story ("Dawn looked at her cup." through "On the stairs I heard her pour.") and said "In light of the affair we need to adjust this".
+- Problem: "That was love, Joanna. I just didn't see it." now describes a man who had two or three affairs, and the story does not say when the coffee was.
+- Proposed, two paragraphs change: the coffee moves into the two years after the affair, and Dawn picks up Jo's "I made up my mind" from the line before.
+  - "After the affair he kept my coffee hot," she said. "Nights I had a file on the kitchen table. Two years. Every time I reached for the cup, it was hot. I'd made up my mind about him. I drank it and didn't look up."
+  - "That was him being sorry, Joanna. I just didn't see it." She reached for the pot. "Go get your truck."
+- Ch 20's "That was love, Cal" (the back row at her first trial) is from before the affair and stands.
+- Todd, 12:33 PM: "No, I like the that was love, but let's say something like: I could see the love through the affairs". Proposal dropped. Applied: "That was love, Joanna. I couldn't see it through the affairs." (taking "could" as "couldn't"; told Todd). The coffee paragraph is unchanged. In all three places.
+
+
+### Ch 31, Dawn's question (CLOSED: applied 12:27 PM, Nov 13)
+- Todd selected "calling" and typed "texting". Now: "Has he stopped texting you?" she said. In the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 31, the wives Dawn sent Jo to move (CLOSED: cut 12:17 PM; opened 12:16 PM Nov 13)
+- Todd selected from "When I was practicing, I sent you some of my clients to move" through "She put her hand on everything that was hers." and said "I'm a little lost as to what these examples are accomplishing".
+- Answer given: they exist to reach one line, why Dawn checked line twelve ("you tell me no before I've finished asking"). Three wives is a long way round; since the affair story it is a second lesson on top of the first; it leaves "Can you?" unanswered; and Jo names the Millbrae wife to Dawn, though by the book plan she tells nobody about Millbrae until Cal in 34.
+- Proposed: cut the eight paragraphs and replace the ninth ("That's what she had, Joanna...") so the scene goes from "Can you?" to: "Why'd you check twelve?" I said. / "Because you tell me no before I've finished asking," she said. "I had that down as a woman who says what she wants." Then Kevin's line in italics, as now.
+- Todd, 12:17 PM: "yes". Cut from the chapter file, the manuscript doc and the Vellum book. Gone from 31: the Hillsborough bracelets callback, the Atherton wife, Jo's Millbrae wife line, "That's what she had, Joanna. I asked what she wanted."
+
+- Todd, 12:20 PM: selected "you" and typed "you would". Now: "Because you would tell me no before I've finished asking," she said. In all three places. Told him "I've" may want to be "I'd"; not changed.
+
+### Ch 31, Dawn's affair made longer and disrespectful (CLOSED: applied 11:53 AM, Nov 13)
+- Todd: "I want to change this so she says: He had an affair. Or two. Or three. Is should have been longer than a month an disrespectful".
+- Now: "You never asked," Dawn said. "He had an affair. Or two. Or three." / I waited. / "The one I know about went on a year and a half. She'd been to our house. I poured her a drink in my own kitchen. Everybody he worked with knew before I did." She turned the pen over. "I didn't throw him out. I'd done four hundred divorces. I knew what it cost. He ended it. He stayed two years after that and did everything right. I couldn't see any of it. He'd make me laugh at dinner. Then I'd remember, and I'd make him pay for the laugh."
+- Changed without being asked, because "a good man who did one thing" no longer fits two or three affairs: "What he did was rotten, Joanna. He was good to me for two years after it. The affair was still the only thing I could see. I can't tell you how to stop. If I knew, I'd still be married." Told Todd.
+- Claude's details, to strike if wrong: a year and a half, the woman at their house and the drink, everybody he worked with knowing first. "He told me himself" is gone.
+- In the chapter file, the manuscript doc and the Vellum book. Dawn's sheet and the book plan updated.
+- Todd, 11:55 AM: selected "He was good to me for two years after it." and typed "We started with an ideal marriage." Now: "What he did was rotten, Joanna. We started with an ideal marriage. The affair was still the only thing I could see. I can't tell you how to stop. If I knew, I'd still be married." In all three places.
+- Todd, 11:57 AM: selected "If I knew, I'd still be married." and typed "I couldn't get past the resentment. Can you?" Now the paragraph ends: "I can't tell you how to stop. I couldn't get past the resentment. Can you?" In all three places.
+
+- Todd, 12:25 PM: after "Or three." add "something like: As a divorce lawyer it was so cliche I was almost embarrassed". Now: "He had an affair. Or two. Or three. For a divorce lawyer it was such a cliché I was almost embarrassed." In all three places.
+
+### Ch 31, Jo's "No." to "You know how my marriage ended?" (CLOSED: option 1 applied 11:52 AM; opened 11:52 AM Nov 13)
+- Todd selected Jo's "No." and said "reveal character".
+- Read first: Jo's sheet and ch 27 ("Mine is I don't ask"), Dawn's sheet (wants, underneath: for someone to ask what she wants; nobody has in ten years), and Jo's line to Stephanie in the same chapter, "Nobody's asked me anything."
+- Option 1: Jo: "You never said." / Dawn: "You never asked," Dawn said. "He had an affair."
+- Option 2: Jo: "I never asked." / Dawn: "Nobody does," Dawn said. "He had an affair."
+- My pick: 1. Jo does not ask and thinks people will tell her; Dawn has waited ten years to be asked. Dawn hands Jo back her own complaint from an hour earlier.
+- Todd, 11:52 AM: "1". Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 31, Dawn's dishwasher line again (CLOSED: the affair version applied 11:51 AM; opened 11:19 AM Nov 13)
+- Todd selected the whole paragraph and said "This still doesn't sound right." (Reworked November 8; rejected then: "getting it right", "say it right", the legal pad, "I loved him".)
+- Read first: Dawn's engine (she waits until she has it in order; in her marriage that was wrong) and the November 8 entries (Todd: she took him for granted, "for her it was her due").
+- What reads wrong: nothing connects the dishwasher to the apology, "we talked about" hides who was doing it, and "What I owed him was an apology" is a written sentence, not a spoken one.
+- Proposed, one version: "Every night for a year I told him he was loading it wrong. I knew I owed him an apology. I started a list of what for, so I wouldn't leave anything out." She laughed, not much. "I finished it in March. He moved out in February."
+- Todd, 11:21 AM: "Let's forget needing the dishwasher and come up with something an insightful person might say that reflects on cal and jo."
+- Read the rest of the scene first. Later Dawn says "You could text him two words. 'Not yet.' He'd know you're still there." and Jo has just told Stephanie "I'll talk to him when I've got something to say." So Dawn's own story is the same silence seen from the other side.
+- Proposed, one version (replaces "The dishwasher." and the paragraph after "I waited."):
+  - "Quietly."
+  - I waited.
+  - "I knew something was wrong with us, and I wasn't going to say a word until I'd worked out what. It took me a year. All he saw was a wife who'd stopped talking." She laughed, not much. "I had it worked out in March. He moved out in February."
+- Todd, 11:22 AM: "Not Quitely. That's way too over used already in this book." Lesson: "quiet" and "quietly" are overused in this book; do not add more.
+- Option 1 for Dawn's short answer: "While I was thinking." Option 2: no short answer and no "I waited."; Dawn goes straight into the paragraph after Jo's "No." My pick: 1. The paragraph is unchanged.
+- Todd, 11:35 AM: not "stopped talking" either, already overused. He wants resentment: a breach in connection or trust, something that happened in Dawn's life, unspoken expectations ("Just tell me what to clean!"), scorekeeping, everything becoming evidence, the love still there but not findable. "Jo trusted Cal to his word." He pasted three sources on resentment in marriage (situations only, never their lines). Lesson: "stopped talking" is overused too.
+- Found: ch 4, Dawn cleared her mother's garage herself, every Saturday for a month. Ch 20 and the coffee story in 31 both end "That was love. I didn't see it." A year of holding it against him explains why she could not see it.
+- Proposed, one version (replaces "The dishwasher." and the paragraph after "I waited."):
+  - "In my mother's garage."
+  - I waited.
+  - "I cleared it myself. Four Saturdays. He never came. I never asked him. I thought a husband would know." "I held it against him for a year and never said so. Everything he did after that went in the file. I was going to take it to him when I had it in order." She laughed, not much. "I had it in order in March. He moved out in February."
+- Todd, 11:37 AM: "In the file is oversued. And this should be expanded on. It doesn't hit hard. It's not a lesson or a story for a patient". Lesson: "in the file" is overused; he wants a full story with a lesson in it, told to someone who needs it.
+- Proposed, expanded (replaces "The dishwasher.", "I waited." and the paragraph after it):
+  - "In my mother's garage."
+  - "I was in the driveway," I said.
+  - "You were. He was at home." The dish was on the shelf behind her. She didn't turn around. "The first Saturday he stood in our kitchen with his keys and asked if I wanted him to come. I said I was fine. I wanted him to come anyway. I thought a husband would know that."
+  - "Four Saturdays," she said. "He believed me every time. After that I kept count. He went to a ball game. He left his shoes in the hall. He asked me what was for dinner. I had him convicted by Christmas. He didn't know there'd been a trial."
+  - "Did you tell him?"
+  - "I was going to, when I had it in order." She laughed, not much. "I had it in order in March. He moved out in February. He said he was tired of living with somebody who didn't like him." She picked the pen back up. "I liked him, Joanna. I was mad about a garage."
+  - "Whatever he did, it's one thing," she said. "Keep it one thing."
+- Claude's inventions, to strike if wrong: the husband asking with his keys in his hand, the ball game, the shoes, dinner, what he said when he left.
+- Todd, 11:50 AM: the garage version "doesn't make a lot of sense and it isn't good enough. How about he cheated", with a pasted post from a woman who resents her husband: he has good qualities and there is a lot to save, but all she can see is "that one thing", she acts horribly, he acts back, and she wants to know how to let go (situation only, never the lines).
+- Checked against the book: ch 20 (he sat in the back row, "That was love"), the coffee story in 31, ch 30 (she has not slept much since her divorce) and ch 32 (her therapist asked who did the work; she brought billing records). An affair he ended, followed by two years in which he did the work and she could not see it, fits all four.
+- Proposed (replaces "The dishwasher." and the paragraph after "I waited."):
+  - "He had an affair."
+  - I waited.
+  - "It was a month. He ended it and he told me himself. I didn't throw him out. I'd done four hundred divorces. I knew what it cost." She turned the pen over. "He stayed two years after that and did everything right. I couldn't see any of it. He'd make me laugh at dinner. Then I'd remember, and I'd make him pay for the laugh."
+  - "I told myself I'd forgive him when I was done being angry." She laughed, not much. "I was done in March. He moved out in February."
+  - "He was a good man who did one thing, Joanna. For two years it was the only thing I could see. I can't tell you how to stop. If I knew, I'd still be married."
+- Claude's inventions, to strike if wrong: a month, he told her himself, four hundred divorces, two years, the laugh at dinner.
+- Todd, 11:51 AM: "ok". Applied to the chapter file, the manuscript doc and the Vellum book. Dawn's sheet and the book plan updated: the dishwasher is gone; her marriage ended after his affair and two years in which she could not see past it.
+
+
+### Ch 31, Jo's "No." to "Did he ask you to marry him?" (CLOSED: applied 11:16 AM; opened 11:10 AM Nov 13)
+- Todd selected Jo's "No." in Dawn's office and said "reveal character".
+- Read first: Jo's sheet (jokes are facts said flat; her impossible choice is a gift she never agreed to), the Stephanie scene ("Nobody's asked me anything. If he does, he can bring it himself."), and the rest of the Dawn scene (the slip is "It's not over", so this line must not be a slip).
+- Option 1: "No. He didn't ask about the house either."
+- Option 2: "No. He asked me to Tokyo. I had work."
+- My pick: 1. Her complaint is that he did not ask, which is what 35 pays off when he does.
+- Todd, 11:16 AM: "I'm not sure why it always has to be a fact. That's not showing anything about the character and it's boring. Why is this always your default even after everything we've said?" Both options rejected.
+- Why it happened: I took the sheet's voice notes (facts said flat) as the content of the line. Rule added to standing.md.
+- New proposal, one version: "No. I haven't given him the chance." What she will not say is that she wants him to ask; what she can say is that her silence is what is stopping him.
+- Todd, 11:16 AM: "yes". Now: "No. I haven't given him the chance." Applied to the chapter file, the manuscript doc and the Vellum book.
+- Todd, 11:17 AM: selected "No. " and said "cut". Now: "I haven't given him the chance." In all three places.
+
+
+### Ch 31, Dawn's greeting at the top of her stairs (CLOSED: option 1 applied 11:08 AM; opened 11:08 AM Nov 13)
+- Todd selected "Joanna." and said "Maybe: I'm not surprised to see you? Or something".
+- Read first: Dawn's sheet and engine (short, plain and warm with someone hurting, carries nothing from one client to the other, calls her Joanna) and the scene (Jo has never been up the stairs in eleven years; Dawn is in the doorway with a cup before Jo gets there).
+- Option 1: "Joanna. I thought I might see you."
+- Option 2: "Joanna. I wondered which of you would come first."
+- My pick: 1. Option 2 puts Cal in the room before Jo asks, and Dawn admits later in the scene that she talked to him.
+- Todd, 11:08 AM: "1". Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 31, "Will you let it end?" exchange (CLOSED: applied 11:02 AM; opened 11:01 AM Nov 13)
+- Todd selected from "Will you let it end?" through "He'll be there this Saturday." and said "A little hotter".
+- Read first: Jo's sheet (under pressure she gets shorter and more practical; says the true thing; "Whoever owns the thing is in the room when it is decided"), Stephanie's entry, the scene from Stephanie's arrival, and ch 30's Saturday (Jo spoke to Cal only through Vili).
+- Proposed, two paragraphs change, the rest stands:
+  - "You came into my yard with forty pages and a day you want it over by," I said. "I'll talk to him when I've got something to say. It won't be tomorrow at seven." I could have stopped there. "You drove up from Menlo Park for your kid. I respect that."
+  - "He was at his mother's house on Saturday before my truck was," I said. "I didn't say one word to him all day. He'll be there this Saturday."
+- Added, not asked for: "I didn't say one word to him all day." (true to ch 30).
+- Todd, 11:02 AM: "yes". Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+### Ch 31, Jo's answer to "Is he ranking Cal?" (CLOSED: option 1 applied 11:00 AM; opened 10:59 AM Nov 13)
+- Todd selected "He asked me yesterday how long golden retrievers live." and said "we cut that" (the exchange it reports was cut this morning).
+- Read first: Jo's sheet (short statements, jokes are facts said flat, says the true thing) and the Sunday step scene, where Owen asked to send Cal the meteor from her phone and she said no.
+- Option 1: "Yesterday he wanted to send him a meteor. I said no." Uses what is on the page and has Jo own the no in front of Stephanie.
+- Option 2: cut Stephanie's question, Jo's answer and "She looked at me for a while.", so "She held it against her chest." goes straight to "Will you let it end?"
+- My pick: 1.
+- Todd, 11:00 AM: "1 is what a person would say". Applied to the chapter file, the manuscript doc and the Vellum book. This also closes the flag in the entry below.
+- Todd, 11:00 AM: selected "a meteor", typed "a picture of a". Now: "Yesterday he wanted to send him a picture of a meteor. I said no." In all three places.
+
+
+### Ch 31, Schedule B line (CLOSED: applied 10:57 AM, Nov 13)
+- Todd selected ", and " and typed "plus". Now: "The house in San Bruno plus what I owe on it." Applied to the chapter file, the manuscript doc and the Vellum book.
+- Ch 32 quotes the same pencil line when Cal reads the page. Changed there too, in all three places, so the two chapters match. Told Todd.
+
+
+### Ch 31, Owen's Pancake exchange on the step (CLOSED: cut 10:49 AM, Nov 13)
+- Todd: "Let's cut it, it's too on the nose for later" (it telegraphs Pancake's scare in ch 32 and 33).
+- Cut from "When do I get to see Pancake?" through "I didn't." in the chapter file, the manuscript doc and the Vellum book.
+- His selection also took in "He got up and went in and hung his backpack on its hook." Kept, because "It took eleven minutes." needs something to have taken eleven minutes. Told Todd.
+- The scene now ends: "It took eleven minutes." / "He got up and went in and hung his backpack on its hook."
+- OPEN, flagged to Todd 10:49 AM: later in ch 31 Jo tells Stephanie "He asked me yesterday how long golden retrievers live." It now reports something that is no longer on the page. My pick: keep it (one line, secondhand). Nothing changed. Book plan ch 31 note updated.
+
+
+## November 13, 2026, 10:36 AM: ch 31, Owen's “Pancake's eleven,” (CLOSED: option 1 applied 10:38 AM)
+
+Todd selected the exchange from “Pancake's eleven,” he said. to "He got up and went in and hung his backpack on its hook." and said: "This comes out of nowhere". It follows eleven minutes of Owen's silence after Jo will not let him send Cal the meteor from her phone; the step from the phone to the dog's age is missing. Read Owen's sheet first (nine, wants a dog, Pancake is second on his list, goes quiet when told no). The exchange plants Pancake's collapse in 32.
+
+- Option 1 (a nine-year-old's bridge, two lines added, and “Pancake's eleven,” becomes “He's eleven.”): “When do I get to see Pancake?” he said. / “I don't know, bud.” / “He's eleven.” / “I know.” / then as written.
+- Option 2: cut the exchange and end the scene on "It took eleven minutes." and the backpack.
+- My pick: 1.
+- Todd, 10:38 AM: "1". Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 13, 2026, 9:27 AM: ch 30, Dawn's “All right.” becomes “Good.”
+
+Todd selected "All right" (Dawn's answer to Cal's “Nothing,”) and typed: "Good". Now “Good.” In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 13, 2026, 9:25 AM: ch 30, "on your mother's house" becomes "clearing your mother's house"
+
+Todd selected "on" in Dawn's question and typed: "clearing". Now “Is she still clearing your mother's house?” In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 13, 2026, 9:23 AM: ch 30, why Cal has sent Jo nothing (CLOSED: applied 9:25 AM)
+
+Todd selected “She would have to answer it.” (Cal's answer to Dawn's “Why haven't you sent her anything?”) and said: "She would not have to answer it. We need something better". Read first: Cal's engine (he sends the result instead of himself; her silence is his mother going cold again) and what follows in the scene (Dawn: “What are you bringing?” “Nothing.” then “Tell me about her. Your mother.”).
+
+- Option 1: “The last thing I sent her was five hundred and twenty-one thousand dollars.”
+- Option 2: “I sent my mother thirty-four boxes. She did not open one.”
+- My pick: 1. It is literal, it is why sending is the problem, and it leads straight to “What are you bringing?” “Nothing.” Option 2 spends the boxes just before he tells Dawn about Darlene.
+- Todd, 9:24 AM: "It's a fact. Not growth as a character". Right: both options reported something; neither showed him changed. His lie is that the right thing, delivered, is what counts; the eleven got presents and Jo got a wire after two noes. Growth here is him seeing who the sending was for. One version:
+  - “Why haven't you sent her anything?” / “Anything I sent her now would be for me.”
+  - Dawn's silence, the cup going down, “What are you bringing?” and “Nothing.” follow unchanged.
+  - Not used: "I am waiting to be asked" (he calls her about Pancake in 32 and writes to her in 33, so it would not hold).
+- Todd, 9:25 AM: "yes". Applied to the chapter file, the manuscript doc and the Vellum book. Note for later lines: when Todd asks for something better at a turning point, he wants the character changed by it, not a truer fact.
+
+
+## November 13, 2026, 9:22 AM: ch 30, cut "She did divorces for fifteen years."
+
+Todd selected the sentence and said: "cut". Now "I took my time with it. She waited. She lets a witness take as long as he needs." In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 13, 2026, 9:20 AM: ch 30, why Cal deleted Remy's apology
+
+Todd selected "It knew where to stop." (Cal's answer to Dawn's "Why?") and typed: "I realized I didn't mean it." Applied as “I realized I did not mean it.” (Cal uses no contractions) in the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 13, 2026, 9:17 AM: ch 30, cut "Yes." from “Yes. Are you awake?”
+
+Todd selected "Yes. " and said: "cut". Now “Are you awake?” in the chapter file, the manuscript doc and the Vellum book. (His own edit at doc rev 5501 was one trailing space in the "I sent the wire knowing." paragraph; nothing to carry over.)
+
+
+## November 13, 2026, 9:04 AM: ch 30, cut "I had asked the man she pays to carry one more thing for me."
+
+Todd selected the sentence and said: "cut". Now "He was right. Next Saturday was the last one. He went out to the truck." In the chapter file, the manuscript doc and the Vellum book.
+
+Todd, 9:07 AM: "cut" on "He went out to the truck." The paragraph is now "He was right. Next Saturday was the last one." In all three places.
+
+
+## November 13, 2026, 9:00 AM: ch 30, cut "I do not send things that are not right."
+
+Todd selected the sentence and said: "cut". The Saturday five o'clock paragraph now ends "I had nothing to send her that was right." In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 13, 2026, 8:54 AM: ch 30, Abby after the card: "does jo like chicken and rice?" (CLOSED: option 1 applied 8:55 AM)
+
+Todd selected "She set the card back against the tin, square to the edge." and said: "Maybe something like: does jo like chicken and rice?" It moves the 2 on the card from Abby to Jo, in a daughter's plain question, on the Friday when Jo has not answered him since the payoff. Keeping the squared card (it is Abby's habit, from her sheet) and adding his line after it.
+
+- Option 1 (he answers): She set the card back against the tin, square to the edge. / “Does Jo like chicken and rice?” she said. / “I do not know. I did not ask her.”
+- Option 2 (the section ends on her question, then the break).
+- My pick: 1. "I did not ask her" is true of the chicken and of the house.
+- Todd, 8:55 AM: "1". Added after the squared card in the chapter file, the manuscript doc and the Vellum book.
+- Todd, 8:56 AM: "I wonder if, then he doesn't reply". Changed to: “I wonder if Jo likes chicken and rice,” she said. / I did not answer. In the chapter file, the manuscript doc and the Vellum book.
+- Todd, 9:05 AM, on "I did not answer.": "I hope she would have a chance to find out." Applied as "I hoped she would have a chance to find out." (past tense, to match the narration) in the chapter file, the manuscript doc and the Vellum book.
+- Slip, caught and fixed in the same minute: "She set the card back against the tin, square to the edge." also opens a sentence in ch 38 (the wedding), so the Vellum replace added the two new lines there as well. Removed from ch 38 in Vellum; ch 38 reads as before ("…square to the edge. Then she looked at the furniture pad in my arms."). The chapter files and the doc were never affected. Before any Vellum replace, check the find text against every chapter file, not just the one being edited.
+
+
+## November 13, 2026, 8:44 AM: ch 30, Abby's “Who was the other one?” (CLOSED: the deeper version applied 8:47 AM)
+
+Todd selected “Who was the other one?” she said. / “Me. Until I left in 2003.” and said: "Abby would know this". She would: the two were her grandmother and her father. Read her sheet first (eighteen, his exactness turned on him, she makes him say things). The reader still needs the fact that Darlene changed 2 to 1 when he left in 2003, so the question has to be one Abby cannot answer herself.
+
+- Option 1: “When did she cross it out?” she said. / “After I left. In 2003.”
+- Option 2: “You wrote on Grandma's card,” she said. / “She made it for two until I left in 2003. There are two of us.”
+- My pick: 1.
+- Todd, 8:45 AM: "Something deeper". From what they have lived: his mother crossed 2 to 1 when he left home in 2003, and Abby leaves home on Tuesday. She is the one going now. Her sheet: she wants to leave clean, and under it she wants him to ask her to stay; she turns his exactness on him and makes him say things. One version:
+  - “Does it go back to one on Tuesday?” she said.
+  - “She changed hers when I left, in 2003. I am not changing mine.”
+  - then, unchanged: She set the card back against the tin, square to the edge.
+- Todd, 8:47 AM: "yes". Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 11:23 PM: ch 29, "looking at a green bar"
+
+Todd selected "green bar" and asked: "green bar?" It is the bank's page from the top of the chapter ("Under it was a green bar. *PAID IN FULL.*"), 170 lines earlier. Options: name what it said, or "the bank's green bar". Todd picked 1. Now: "The whole time I was in that closet, I was at my counter in the dark, looking at *PAID IN FULL.*" In the chapter file and the manuscript doc with the italics; in the Vellum book the words are in but not yet italic (to do: italicize that second PAID IN FULL. in ch 29).
+
+
+## November 12, 2026, 11:17 PM: ch 28, Cal's answer to Janice's resignation
+
+Todd selected “Thank you, Janice,” I said. and typed: "I understand". Now “I understand,” I said. In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 11:16 PM: ch 28, Janice's numbered points at her resignation
+
+Todd selected “One,” and asked: "one?" She numbers her points under pressure (her sheet); the tag sat right after the number. Options: move the tag, or drop the numbers. Todd picked 1. Now: “One. You'll want someone in by the twenty-fourth,” she said. “Two. I'll leave the calendar in order through December.” In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 11:12 PM: ch 28, the board call cut
+
+Todd selected the eleven o'clock board call (Lena Park's slide, the 5.8 seconds, "Monday") through "Between them I sat with it." and said: "This doesn't work. I know it's supposed to show mastery, but it just gets in the way and it's a boring review meeting." Cut whole (this was cut I in `claude/review-ch28-trim.md`). One bridging sentence stands in its place: "I had the board at eleven and two people at one. Between them I sat with it." In the chapter file, the manuscript doc and the Vellum book. Nothing later in the book refers to the call.
+
+Todd, 11:13 PM: "cut" on the bridging paragraph (the selection covered 27 characters, the length of "Between them I sat with it."; cutting either sentence alone leaves the other hanging, so the whole paragraph went). Remy's "Confirm?" is now followed directly by "In June, in my mother's back yard, Owen asked me nine questions." In all three places.
+
+
+## November 12, 2026, 11:02 PM: ch 28, Jo's answer on the ridge
+
+Todd selected "My dad still does" (her answer to "Do you really need to work this much?") and typed: "My dad still has to work". Now “My dad still has to work,” she said. In the chapter file, the manuscript doc and the Vellum book.
+
+Todd, 11:03 PM: "yes" to matching ch 29, where she remembers it: "I'd said my dad still has to work. On Friday afternoon he'd fixed it so I didn't." In all three places.
+
+
+## November 12, 2026, 10:54 PM: ch 28, why Owen wanted his mother on the ridge (CLOSED: Todd's version applied 10:57 PM)
+
+Todd: "Do we know why Owen wanted to bring Cal up here?" then "But why?" Answer given: the page gives how (Cal was the excuse) and her excuse (when the house is paid), but Owen never says why it mattered to him. What the book supports: she has not had a day off since he was born (he told Cal in ch 12), the ridge is the hill behind their house, and the house is paid in 2036, when he is nineteen (her statement; Cal's Friday reasoning; his letter in 33, "while he is nine").
+
+- Proposed, one line in Owen's flat voice, after "He said it to the road.": “I'll be nineteen,” he said.
+- It then leads into “So I told her you wanted to see where they found the bay.” and gives Cal's "Owen would be nine" on Friday a source.
+- Todd, 10:57 PM: "It's a lie, maybe he just wanted to pay Cal back for hawaii with something Owen thought he might be interested". Better than the proposal above, and it is his mother's rule in a nine-year-old: you pay people back. It also takes the lie to his mother out. Version offered (replaces the road exchange from “She's never been up here,” through “You came, though.”):
+  - “You sat with me at the volcano,” Owen said. / He said it to the road. / “I did not do anything,” I said. “Nobody could make it go.” / “You came, though.” He walked a few steps. “I don't have a volcano. This is where they found the bay. I got Remy to tell me all of it, so it'd be right.” / “Thank you,” I said. / “She's never been up here,” Owen said. “I asked her in June. She said she'd come when the house is paid. She came for you.”
+  - "You came, though." stays, and now answers Cal's own belief (he did nothing at the volcano; the boy counts that he came).
+  - One line in his Friday reasoning changes to match: "She went up it anyway, for one evening, because he told her I wanted to see it." becomes "She went up it anyway, for one evening, because Owen was taking me."
+- Todd, 10:57 PM: "yes". Applied to the chapter file, the manuscript doc and the Vellum book. Owen no longer tells his mother Cal wanted to see the bay; he is paying Cal back for sitting with him at the volcano.
+- Todd, 11:00 PM, on "She came for you.": "This is too deep for a 9 year old". Cut; Owen's last line now ends "…when the house is paid."
+- Todd, 11:01 PM: "No, he can say stuff that's appropriate for a 9 year old. The facts and dates stuff is comletely wront. You keep trying to make him like owen. He's not." The rule written here a minute earlier was wrong and is withdrawn: Owen is not a small Cal. Read his entry in the sheet: nine, a fan of Cal's, loves volcanoes, wants a dog, negotiates, shows when he may not ask, and rules on what "counts" (a thing counts when you were there). He talks like a nine-year-old. OPEN, two lines offered to end the paragraph in place of "She came for you.":
+  - Option 1: “…She said she'd come when the house is paid. She's here now, so it counts.”
+  - Option 2: “…She said she'd come when the house is paid. She came this time, though.”
+  - My pick: 1 (his own word, "counts", from the volcano and the dog list).
+  - Todd, 11:02 PM: "1". Applied to the chapter file, the manuscript doc and the Vellum book. CLOSED.
+
+
+## November 12, 2026, 10:52 PM: ch 28, the Tokyo paragraphs put back
+
+Todd selected "The eleven had gone to Napa. Nobody had been to Tokyo with me…" and said: "May have over cut here". He is right: with the two paragraphs before it gone, Tokyo arrived with no trip planned. Restored both word for word ("Kevin has Owen from Sunday. I worked it to the hour…" and "I have been to Tokyo fourteen times… On most days you cannot see it at all."), and "I held the plane for Tuesday anyway, and a suite." is back as it was. In the chapter file, the manuscript doc and the Vellum book. The rest of the 5:55 PM trim stands.
+
+
+## November 12, 2026, 10:48 PM: ch 28, Janice's “Nine o'clock,” made clear
+
+Todd: "Nine o'clock for what". She means his nine o'clock meeting. Options given: “You have a nine o'clock,” or “Your nine o'clock is here,”. Todd picked 1. Now: Janice put the folder on my desk. “You have a nine o'clock,” she said, and went. In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 10:46 PM: ch 28, “One toothbrush?” / “She had a shirt behind her seat.” (CLOSED: option 2 applied 10:48 PM)
+
+Todd: "What does a shirt have to do with a toothbrush?" Answer given: nothing. Janice is asking about one toothbrush for two people; Cal answers a different question (why no clothes were sent for Jo, from ch 27: “I've got a shirt behind my seat.”). From the sheets: Janice's questions are practical or verdicts; Cal answers literally, in whole sentences, with no embarrassment.
+
+- Option 1 (keep her question, fix his answer): “One toothbrush?” / “We shared it.”
+- Option 2 (keep his answer, fix her question): “Nothing for her?” / “She had a shirt behind her seat.”
+- My pick: 1. It is new to the reader (ch 27 does not say), so it is an added fact.
+- Todd: "People do not share tooth brushes"; then "yes" to option 2 at 10:48 PM. Janice now asks “Nothing for her?” in the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 10:45 PM: ch 28, cut "Both times I drank the coffee."
+
+Todd selected the sentence and said: "cut". The paragraph now ends "On Sunday morning on the deck I had it ready twice, over my coffee." In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 10:39 PM: ch 28, the five o'clock walk explained again
+
+Todd selected the whole paragraph "The first time was at 5:04… He takes his time." and said: "This has been said about 1000 times already". Cut the three sentences that explain the walk and the post; the paragraph is now "The first time was at 5:04 in the morning, at the fence post by my gate." The next paragraph now names him ("On Saturday Pancake had run the waves…"). In the chapter file, the manuscript doc and the Vellum book.
+
+- Todd, 10:40 PM: "You need to include Pancake in the sentence at least". Now "The first time was at 5:04 in the morning, with Pancake at the fence post by my gate." in all three places.
+- Todd, 10:41 PM: "cut" on "with a spotted dog and a little white one". Now "On Saturday Pancake had run the waves at Carmel for an hour." in all three places.
+- Todd, 10:42 PM: "This could be one paragraph" on the three opening paragraphs after the first line (5:04 at the post; Pancake stiff; the last thing in her thread). Joined into one in all three places.
+- Todd, 10:43 PM: "Not just joined, it needs to make sense". The opening now runs in order: "The first time was at 5:04 in the morning, at the fence post by my gate. Pancake had been stiff in the back legs since Saturday, when he ran the waves at Carmel for an hour. He stood with his nose to the post and his tail going slowly. I stood beside him and read her thread by the light of my phone. The last thing in it was…" In all three places. Lesson: when asked to make paragraphs one, rewrite for order and flow; do not only remove the breaks.
+- Rule from this: the five o'clock walk to the gate and the post are established. Later chapters mention them without explaining them again.
+
+
+## November 12, 2026, 5:50 PM: Todd asks whether chapter 28 can be cut (CLOSED: trimmed 5:55 PM, 5,693 to 5,073 words)
+
+Todd: "I am thinking something we can cut is Chapter 28. I'm not sure it adds enough to keep in. What do you think?" Checked: the plan's entry for 28, its length (5,693 words) and every later line that points back to it. Not re-read line by line.
+
+- Opinion given: do not cut it whole; cut it down. It is where the crisis is caused on the page: on Sweeney Ridge he asks "Do you really need to work this much?", she says she will take a day off when the house is paid, he knows the balance to the cent, on Thursday he folds forty-eight pads with Frank, on Friday at 3:12 he wires $521,000 and Janice gives notice. Without it the payoff in 29 arrives with no cause and Cal reads as a man who did it from nowhere; the reader has to watch him do the wrong thing for a loving reason to stay with him through 29 to 33.
+- Later chapters that point back: 29 (the ridge and his question, the pads, "I gave notice on Friday"), 30 (Janice's three weeks), 32 (the pads thread), 33 (his letter: "I wanted you to go up Sweeney Ridge whenever you liked."; Denise: "No to the ridge."). Cal's sheet lists Owen's "You came, though." as one of the things that contradict his belief.
+- Cutting it would also put two Jo chapters back to back (27 and 29) and shift odd and even for every chapter after.
+- What looks cuttable inside it, from the plan: the Monday morning at the gate, the clothes and toothbrush with Janice, most of the Tokyo arithmetic, the radar and missile exchange and some of the Portolá history. Rough target 3,500 words.
+- Offered once: a marked list of what stays and what goes in 28 for him to approve.
+- Todd: "ok". Read the chapter in full (5693 words) and wrote `claude/review-ch28-trim.md`: ten lettered cuts, about 1528 words, leaving about 4165. After reading, the chapter is tighter than the plan suggested, so the target is nearer 4,300 than 3,500. Waiting on Todd for which letters.
+- Todd: "do what make sense". Applied 5:55 PM, 620 words out, in the chapter file, the manuscript doc and the Vellum book. On applying, several proposed cuts turned out to carry payoffs and were left in. What went:
+  - the fence-post riff after "He takes his time." (deer, mountain lion, the poodle);
+  - the moon and deer paragraph;
+  - the three Ventana sentences in the recap ("She passed me the bread.");
+  - "In May I had told Jo I wanted it empty before Abby left. I had the wrong month.";
+  - the Tokyo flight hours and the Mount Fuji paragraph; "I held the plane for Tuesday anyway" became "I held a plane for Tuesday the eleventh";
+  - the foundations and the poison oak; "Past the foundations" became "Farther up";
+  - "My mother's house was at the south end…"; the line of eight planes; two sentences of sunset;
+  - the recap paragraph that opened his Friday reasoning ("In July her last payment had been November 2036…").
+- Left in on purpose: Janice's toothbrush (B), the radar exchange (F), the board call (I), Owen's Portola speech, "Smells like my dad's knees" (echoes the menthol rub in 27), Owen's nine questions (it pays off Janice's "Be careful what you do with it" from ch 12), the volcano and "This was a number" (his core belief at the moment he acts), Denise turning the page.
+- If Todd wants it shorter: F and I are the next 350 words.
+- Tool note: in the manuscript doc, a delete by quoted words that covers a whole paragraph leaves an empty paragraph behind. Find them with a read of `{"kind":"view","sinceRev":N}` (empty ones show h='e3b0c442') and delete by id with ifRev. Done here for nine.
+
+
+## November 12, 2026, 5:43 PM: ch 27, "one piece of his bacon" becomes "a piece of bacon"
+
+Todd selected "one" and typed: "a"; at 5:44 PM he selected "his" and said "cut". In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 5:41 PM: ch 27, "I didn't know which side to read it from." (CLOSED: option 2 applied 5:42 PM)
+
+Todd selected the sentence (the Ventana breakfast menu with no prices) and said: "unclear". It leans on a line sixty lines back at Nepenthe ("I read the menu from the right-hand side."), meaning she reads the prices first. From her sheet: short flat statements, jokes at her own expense said as facts, no summing up.
+
+- Option 1: I didn't know how to order off it.
+- Option 2: I'd never ordered off a menu without reading the prices first.
+- My pick: 1.
+- Todd, 5:42 PM: "2". Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 5:35 PM: ch 27, Jo's bare “No.” to the man with the phone at Nepenthe (CLOSED: option 1 applied 5:37 PM)
+
+Todd selected “No.” (her answer to “Come on. One.”) and said: "reveal character". From her sheet: with people she runs a crew, fair and fast, no speeches; she says the true thing and gives the person something to do; her jokes are facts said flat ("He was there first. You go stand where the dog isn't."). She has already said “No pictures. He's on his lunch.”
+
+- Option 1: “The ocean's that way.”
+- Option 2: “You've got a whole ocean. Take that.”
+- My pick: 1.
+- Todd, 5:37 PM: "1". Applied to the chapter file, the manuscript doc and the Vellum book. He also said he had changed "You go stand where the dog isn't." because it did not show an understanding of the dog; that line is no longer in the manuscript, so it was removed from the sheet's "Lines to tune by". Do not model her on it: when she speaks about Pancake she has to show she understands the dog.
+
+
+## November 12, 2026, 5:32 PM: ch 27, cut "shut up"
+
+Todd selected "shut up" and said: "cut". Now "Point Lobos won't let a dog past the gate, not even in a car." In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 5:30 PM: ch 27, Cal at the tailgate: "Thank you" becomes "Pancake appreciates it"
+
+Todd selected "Thank you" in “Thank you,” he said. (after Jo dries Pancake at the tailgate) and typed: "Pancake appreciates it". Her answer stays “He was wet.” In the chapter file, the manuscript doc and the Vellum book. The other “Thank you,” he said. in the chapter (Nepenthe, after she pays) is untouched.
+
+
+## November 12, 2026, 5:29 PM: ch 27, "a long way back" becomes "a long walk back"
+
+Todd selected "way" and typed: "walk". Now "It was a long walk back down the beach to the slope…" In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 5:27 PM: ch 27, "What do you want?" goes unanswered and unmarked (CLOSED: applied 5:28 PM)
+
+Todd selected “What do you want?” through the fog paragraph and said: "she doesn't answer and no mention is made of it". Read first: Cal's sheet (he does not push; on the rock in ch 26 he waited twenty-six counts for her; when he gets no answer he works the problem himself) and the scene this pays into, ch 33 (Denise: “Did he ever ask you what you WANTED?” “At Carmel.” “And?” “I didn't say.” “So he guessed.”).
+
+- One version, a new paragraph after "I put my knee against his and left it there." and before "Pancake sighed against my leg.": He waited, the way he had on the rock. I didn't say. After a while he looked down at my knee against his. He didn't ask again.
+- "I didn't say." is the same three words she gives Denise in 33.
+- Todd, 5:28 PM: "ok". Added to the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 5:24 PM: ch 27, "I'd tell him to sit down, I got it."
+
+Todd typed: "to sit down, I got it." (the selection showed the estimate line, but the words continue his edit of the sentence before). Applied to "I'd tell him to sit down." in the chapter file, the manuscript doc and the Vellum book, as typed. Mentioned once that her usual wording elsewhere is "I've got it."
+
+
+## November 12, 2026, 5:23 PM: ch 27, "looking for something to do" becomes "looking to help"
+
+Todd selected "for something to do" and typed: "to help". Now "Kevin used to come home and stand in the kitchen looking to help." In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 5:22 PM: ch 27, cut "A Tuesday in March."
+
+Todd selected the sentence and said: "cut". The paragraph now runs "I didn't tell Cal when the quiet started. Owen was five weeks old. Kevin used to come home…" Cut in the chapter file, the manuscript doc and the Vellum book. Chapter 33 still gives March 2017 and the Tuesday.
+
+Also at 5:20 PM Todd said he was angry that the standing order (everything generated from character and situation) had not been followed and that the tokens were nearly gone. Keep replies short; do the character step first.
+
+
+## November 12, 2026, 5:12 PM: ch 27, Jo's speech on the log, second pass (CLOSED: the estimate version applied 5:19 PM)
+
+Todd, on the speech applied at 5:09 PM: "She couldn't quit asking if she never asked. They is unclear. When she says she can't do that again it was her fault at least partially." All three are right. Kevin's point was that she asked him for one thing in eleven years, so "I quit asking" contradicts it. "They" has to reach back a sentence. "I can't do that again" makes it something done to her, when chapter 33 shows she made half of it. Her real fear is that she is the cause and will do it to Cal, which she then does in chapter 29.
+
+- One version: “Kevin was right. I never asked him for anything.” I kept my hand on Pancake. “I'm in empty houses all day, Cal. An empty house doesn't bother me. Mine had a man at the table. I could hear the refrigerator. Half of that quiet was mine. I don't know which half. I don't want to find out on you.”
+- The next paragraph (she kept telling Kevin to sit down) then shows the reader which half, while she cannot see it.
+- Todd, 5:14 PM: "on you is not what a person would say. Half the quiet was mine isn't really what's she is about, is it? This is still wrong. It's not based on her". Right. Went back to her sheet instead of the line. Her core is that she leans on nothing and asks for nothing ("Nothing given is free"); the sheet says she lists what she did, says the true thing to his face, does not sum up or build a contrast, and that her word for a catch is the thing nobody put on the estimate. Every version so far had her sum up and build a contrast, about the wrong subject (the quiet). What Kevin actually said at his car (ch 23) was "Only thing you ever asked me for, I had to sign it," meaning the divorce papers she left on the kitchen table with a pen on top. One version from that:
+  - “You heard him.”
+  - “He was right,” I said. “Eleven years. The only thing I ever asked Kevin for was his signature. I put the papers on the kitchen table with a pen on top.”
+  - Cal didn't say anything.
+  - “Every job's got something nobody put on the estimate,” I said. “Mine is I don't ask. I'm telling you before you sign anything else.”
+  - and the next paragraph's first sentence becomes "I didn't tell Cal when the quiet started." ("it" no longer has anything to point at)
+  - Why it is hers: it is an honest estimate of herself, given to a man who has just told her he loves her and who signed two pages with her on Thursday. Why it matters in the chapter: Cal answers with his own (line ten, Stephanie), then asks "What do you want?", and at Nepenthe she lets him get the cake and the room.
+- Lesson: when a line is "not based on her", stop drafting and read her sheet and the scene the line answers (here, Kevin's car in ch 23) before writing another word.
+- Todd, 5:16 PM, with the whole log scene selected: "You just went back to the character sheet? Is that a joke? Everything has to be based off her character". No defense: the sheet should have been read before the first proposal, not after the fourth rejection. Rule added to `claude/standing.md` under The writing. Checked the rest of the selected scene against her sheet: her other lines hold (“You heard him.”, “How did yours?”, “Did you?”, “Did you go?”, “Card,” are short, practical and guarded). The one block that is not her is the speech now in the manuscript from 5:09 PM ("I'm in empty houses all day… I can't do that again."), which Todd has rejected. The estimate version above is still the proposal on the table.
+- Todd asked whether everything had been made up for any random character; answered that the small fixes were grounded in the page and the lines carrying character were not. Offered a check of Claude's recent lines against the sheets; Todd, 5:19 PM: "no, we've wasted enough tokens. Go ahead and use it". The offer is closed; do not raise it again.
+- Applied the estimate version and "I didn't tell Cal when the quiet started." to the chapter file, the manuscript doc and the Vellum book; plan and sheet notes for ch 27 updated.
+
+
+## November 12, 2026, 4:51 PM: ch 27, "I'd never told anybody about the hall.", then the whole hall exchange (CLOSED: rewritten 5:09 PM)
+
+Todd selected the line and said: "This makes no sense". Cause: the line only worked against the sentence before it ("I'd told Vili the rest once, in May, in the cab."), which was cut at 4:50 PM with option 1. Alone it contradicts the line above it, where she has just told Cal.
+
+- Option 1: cut it. “…Twice in one year.” goes straight to “What color?” Cal said.
+- Option 2: Vili knew about the quiet. He didn't know about the hall.
+- Option 3: I'd never said that part out loud.
+- My pick: 1.
+- Not shown to Todd: he interrupted and widened the question (next lines).
+- Todd, 4:52 PM, selecting “Kevin was right,” … “Twice in one year.” / "I'd never told anybody about the hall." / “What color?” Cal said.: "Is this important? Does it reveal anything? Seems minor". Answer given: the fact is important (ch 33 pays the hall three times: the roller with Owen on her shoulder and "I'd been proud of it", Denise's “What did you do?” “Painted the hall.”, and now Cal's “Is today the hall?”), but these three lines do not do its work. "Kevin was right" does not say about what, the middle line is broken, and nobody says what the painting was instead of.
+  - Option 1: “Kevin was right,” I said. “One thing in eleven years. When he went quiet, I didn't ask him again. I painted the hall. Twice in one year.” / “What color?” Cal said. (the middle line cut)
+  - Option 2: only cut "I'd never told anybody about the hall."
+  - My pick: 1.
+- Todd, 4:55 PM: "I'm not moved. It seems iconsequential". He is right: the hall is a low-stakes picture and both rounds only rearranged it. What she lived is on the page in ch 7 and ch 33: she asked once, got a pickup time, never asked again, and went through her own week looking for what she had done. What she is afraid of is that it was her. She does not find out until Kevin tells her in ch 33. One version, built on that, with the hall kept to one clause for ch 33:
+  - “You heard him.”
+  - “Kevin was right,” I said. “When he went quiet I asked him what I'd done. Once. He told me what time he'd be home Thursday. After that I painted the hall.”
+  - “What color?” Cal said.
+  - “White. It was already white.”
+  - Cal didn't say anything.
+  - “I still don't know what I did,” I said.
+  - then, unchanged: "I didn't tell Cal when it started. A Tuesday in March. Owen was five weeks old. Kevin used to come home and stand in the kitchen looking for something to do. I'd tell him to sit down. He'd been teaching all day." and "Cal had said he loved me on Thursday. It was Saturday."
+  - This removes "I'd never told anybody about the hall." and the three lines added at 4:50 PM (“Is today the hall?” / “Today's a beach, Cal.”).
+  - Why: she says the thing she is afraid of; the next paragraph shows the reader what she did while she still cannot see it; ch 33 answers her.
+- Todd, 5:05 PM: "What are you stuck on painting the hall?" Answer given: I was protecting two lines in ch 33 that mention it, which is backwards. The hall can leave ch 27 entirely. Version without it:
+  - “You heard him.”
+  - “Kevin was right,” I said. “When he went quiet I asked him what I'd done. Once. He told me what time he'd be home Thursday. I never asked again.” I kept my hand on Pancake. “I still don't know what I did.”
+  - then, unchanged: "I didn't tell Cal when it started. A Tuesday in March…" and "Cal had said he loved me on Thursday. It was Saturday."
+  - Removes from ch 27: the hall, "I'd never told anybody about the hall.", "What color?", "The same white. Both times.", "He looked at the water a while.", “Is today the hall?”, “Today's a beach, Cal.”
+  - Ch 33 can keep Denise's “What did you do?” “Painted the hall.” as the first mention. One line there points back and would change: "I'd had him on my shoulder in that hall with a roller in my other hand." becomes "I'd had him on my shoulder that week, with a paint roller in my other hand."
+- Lesson: do not defend a detail because a later chapter mentions it. If it is not earning its place where it sits, cut it and fix the later mention.
+- Todd, 5:08 PM: "Again, this is not moving, it doesnt change things, there are no insight". Thought through from the scene, not the line. The turn is already in the chapter and her half was not feeding it: a few lines later Cal says “Stephanie said she was lonely. I said I would fix it.” and “You asked.” He was, to Stephanie, the man Kevin was to Jo (ch 30, Stephanie: "I was lonelier married to you."; ch 31, to Jo: "I told him once that I was lonely."). So her speech has to say what Kevin's quiet was, in her terms, and why it stops her saying it back. Then his confession is him pleading guilty to the thing she has just said she cannot do again, and "You asked" answers "I quit asking". One version:
+  - “You heard him.”
+  - “Kevin was right. I quit asking.” I kept my hand on Pancake. “I'm in empty houses all day, Cal. They don't bother me. Mine had a man at the table. I could hear the refrigerator. I can do alone. I can't do that again.”
+  - then, unchanged: "I didn't tell Cal when it started…", "Cal had said he loved me on Thursday. It was Saturday.", the card, line ten, Stephanie, “You asked,” he said.
+  - Removes from ch 27 everything about the hall (as listed above); the ch 33 one-line fix still applies.
+  - Insight: a house with a silent man in it is emptier than an empty one, and she would sooner be alone. What changes: she tells him the one thing she will not live in again and he tells her he was that, to someone else, and she strikes line ten anyway.
+- Todd, 5:09 PM: "ok". Applied to ch 27 and the one line in ch 33, in the chapter files, the manuscript doc and the Vellum book. The hall is no longer in ch 27; Denise's “Painted the hall.” in ch 33 is now its first mention. “Is today the hall?” (added 4:50 PM) is gone with it.
+
+
+## November 12, 2026, 4:49 PM: ch 27, the hall exchange on the log (CLOSED: option 1 applied 4:50 PM)
+
+Todd selected “You heard him.” through "Cal had said he loved me on Thursday. It was Saturday." and said: "I'm not sure what this is for. Nothing changes." Answer given: it is there to plant two things chapter 33 pays off (the hall, and Owen at five weeks: Kevin's last call from the store, "I'd had him on my shoulder in that hall with a roller in my other hand", Denise's “Painted the hall.”) and to give Cal a reason to tell her about Stephanie. He is right that nothing turns inside it: the reader heard Kevin's quiet in ch 7, Cal asks the color, the narration holds back the part that matters, and they move to the card.
+
+- Option 1 (give it a turn; three lines added after “The same white. Both times.”, and "I'd told Vili the rest once, in May, in the cab." cut):
+  - He looked at the water a while.
+  - “Is today the hall?” he said.
+  - “Today's a beach, Cal.”
+  - Why: she drove him a hundred and twenty miles instead of saying it back, and he sees it. She denies it, so chapters 31 and 33 still get to be where she sees it herself.
+- Option 2 (shrink it to the plant): “Kevin was right,” I said. “When he went quiet, I painted the hall. Twice in one year.” / I didn't tell Cal when it started. A Tuesday in March. Owen was five weeks old. Kevin used to come home and stand in the kitchen looking for something to do. I'd tell him to sit down. He'd been teaching all day. (cuts “You heard him.”, the Vili line, "What color?" and "The same white.")
+- My pick: 1.
+- Todd, 4:50 PM: "1". Applied to the chapter file, the manuscript doc and the Vellum book. New plant to honor later: Cal has asked “Is today the hall?” and she has said no; ch 31 or ch 33 can let her hear it again.
+
+
+## November 12, 2026, 4:45 PM: ch 27, "I have been trying to think of one thing you would let me do." (CLOSED: line cut 4:46 PM)
+
+Todd selected the line and asked: "Does this fit?" Answer given: not where it sits. She is in the middle of telling him about Kevin, he has been listening ("Cal waited."), and this line turns the talk to himself; her next line ("Kevin was right") answers past it. The line itself has to stay somewhere in the chapter, because Nepenthe pays it off ("He'd been trying to think of one thing I would let him do. It was one room, one night.").
+
+- Option 1: move it down to his question after she strikes line ten. “I have been trying to think of one thing you would let me do,” he said. “What do you want?” The exchange on the log then runs “You heard him.” / “Kevin was right,” I said. “When he went quiet, I painted the hall. Twice in one year.”
+- Option 2: leave it where it is.
+- My pick: 1. It gives "What do you want?" a reason, and she then shuts her mouth on both answers, which is the scene.
+- Todd, 4:46 PM: "I think just cut it, it reads as petty and doesn't add". Cut in the chapter file, the manuscript doc and the Vellum book.
+- OPEN, flagged to Todd: the cut orphans Jo's line at Nepenthe, "He'd been trying to think of one thing I would let him do. It was one room, one night." Proposed: drop the first sentence so the paragraph starts "It was one room, one night. Checkout was at eleven." Not changed until he says.
+- Todd, 4:46 PM: "yes". The Nepenthe paragraph now starts "It was one room, one night." in the chapter file, the manuscript doc and the Vellum book. Nothing is open on this.
+
+
+## November 12, 2026, 4:42 PM: ch 27, what prompts "Kevin used to go quiet" (CLOSED: option A applied 4:43 PM)
+
+Todd selected “Kevin used to go quiet,” I said. / Cal waited. and asked: "what prompts her saying this". Answer given: nothing on the page. The intended cause is two scenes back: in the truck she wanted to say "I love you" back and every time she opened her mouth she talked about fog. On the log she opens her mouth again and the reason she cannot say it comes out. The reader is not given that link.
+
+- Option A (the unsaid thing is the cause; one line added after hers): “Kevin used to go quiet,” I said. / It wasn't what I'd opened my mouth for. / Cal waited.
+- Option B (Cal's own silence is the cause; one short paragraph added before "I opened my mouth."): Cal hadn't said a word since the black dog. It was an easy quiet. I knew the other kind.
+- My pick: A.
+- Todd, 4:43 PM: "A". "It wasn't what I'd opened my mouth for." added as its own paragraph in the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 4:40 PM: ch 27, two lines on the log at Carmel swapped
+
+Todd selected "I watched Pancake's ribs go up and down under my hand." and "I'd asked him once." and said: "I think these need to be reversed". Now "I'd asked him once." comes first, straight after "He wouldn't tell me.”, and the Pancake line follows. Applied to the chapter file, the manuscript doc and the Vellum book.
+
+- Flagged once, not changed: a few lines down Cal says “Line ten was mine,” before "Remy put it there… I agreed with it in about a minute." The rule from ch 21 is that he never says a line was his. Possible fix: “Line ten is the one I owe you,” or simply start at "Remy put *Never married* there because…".
+- Todd, 4:41 PM: "yes". Applied as “Line ten,” he said. “*Never married.* Remy put it there because I was divorced at twenty-seven. I agreed with it in about a minute.” This is not the wording offered in chat ("Remy put *Never married* on the card…"): Remy put it on the list, not the card, and Jo needs the number so she can write ten on the card a few lines later. Only "was mine" is gone. In the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 4:39 PM: ch 27, "He never told me" becomes "He wouldn't tell me"
+
+Todd selected "never told" in Jo's line about Kevin on the log at Carmel and typed: "wouldn't tell". The line now ends "I'd ask him what was wrong. He wouldn't tell me." Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 4:38 PM: ch 27, Jo's beach glass line reworded
+
+Todd selected “What are you, a beach glass expert?” and typed: "Are you a beach glass expert now?" Applied as written to the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 4:23 PM: ch 27, Frank's "I know you do" becomes "You always do"
+
+Todd selected the line and typed: "Better would be: You always do". Frank's answer to “I've got it, Dad.” is now “You always do,” he said. Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 4:21 PM: ch 26, "Get up, Cal." becomes "Let's go, Cal."
+
+Todd selected "Get up" and typed: "Let's go". Her answer to "We should start down" on the rock is now “Let's go, Cal.” Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 2:47 PM: ch 26, cut "I did not try it after her."
+
+Todd selected the sentence and said: "cut". The paragraph now ends "She got it on her third." Cut in the chapter file, the manuscript doc and the Vellum book; the book plan's ch 26 note updated.
+
+
+## November 12, 2026, 2:41 PM: ch 26, "Your thumbs were in" (CLOSED: option A applied 2:46 PM)
+
+Todd selected the line and asked: "what does this mean". Answer given: she is telling him he caught her correctly. Fifteen lines up he stands with his thumbs tucked against his fingers so a falling climber does not bend them back, and the catch says "thumbs in". She felt it and names the technique where someone else would say thank you. It leans on a setup the reader may not be holding, and "in" does not say in what.
+
+- Option 1: keep the line.
+- Option 2: “You knew where to put your hands,” she said.
+- Option 3: “You tucked your thumbs,” she said. “Who showed you that?” / “Nobody. I read it in 2008.” (and "thumbs in" in the catch becomes "thumbs tucked" to match)
+- My pick: 3. She assumes a person taught him, because that is how she learned everything; he learned it alone from a page. It pays off "I had read how to spot a climber in 2008 and had never done it, because I climbed alone."
+- Todd, 2:44 PM: "3 doesnt make sense. Nor does 2." He is right, and the reason reaches the original line too: she has never climbed, so she has no reason to know or care where a spotter's thumbs go. The technique is his business. What happened to her is that someone held her weight. Second round:
+  - Option A: “You had me,” she said. (what a mover says when the other person has the load; the reader hears the other meaning)
+  - Option B: cut the line. She leans back for a second, steps off the pad, and goes straight back up the wall.
+  - My pick: A.
+- Todd, 2:46 PM: "A". Applied to the chapter file, the manuscript doc and the Vellum book. Rule from this: a character only remarks on what she would know or care about; Jo has never climbed.
+
+
+## November 12, 2026, 2:40 PM: ch 26, "She did not call it." (CLOSED: cut 2:40 PM)
+
+Todd selected the line and asked: "call what?" Answer given: the fall. It was meant as her not warning him she was coming off, the way she calls a carry, but the line never says so. The lines around it do not change ("At the fourth move her right foot came out of the pocket." before, "She came off the wall backward with her hands still open." after).
+
+- Option 1: On the hutch she had called every step. She did not call this. (ties to ch 7, where she called the carry to him, and ch 34, where he calls one)
+- Option 2: She did not call out.
+- Option 3: cut the line.
+- My pick: 1.
+- Todd, 2:40 PM: "3". Line cut in the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 2:35 PM: ch 26, "I had bought them myself at REI" (CLOSED: option 2 applied 2:37 PM)
+
+Todd selected "them" and said: "unclear, he must have a lot of this equipment already". The line before lists the shoes, a crash pad, a chalk bag and two headlamps, so "them" reads as all of it. The chapter already says he climbed here in 2009 and that his own shoes, bought in 2008, had gone hard, so only the shoes are new.
+
+- Option 1: I had bought the shoes myself at REI in San Carlos at 4:24. (nothing else changes)
+- Option 2: I had bought the shoes myself at REI in San Carlos at 4:24. The pad, the chalk bag and the headlamps were mine, out of a bin in my garage. […] My own climbing shoes were in the same bin, the pair I had bought in 2008.
+- Option 3: option 2 plus "I had put new batteries in the headlamps." after the bin sentence.
+- My pick: 2.
+- Todd, 2:37 PM: "2". Applied to the chapter file, the manuscript doc and the Vellum book.
+
+
+## November 12, 2026, 2:31 PM: ch 26, the unread agreement and the three letters (CLOSED: option 2 applied 2:33 PM)
+
+Todd selected the two paragraphs "On Wednesday at 6:24 in the morning…" and "At 2:05 this afternoon…" and said: "This goes too long". Checked what pays off later before cutting: "three hundred and six things I approved that day" comes back in ch 37 ("I looked at three hundred and six stones."), the three letters come back in ch 30 ("Before the three letters in July…"), and Ms. Holcomb is from ch 25. All three stay in both options. The line before ("I had approved the other one in a car.") and the lines after ("I had not told Jo about the letters. They were owed to three other people.") do not change.
+
+- Option 1 (about a third shorter; drops Remy's prompt, the notice lines, the stamps, "owed me nothing under it"):
+  - On Wednesday at 6:24 in the morning, three minutes after she told me *I sign it* and hung up, Remy had put it on my screen. I was still hearing her say it. I said approve. It was one of three hundred and six things I approved that day. I did not open it.
+  - This afternoon I opened it and read all fourteen pages. Then I read the three it was made from. I had approved those too. I wrote three letters on my own paper, one to each woman who had signed one, Ms. Holcomb first. Each letter said she was released from every term. I mailed them on the way to San Carlos.
+- Option 2 (under half the length; also drops the fourteen pages, the reading of the three older agreements, and San Carlos):
+  - Remy had put it on my screen on Wednesday at 6:24. I was still hearing her say *I sign it*. I said approve. It was one of three hundred and six things I approved that day. I did not open it.
+  - This afternoon I read it. Then I wrote three letters on my own paper, one to each woman who had signed one before her, Ms. Holcomb first. Each said she was released. I mailed them myself.
+- My pick: 2. Chapter 25 already showed the fourteen pages and that he never read them, so this only has to get to the letters and back to Jo reading.
+- Todd, 2:33 PM: "2". Applied to the chapter file, the manuscript doc and the Vellum book; the two ch 26 lines in `claude/book-plan.md` updated. The chapter no longer says her truck left at 2:05 (the plan's timeline still has it) or that he mailed the letters on the way to San Carlos.
+- Todd also asked why the reply took over four minutes: his note arrived while the 124 "of it" changes were going into Vellum, which takes one call per change, and that pass was finished before answering. For a large pass, say so up front and answer a new note first.
+
+## November 12, 2026, 2:31 PM: "of it" pass applied
+
+Todd: "all". The 124 changes in `claude/review-of-it.md` went into the chapter files, the manuscript doc (rev 5394) and the Vellum book, one replacement each, every one matched once. The Word file was not rebuilt. 42 "of it" remain, the keeps listed in the review. Three quoted lines in `claude/book-plan.md` updated to match (ch 8, ch 28, ch 31).
+
+- New rule: a trailing "of it" on a place, a part or a count ("the top of it", "my side of it", ", two gallons of it", ", all of it") is the tic. Name the thing or drop the tail. Set phrases ("proud of it", "the end of it", "thought of it", "let go of it") are fine but should stay rare.
+- The ch 7 and ch 34 echo is now "I called every step." in both.
+- Offered and not taken up yet: about a dozen of the 42 keeps could lose it too (for example ch 35 "I can see all of it from the stove.", ch 36 "I watched all of it.").
+
+
+## November 12, 2026, 2:23 PM: "of it" review (CLOSED: applied, see the entry above)
+
+Todd: "There are 177 instances of 'of it' and nobody speaks like that." A whole-word search of the chapters and back matter finds 166 (a plain search also catches eight "of its"). Every one is listed in `claude/review-of-it.md`, in book order, with the proposed line or KEEP and the reason. The exact old and new text is in `claude/review-of-it-items.py` (124 changes, each old text checked as occurring once in its chapter; 42 keeps).
+
+- Proposed to change (124): the tails that point at a place or a part ("the top of it", "the end of it", "my side of it", "the back of it", "the front of it"), the tacked-on counts (", seventy-five feet of it", ", two gallons of it", ", all of it"), and most "all of it" and "the rest of it".
+- Proposed to keep (42): ordinary speech where there is no shorter way to say it ("proud of it", "thought of it", "the end of it", "let go of it", "none of it", "any of it", "because of it", "in front of it"), dialogue (Owen, Denise, Dawn), and three lines with a job: ch 16 "had thought nothing of it", ch 34 "So nobody could ever move me out of it.", ch 35 "I put my whole weight down on him, all of it, on purpose." (the lanai payoff).
+- The ch 7 and ch 34 echo "I called every step of it." changes in both places to "I called every step." so the pair still matches.
+- Waiting on Todd: "all", or the numbers to keep or change. On approval the changes go to the chapter files, the manuscript doc and the Vellum book, not the Word file.
+
+
+## November 12, 2:15 PM: ch 26, "ran one way" is now "ran only one way"
+
+- Todd selected "one" and gave "only one". Now: "*Mutual. Or nothing.* Her own books ran only one way."
+- 2:16 PM, same chapter: Todd selected "of it" in "half an hour of it to the park" and wrote "sounds like ai"; two options, he picked 1. Now: "Skyline runs south along the top of the ridge, half an hour to the park."
+- In the manuscript doc, manuscript/chapter-26-cal.md and the Vellum book. Word not rebuilt.
+
+## November 12, 2:08 PM: ch 25, "another page of it" is now "it again"
+
+- Todd selected "of it." in Cal's "“I will have it withdrawn this afternoon. You will not see another page of it.”" and wrote "sounds like ai". Three options; he picked 2: "“I will have it withdrawn this afternoon. You will not see it again.”"
+- A trailing "of it" reads as AI to Todd (also ch 11, November 11). Do not end a line on it.
+- 2:09 PM, the next line: Todd selected "No. " and wrote "cut". Jo now answers "“I'm not done with it.”"
+- 2:10 PM, a few lines on: Todd selected "Yes. " and wrote "cut". Cal now says "“Ask me anything about them.”"
+- In the manuscript doc, manuscript/chapter-25-jo.md and the Vellum book. Word not rebuilt.
+
+## November 12, 1:23 PM: ch 25, "He is not a thing." is now "Pancake is not a thing."
+
+- Todd selected "He" and gave "Pancake". Jo: "“I said bring nothing,” I said." Cal: "“Pancake is not a thing.”" (Standing rule: when a line refers to Pancake, it says Pancake.)
+- 1:24 PM, Todd: "Add something like Pancake sighed in agreement". Added as its own line after Cal's, in Todd's words: "Pancake sighed in agreement."
+- 1:25 PM, Todd, on that line: "as if insulted:or something". Now "Pancake sighed like I'd insulted him." (Jo says "like", and she is the one who said bring nothing). His literal wording, "Pancake sighed, as if insulted.", was offered as the alternative.
+- In the manuscript doc, manuscript/chapter-25-jo.md and the Vellum book. Word not rebuilt.
+
+## November 12, 1:21 PM: ch 25, "Understood," is now "All right,"
+
+- Todd, on Cal's "“Understood,” he said." (the six a.m. call about the reviews): "Would All right work here?" Claude: yes; it is how he has taken her no since ch 21 and ch 23, and it sets the pattern he breaks in ch 28. Todd: "yes". Now: "He was quiet for a second." / "“All right,” he said."
+- In the manuscript doc, manuscript/chapter-25-jo.md and the Vellum book. Word not rebuilt.
+
+## November 12, 1:18 PM: ch 25, "I took my coffee." is now "She handed me my coffee."
+
+- Todd selected "took" and wrote "odd". Three options; he picked 3: "it's the most visual". Denise, on the office steps with two coffees: "She handed me my coffee."
+- Note for choosing between options: Todd picks the one he can see.
+- In the manuscript doc, manuscript/chapter-25-jo.md and the Vellum book. Word not rebuilt.
+
+## November 12, 1:14 PM: ch 24, "My face was hot." cut; the hot face is overused
+
+- Todd selected Cal's "My face was hot." (on the slab, her hair against his mouth) and wrote "over used". Cut: "I turned my head until her hair was against my mouth. The fourteen shoeboxes were in a row along the wall, with the green tape on each lid." (doc, manuscript/chapter-24-cal.md, Vellum; Word not rebuilt).
+- Count at the time, eleven: Jo's "My face went hot" / "was hot" / "got warm" in ch 5, 11, 17, 19, 25, 27, 33, 35 (her tell); Cal's in ch 24 (now cut), 30 and 32. A numbered review of all of them was offered ("say list"); he has not asked for it. Do not add more hot faces.
+
+## November 12, 1:08 PM: ch 24, Jo's reaction to "She did not ask me to." (option 2 APPLIED 1:09 PM)
+
+- Todd selected "“I paid off the house in October 2012. She did not ask me to.”" and wrote: "Maybe jo should have some reaction to that". Her only reaction now comes eight lines later ("“I'd have made it too,” she said."). Two options offered; he picked 2, the look. In the manuscript doc, manuscript/chapter-24-cal.md and the Vellum book (Word not rebuilt). The exchange (option 1) was declined: do not offer it again. Told Todd that ch 26 also has "the pencil an inch off the paper"; he said "Then make it unique", so at 1:10 PM the ch 24 line became "Jo did not say anything. Her pencil had stopped over the clipboard." (doc, chapter file, Vellum).
+- 1:12 PM, Todd: "Maybe nothing with the clipboard or pencil. Maybe a look that dissaproves". He picked 1; APPLIED 1:12 PM (doc, manuscript/chapter-24-cal.md, Vellum; Word not rebuilt). CURRENT TEXT is option 1. The options were: (1, Claude's pick) "Jo looked at me. I knew the look. Abby has it, for when I have done the thing I do." (ch 20, Abby: "Don't do the thing you do."); (2) "Jo looked at me. Her mouth had gone tight."; (3) "Jo looked at me and did not say anything. I could see she did not like it."
+- 1 (Claude's pick), an exchange, to go in right after his line: "“Did you ask her first?”" / "“I did not. Janice sent the wire. I was in a car, between two meetings.”" / "Jo did not write that down either."
+  Basis: ch 17, her rule ("You don't pay for anything of mine without asking me first."); ch 28 already has the car and the wire ("In 2012 I had paid off my mother's house from the back of a car, between two meetings. Janice sent the wire."). Payoff: ch 28, he pays hers without asking; ch 35, "“May I pay off your house?”".
+- 2, a look only: "Jo did not say anything. Her pencil had stopped an inch off the paper."
+
+## November 12, 1:07 PM: cut "Yes." before "I paid off the house in October 2012."
+
+- Todd selected "Yes. " and wrote "cut". Now: "“I paid off the house in October 2012. She did not ask me to.”" (manuscript/chapter-24-cal.md)
+- In the manuscript doc, the chapter file and the Vellum book. Word not rebuilt.
+
+## November 12, 12:11 PM: ch 23, "her corner" (option 3 APPLIED 12:11 PM)
+
+- Todd selected "her corner" in "Seven years I'd hosed this boat down around her corner." and wrote "not sure what this means". It is her mother's seat by the hatch (ch 23 earlier: "Every year until 2019 my mother rode under this bridge in the corner by the hatch"), but "her" has nothing to point to in that paragraph. Three options offered; he picked 3. In the manuscript doc, manuscript/chapter-23-jo.md and the Vellum book (Word not rebuilt). The options were:
+  1. "Seven years I'd hosed this boat down around my mother's corner."
+  2. "For seven years I'd hosed down every inch of this boat except my mother's corner."
+  3. (Claude's pick) "Seven years I'd washed this boat and left my mother's corner dry."
+
+## November 12, 12:08 PM: cut "by myself" from "I washed the boat down by myself."
+
+- Todd selected "by myself" and wrote "cut". Now: "I washed the boat down. Fresh water goes on everything the bay touched." (manuscript/chapter-23-jo.md)
+- 12:09 PM, same chapter, her mother's corner by the hatch: Todd selected "in it" and wrote "cut". Now: "The corner of the cockpit by the hatch was dry. Nobody had sat in it all morning." / "I sat down."
+- In the manuscript doc, the chapter file and the Vellum book. Word not rebuilt.
+
+## November 12, 11:09 AM: ch 22, Cal's "Yes." to "We're movers." is now "Since 1987," (APPLIED 11:10 AM); ch 34 line still OPEN
+
+- Todd selected Cal's "“Yes.”" (the drive home from Stephanie's: "“Line nine is good family,” I said." ... "“We're movers,” she said." / "“Yes.”" / "“Why's it on there?”") and wrote "reveal character". Three options offered; he picked 1. In the manuscript doc, manuscript/chapter-22-cal.md and the Vellum book (Word not rebuilt).
+- 1 (Claude's pick): "“Since 1987,” I said." The year is on her truck door (ch 2) and on his first-night card (ch 1). He answers her challenge with her family's own date, which is what "good family" is supposed to mean. Ch 34 repeats "“We're movers.”" and gets the real answer (the tray).
+- 2: "“So am I,” I said. “I have the pay stub.”" (ch 15, his day on her payroll; Denise: "I'm going to frame his pay stub.")
+- 3: "“My mother served lunch,” I said." (closest to the ch 34 reveal; gives some of it away early).
+- STILL OPEN, flagged to Todd, not changed (he has not answered; do not ask again unless he raises it): ch 34, "“I put it on the list so I would stop being the lunch lady's son.”" has him putting a line on a list Remy wrote (see the 10:36 AM rule). Possible fix: "“I agreed with it so I would stop being the lunch lady's son.”"
+
+## November 12, 11:08 AM: "There was not one." is now "It was a period."
+
+- Todd selected "There was not one." and gave "It was a period." Now: "I listened for the exclamation point. It was a period." (manuscript/chapter-22-cal.md)
+- In the manuscript doc, the chapter file and the Vellum book. Word not rebuilt.
+
+## November 12, 10:36 AM: ch 21, "It was mine." against Remy writing the list (fix APPLIED 10:39 AM)
+
+- Todd selected Cal's "“It was mine.”" (line eight, in his old bedroom) and wrote: "we have somewhat of a conflict in that he says this line was his but earlier remy made the list in 9 seconds."
+- Claude's answer: Remy wrote all twelve (ch 2, ch 13) and he agreed with them. The book's running question is who wanted each line: ch 16 "“Who wanted that one?”", ch 19 "I didn't ask him who wanted that one. Not on an airplane." Ch 27 is already safe ("“Line ten was mine,” he said. “*Never married.* Remy put it there because I was divorced at twenty-seven. I agreed with it in about a minute.”"). Ch 21 is the only place where "whose line" and "It was mine" can read as authorship.
+- Options offered, nothing changed, waiting on him:
+  1. (Claude's pick) use the book's own question: "“On the plane you did not ask me who wanted line eight,” he said." / "“I'm asking.”" / "“I did.”"
+  2. keep the question, change the answer, echoing ch 13's "Janice wrote it. The debt was mine.": "“Remy wrote it. I am the one who wanted it.”"
+  3. leave ch 21 as it is.
+- 10:38 AM, Todd: "how does 1 solve it if remy made the list?" He is right: "who wanted it" / "I did" still sounds as if the line started with Cal. Claude withdrew the pick. Revised proposal, nothing changed: say both halves, as ch 27 does. "“On the plane you did not ask me about line eight,” he said." / "“I'm asking.”" / "“Remy put it there. I knew why as soon as I read it.”" / "“Why?”" (her "Why?" is already there). Optional, flagged as an addition: after "“I have watched it four hundred and twelve times.”" he adds "“Remy has that number. It is where the line came from.”", which shows how a list made from his history got that line.
+- 10:39 AM, Todd: "yes both". Applied in the manuscript doc, manuscript/chapter-21-jo.md and the Vellum book (Word not rebuilt). The Remy line went one beat later than offered, after Jo's reaction, so "four hundred and twelve times" still lands alone: "“Remy has that number,” he said. “It is where the line came from. I wanted one I was there for. I wanted to hear one skip six.”" Todd was told.
+- Rule to keep: Remy wrote every line of the list from his history; Cal approved them. When he owns a line he says Remy put it there and that he agreed or knew why (ch 21 line eight, ch 27 line ten). He never says a line was his.
+
+## November 12, 10:32 AM: ch 21, "until he can" is now "until they can"
+
+- Todd selected "he" and gave "they". Now: "When a client can't call something, I leave it in the room until they can."
+- In the manuscript doc, manuscript/chapter-21-jo.md and the Vellum book. Word not rebuilt.
+
+## November 12, 10:12 AM: ch 20, Vili's "Nobody pays me enough" is now "Not enough"
+
+- Todd selected "Nobody pays me" and gave "Not". Jo: "“He's paying for the drive,” Jo said." Vili: "“Not enough for a Saturday.”"
+- In the manuscript doc, manuscript/chapter-20-cal.md and the Vellum book. Word not rebuilt.
+
+## November 12, 10:09 AM: ch 20, Vili's "lamp" is now "clock"; the clock planted in ch 14 (APPLIED 10:10 AM)
+
+- Todd selected "lamp" in Vili's line and wrote: "clock. I want this to be the clock he gave his mom and the 10 minutes was really him caught in revery".
+- Applied (doc, manuscript/chapter-20-cal.md, Vellum; Word not rebuilt): "“Forty minutes down 101,” he said, “for a man who takes ten minutes on a clock.”"
+- Found while checking: nothing before ch 20 shows Cal taking ten minutes on anything, and the alarm clock is never on the page before ch 16, where Jo says "“Isn't that the same clock you marked blue?”". So the ten minutes needs a scene. The place is ch 14, his mother's bedroom, the Saturday before the dog park; Vili is there.
+- Todd: "yes". Now in the manuscript doc, manuscript/chapter-14-cal.md and the Vellum book (Word not rebuilt). The clock runs ch 14 (ten lost minutes, marked blue), ch 16 (he tells Jo what it was; "the same clock you marked blue"; "The clock can go.") and ch 20 (Vili's joke). It went in ch 14 after "By nine she had spoken to me only in colors and directions." and before "At 9:40 she opened the top drawer of the dresser.": "At 9:21 she picked the alarm clock up off the nightstand and held it out." / "“Green or blue?”" / "I took it from her. It was still set for five." / "“Blue,” I said." / "Jo was across the room with the nightstand drawer emptied out on the bed. She had not been there when I took the clock. Vili was in the doorway. He looked at the clock in my hand and then at his watch." / "It was 9:31."
+- Why it withholds what he was remembering: ch 16 tells it to Jo ("When I was ten I bought my mother an alarm clock with my own money... It went off at five every morning, on the other side of my wall."). Ch 14 shows only the lost ten minutes and "still set for five".
+
+## November 12, 10:05 AM: ch 34 pays off ch 20's "I built or I pay" (his mother held him up) (APPLIED 10:05 AM)
+
+- Todd selected "I built or I pay." in ch 20 and wrote: "His mom held him up but he didn't know it. How do we pay this insight off later in the book". Answered; one payoff proposed; Todd: "yes". It is in the manuscript doc, manuscript/chapter-34-cal.md and the Vellum book (Word file not rebuilt). The two are a pair now: do not change ch 20's "Everything else that has held me up, I built or I pay." without checking ch 34.
+- Claude's answer: ch 34, on the front step, where he tells Jo about the dog his mother brought home from the county shelter the fall his father left ("When she ignored me, he leaned on me." ... "I have had a dog ever since."). The dog is the thing she gave him to lean on when she could not be it. He did not build it and did not pay for it.
+- Proposed, to go in after "“She called him in from the yard every night for seven years. She never asked me why.” I looked at my hands. “He died when I was twelve. I have had a dog ever since.”" and before "Jo looked at the back of the card.": "“She knew she'd gone cold on you,” Jo said. “So she went and got you something to lean on.”" / "In July I had lain on the ocean and decided that everything else that had ever held me up, I built or I paid. I did not build that dog. I did not pay for him. My mother drove to the county shelter and got him. I had left her off the list for thirty-six years."
+- Arithmetic: Cal is 41 (three years younger than Jo, 44); his father left when he was five; thirty-six years.
+- Considered and not proposed: ch 30 after the voicemail (the scene is full, and the shoebox there is her waiting for him, which is a different thing from holding him up); ch 38.
+
+## November 12, 10:01 AM: ch 20, the floating paragraph in the board meeting (APPLIED 10:02 AM)
+
+- Todd selected the end of the paragraph ("I did not know where to put that in a meeting. I kept my hand down until the quarter was over.") and wrote: "Is there something more here? Letting something hold you up by doing nothing seems like a valuable insight". One version offered; Todd: "yes". It is in the manuscript doc, manuscript/chapter-20-cal.md and the Vellum book (Word file not rebuilt). The optional "nine minutes early" sentence was not added.
+- Now: "Somewhere in the revenue slides I was back in the water on Maui with my arms out, Owen telling me not to do anything. I had sunk twice. Both times I had been helping. The third time I did nothing at all. The Pacific Ocean held me up for a minute and a half. Everything else that has held me up, I built or I pay. I did not know where to put that in a meeting. I kept my hand down until the quarter was over."
+- Basis on the page: ch 19, he sinks twice and floats on the third try once he stops holding his head up; ch 18, "Everyone who has a key to my house and does not live in it is on my payroll."; his core belief (showing up is not enough, the right thing delivered is). He reports it as readings and does not draw the lesson; that waits for 34 and 35.
+- Not used here on purpose: Jo's hand on his back at the rim (it comes later in ch 20) and sitting beside Owen (he tells Janice a few lines earlier).
+- Optional extra, offered and flagged as invented: a last sentence giving the meeting's reading, such as "It ended nine minutes early."
+
+## November 12, 9:52 AM: ch 19, something interesting about Hawaii at "Than that part." (option 1 APPLIED 9:54 AM)
+
+- Todd selected Dr. Okamura's "“Than that part.”" (her answer to Owen's "“I'm older than Hawaii,”") and wrote: "This is an opportunity to say something interesting about hawaii". Three options offered; he picked 1. It is in the manuscript doc, manuscript/chapter-19-jo.md and the Vellum book (Word file not rebuilt). "It took him two tries" is Claude's and was flagged to him. The name is spelled with the ʻokina (the chapter already uses kahakō in Kīhei and Haleakalā).
+- Checked (USGS, Hawaii County, Hawaii Supreme Court): Kamaʻehuakanaloa (Lōʻihi until 2021) is an active undersea volcano about 19 to 22 miles off the southeast coast, summit about 3,200 feet down, name glossed "reddish child of Kanaloa" (Kanaloa, the ocean), no known date for reaching the surface (USGS: as much as 200,000 years). The 2018 eruption made 875 acres of new land and destroyed 716 dwellings. Land made by lava belongs to the State (State ex rel. Kobayashi v. Zimring, 1977).
+- Option 1, the next island (Claude's pick): "“Than that part.” She pointed past the point, out at the open water. “There's a younger one coming. Twenty miles out, three thousand feet down. It's got a name already.”" / "“What is it?”" / "“Kamaʻehuakanaloa. The red child of the sea.”" / "He said it back to her. It took him two tries." Then the next paragraph becomes "He put his head back out the window and looked at the water, now that he knew."
+- Option 2, who owns it: "“Than that part.” She looked down at the point. “Eight hundred and seventy-five acres. Nobody can buy it. Land the volcano makes belongs to the state.”"
+- Option 3, the number only: "“Than that part. The island got eight hundred and seventy-five acres bigger that summer.”"
+
+## November 12, 9:49 AM: ch 19, Owen teaching Cal to float, the ears exchange
+
+- Todd selected the three lines ("“Put your ears in,” Owen was saying. “Your ears are the problem.”" / "“My ears are not the problem.”" / "“They're the problem.”") and wrote "This sounds stilted". Three options; he picked 1.
+- Now: "“You have to put your ears in,” Owen was saying. “You keep holding your head up.”" / "“I am not holding my head up.”" / "“You are.”" Then "Cal put his ears in." as before.
+- In the manuscript doc, manuscript/chapter-19-jo.md and the Vellum book. Word file not rebuilt.
+
+## November 12, 9:40 AM: ch 19, "He had it anyway." is now "He knew it anyway."
+
+- Todd selected "He had it anyway." and wrote "People don't talk like this". Three options; he picked 1.
+- After Owen lets the wind have Pele's hair: "I don't take anything home from a job. I've never told Owen that. He knew it anyway."
+- In the manuscript doc, manuscript/chapter-19-jo.md and the Vellum book. Word file not rebuilt.
+
+## November 12, 9:39 AM: ch 19, a line Todd loves (leave it alone)
+
+- Todd selected "They weren't for us." in the chant paragraph at the crater rim ("Down the rim from us a woman started to chant. ... I didn't know the words. They weren't for us. Nobody along that rope said anything while she did it.") and wrote: "This is one of my favorite parts. I love it."
+- Nothing changed. Do not touch this paragraph in later passes.
+
+## November 12, 9:29 AM: ch 19, "Kids' heights" is now "Names and lines"
+
+- Todd selected "Kids' heights" and gave "Names and lines". On Maui, at the back of the bathroom door, Jo answers Gil: "“Names and lines,” I said."
+- In the manuscript doc, manuscript/chapter-19-jo.md and the Vellum book. The Word file was not rebuilt (on demand only, per the 8:24 AM rule).
+
+## November 12, 8:28 AM: standing.md is the file to read first; style guide counts and header trimmed
+
+- Todd: "Accept your proposals" (claude/proposals-instructions-2026-11-12.md, items 2 to 5).
+- claude/standing.md (was standing-draft.md) now holds the standing rules. This file is the log. Its old Standing section is kept below under a new heading, for the doc ids and tool recipes only.
+- claude/romance-style-guide.md: per-chapter counts reworded to their purpose (attraction, Jo alone with the work, Jo a fool for him, Cal reading people, "the way" similes, Denise's capitals), with the matching lines in the chapter routine; four quoted prods cut (Todd: they "weren't really reprimands", he was trying to get something different and "probably should have just started a new session"); the "no agents" rule now stated once; the header cut to one line.
+- Not settled: item 6, whether the November 2 chapter 17 items in claude/pending-updates.md were applied to the plan and the character sheet. The style guide doc was not changed.
+
+## November 12, 8:24 AM: the Word file is on demand; the ", and" check reworded
+
+- Todd: "The word file should not be rebuilt for every change. Only on demand." Standing from here: a change goes to the manuscript doc, the chapter file in the folder and the Vellum book. The Word file is rebuilt only when Todd asks. When it is rebuilt it keeps its one name, `Nobody Marries the List.docx` (October 20). This replaces the per-change rebuilds of November 9 to 11 and the Word line in the Standing section below.
+- Todd: "Take proposal 1" (claude/proposals-instructions-2026-11-12.md). In claude/romance-style-guide.md, the pre-filing check no longer says "every ", and" join split into two sentences". It now follows his October 23 notes: resolve the join that tacks on a clause to land a point, vary the fix, no runs of short splits, and keep lists, one subject's run of actions, tags, natural speech, cards, texts, screens and word-for-word callbacks. The style guide doc was not changed.
+- (Proposals 2 to 5 were accepted at 8:28 AM; see above.)
 
 ## Standing: what "reveal character" means (Todd, November 10, 1:18 PM)
 
 - Todd, on the ch 4 garage bet: "This is what I mean by revealing character. Too often you just make up single lines that don't mean anything."
 - The standard: when Todd asks for a line to reveal character, look first for an exchange or an action where two beliefs meet, with something at stake that nobody says out loud, and if possible a payoff later in the book. The bet works because Jo pushes (she doesn't believe him), Cal answers from his belief (he doesn't take chances), Jo reads him ("Smart"), the stake is an extra Saturday together, and ch 34 pays it off.
 - A single invented line that only sounds like the character, or restates a fact the reader already has, doesn't meet it. Offer that kind only when the spot can't hold an exchange, and say so.
+
+## November 11, 10:19 PM: ch 35, Todd's line "I know he's close when I shiver." placed
+
+- Todd: "I want to find a place to put this line: I know he's close when I shiver". Three spots offered (ch 35 kitchen, ch 21 desk, ch 37 door of the Oak); he picked 1.
+- Ch 35, the night Cal comes back: "Half of it went on my floor." / "I know he's close when I shiver." / "“Can I give him a piece of the linguiça?” I said, with my back to the door." / "“One,” Cal said. “He is still on chicken and rice.”" / "When I turned around he was in the kitchen doorway, under Owen's marks."
+- The line is Todd's, word for word, in the present tense. Do not reword it. It pays off ch 17 ("the way somebody comes into the kitchen while you're at the sink, and you know who it is without turning around").
+- In the manuscript doc, manuscript/chapter-35-jo.md, the Vellum book and the rebuilt Word file.
+
+## November 11, 10:17 PM: ch 19, the lanai passage cut down so it hits (CURRENT TEXT)
+
+- Todd: "Do you think when readers read it will hit hard for them? That's what I want". Claude's answer: the last paragraph hits; the middle (the sums, the three-trucks joke, "Asking first") cools the reader right before the blow. Shorter version offered; Todd: "yes".
+- The passage now, three paragraphs: "It wasn't hard to find." / "Kevin's folks gave us a down payment. I didn't hang a picture for eleven years." / "I knew what this one would cost. For one minute I'd wanted it anyway, handcuffs and all. I'd wanted to put my whole weight on him, me and my kid. I hadn't known I was that tired."
+- Out: "That was a down payment. This was all of it. The house, the college, my father's knees. I did the math on the lanai. Three trucks till I'm dead wouldn't touch it." and "So I'd live in it like I lived in that one. Asking first." The 10:14 PM entry below has the longer text and the reasoning.
+- Todd did not object to the added "whole weight" sentence; it stays (plant for ch 35).
+- Lesson: for a line meant to hit, get to the turn fast and let the reader do the arithmetic. A joke before the blow lets them off.
+- In the manuscript doc, manuscript/chapter-19-jo.md, the Vellum book and the rebuilt Word file.
+
+## November 11, 10:14 PM: ch 19, the lanai: what Jo is afraid of (her Pemberley moment)
+
+- Todd, on "It wasn't hard to find. I could never pay him back for a house like that. All I could do was lean on him, me and my kid, with our whole weight.": "Is there something more insightful and deeper we can do here?" Four rounds were rejected before one landed. His notes, in order: option 1 "isn't fully developed nor does it stay in character"; the developed version "doesn't land or hit hard. It's go through events"; three short ones "aren't any different. I want you to think about it and try to think of something deep from her perspective. What is she afraid of? This is her pemberly moment from pride and prejudice. Why would she be afraid to have it all? And say it how she would say it." Then "ok".
+- What it is now (four short paragraphs): "It wasn't hard to find." / "Kevin's folks gave us a down payment. I didn't hang a picture for eleven years. That was a down payment. This was all of it. The house, the college, my father's knees. I did the math on the lanai. Three trucks till I'm dead wouldn't touch it." / "So I'd live in it like I lived in that one. Asking first." / "I knew all that. For one minute I'd wanted it anyway, handcuffs and all. I'd wanted to put my whole weight on him, me and my kid. I hadn't known I was that tired."
+- The fear, as settled with Todd: she has already lived in a house somebody else paid for (ch 17: the down payment, "To him it was a present. To me it was handcuffs."); this is that with no way to pay it back; and she wanted it anyway. Being afraid of how much she wanted it is the turn. Built on: "handcuffs" (ch 17), her "ask me first" rule turned around (ch 17), Owen's "She was tired." (ch 12).
+- One sentence was added after Todd's "ok" and flagged to him: "I'd wanted to put my whole weight on him, me and my kid." It keeps the plant for ch 35 ("I put my whole weight down on him, all of it, on purpose. He took it."), which the approved draft would have dropped.
+- What failed, to avoid next time: Claude explaining her ("I never picked anything up"); Jo summing up; walking back through events already on the page; three variants of the same idea offered as different. When Todd asks for depth, find the fear in what she has already lived on the page and give one version.
+- In the manuscript doc, manuscript/chapter-19-jo.md, the Vellum book and the rebuilt Word file.
 
 ## November 11, 9:35 PM: ch 18, the drawer lines replaced
 
@@ -1643,7 +2795,7 @@ Todd read chapter 17 line by line in the manuscript doc and asked for changes as
 - Still to do (done October 20, 11:00 AM): the plan file (claude/book-plan.md) needs the same 35 entry, Jo's ladder row 35 ("she sends for him with 'Bring Pancake,' says 'I need you to stay,' and holds the leash"), the list table's line seven status (struck, ch 35, after he tells her the line was so he would not have to come), the dates row, the Places entry for her house, the chapter log row and a decision-record entry; the character sheet (file and doc) needs the who-knows rows for 35 (Cal: her tin, held shut and put back, never explained; Jo: why line seven was on the list; that he can say "I am sorry" with nothing after it) and "What Cal overcomes" in the plan still says "he signs her note in 35," which is stale (there is no note). All in claude/pending-updates.md.
 - Next: chapter 36 (Cal, September, a school day: the keynote at full power, Owen's school calls, Kevin does not pick up, Jo two hours away on a job, he walks off the stage and goes himself with no driver, gets half of a sick nine-year-old wrong and stays the night; Janice has retired and left him the card file; he writes Owen a card himself with a pufferfish on it; that night Jo strikes eleven; Frank: "He carries okay."). Before drafting, read the plan's 36 entry, Cal's engine (character sheet), the style guide's narration and no-recap rules, and chapters 34 and 35.
 
-## Standing (carried over from claude/handoff.md; see the archive for the history)
+## Old Standing section (superseded by claude/standing.md on November 12; kept for the doc ids and tool recipes, not as rules)
 
 ### Read this first
 
@@ -1682,7 +2834,7 @@ Git repo on Todd's computer: `~/NobodyMarriesTheList`. Write book changes to his
 - Say the thing; do not be coy. No character speaks narration (October 18). Nothing from an earlier chapter restated unless it does new work (October 19). Clock times are Cal's (October 17). Places at full size (October 15). Dawn may say true things about both of them; nobody else explains him to himself.
 - A revised chapter replaces the old one. Never keep superseded chapters. Scene breaks are a line holding only `***` (in the doc, a plain paragraph of three asterisks, written as `\*\*\*` in markdown).
 - Always show the link to the full manuscript in replies, not chapter files ("The chapters don't refresh"). After every manuscript change, reopen the manuscript doc for him with the Artifact tool's open action.
-- The Word file for Vellum is always ~/NobodyMarriesTheList/Nobody Marries the List.docx, overwritten in place, never renamed (Todd, October 20, 4:26 PM: "It needs to always have the same name so I can reimport it into vellum.").
+- The Word file is rebuilt only when Todd asks (November 12), not after each change. When rebuilt it is always ~/NobodyMarriesTheList/Nobody Marries the List.docx, overwritten in place, never renamed (Todd, October 20, 4:26 PM: "It needs to always have the same name so I can reimport it into vellum.").
 - Every doc has one header line with the full date and time of the most recent update; overwrite it on every change, with the real time (check the clock first).
 - Keep moving and keep him posted; a long silent stretch drew "Are you spinning."
 

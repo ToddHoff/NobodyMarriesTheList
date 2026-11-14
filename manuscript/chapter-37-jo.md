@@ -2,9 +2,7 @@
 
 **Jo**
 
-On Sunday night Cal dried my roasting pan and put it away where it doesn't go.
-
-“Will you meet me at the Oak on Friday?” he said.
+“Will you meet me at the Oak on Friday?” Cal said.
 
 “I've got a house in San Mateo Friday.”
 
@@ -19,22 +17,6 @@ After he'd gone home I stood at my fridge and read his list. It was the printout
 Eleven of the twelve had a line through them. He'd told me why eleven was there the afternoon we stayed home with Owen. He'd wanted a wife who could leave when he left, so nobody would be at home waiting on him to call.
 
 Twelve was *Says what she wants*. I'd left that one alone.
-
-Under it, in my printing, there was a thirteenth.
-
-*SAYS WHEN HE WAS WRONG.*
-
-I wrote it in February, the week after Owen turned ten. While Owen was at his dad's, Cal went into the dog app Owen wrote himself and made it faster. Owen came home and opened it. He shut it again. Then he went to his room and shut the door.
-
-That night Cal sat down on the hall floor with his back against the wall outside Owen's door. I was at the sink. He talked to the door.
-
-“I changed your app without asking you,” he said. “That was wrong. I have put it back the way you wrote it.”
-
-For a while the door stayed shut. Then it opened. Owen stood there in his socks with the phone.
-
-“Show me how you made it fast,” he said.
-
-Cal got up off the floor and went in. I dried my hands. Then I went to the fridge and wrote the thirteenth line under the twelfth.
 
 ***
 
@@ -90,7 +72,7 @@ On the eighth of October, a year to the day, he'd played his mother's message on
 
 ***
 
-I put the truck on Minna Street. The curb's a loading zone until six. It was after.
+I parked the truck on Minna Street.
 
 The oak was still behind the bar.
 
@@ -108,13 +90,13 @@ Cal was at the corner table with his phone at his ear. He stood up when he saw m
 
 “I'm here,” I said into mine, ten feet from him, and hung up.
 
+I walked the ten feet and he put his arms around me. I kissed him. He had on the gray shirt. The gray was coming in over his ears. I wanted my hands in it.
+
 He put his phone face down on the table. At my place there was a shrimp cocktail, six shrimp hung off a glass of ice around a cup of red sauce. Beside it a bottle of champagne sat sweating in a silver bucket.
 
 “Those are yours,” he said. “You ate five of mine the first night.”
 
 I took one. The sauce went up the back of my nose and cleared out San Mateo.
-
-He had on the gray shirt. The gray was coming in over his ears. I wanted my hands in it.
 
 The bartender was there before my chair stopped moving. I asked for whatever was on draft. He looked at the champagne. Then he said it would go on Mr. Brennan's tab.
 
@@ -164,7 +146,7 @@ Stephanie had put it on my desk last August. *If there's a ring,* she'd said, *i
 
 I looked at it a while before I opened it.
 
-I turned to the last page. My printing still ran off the end of the line and down the margin. He hadn't added a word to it. I got the pencil out of my purse and drew a line through *and what I owe on it*.
+I turned to the last page. My printing was still there. He hadn't added a word to it. I got the pencil out of my purse and drew a line through *plus what I owe on it*.
 
 He looked at the line a long time. Then he put the forty pages back in the envelope in their order.
 
@@ -238,7 +220,7 @@ When I let him go he turned around to the room. “Dinner is on the house tonigh
 
 He sat down next to me and was the one with the card again.
 
-He took the champagne out of the bucket and opened it. It went off like a nail gun.
+He took the champagne out of the bucket and opened it. It went off like the muffler on the sixteen-footer.
 
 “How'd you get it to match?” I said.
 
@@ -260,15 +242,15 @@ He took the champagne out of the bucket and opened it. It went off like a nail g
 
 “It was the only one that matched.”
 
-I took it off and turned it to the light, the way I do on a job. Inside the band, engraved small, it said 62¼.
+I took it off and turned it to the light, the way I do on a job. Inside the band, engraved small, it said GREEN.
 
-“Sixty-two and a quarter,” I said.
+“Green,” I said.
 
-“Without the boots.”
+“You asked me that about everything in my mother's house,” he said. “This is the one I did not have to think about.”
 
 I put it back on. On the truck it would go on the chain, with the glass.
 
-“Chairs off the truck,” I said. “Abby squares them up. Denise brings a sheet cake. Dad sits in his chair, with his cushion. Owen rules on whether it counts.”
+“Chairs off the truck,” I said. “Abby designs the layout. Denise brings a sheet cake. Dad sits in his chair, with his cushion. Owen rules on whether it counts.”
 
 “Which Saturday do you want?”
 

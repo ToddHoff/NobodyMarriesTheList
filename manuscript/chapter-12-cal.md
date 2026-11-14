@@ -90,7 +90,7 @@ At 7:30 that night I called Janice, as I do after every Saturday, to tell her ab
 
 I gave her the sandwich, the butter and eight of the nine questions. I gave her Owen's handshake, one pump, and the four minutes and ten seconds.
 
-“Is that all of it?”
+“Is that everything?”
 
 “Yes.”
 
@@ -340,7 +340,7 @@ Janice paused. It was the eighth time in seventeen years.
 
 “I was there,” Jo said.
 
-I had been there too, right up until I drove home and gave all of it to Janice at 7:30, with times. I looked at the fourteen cabinets of my cards.
+I had been there too, right up until I drove home and gave everything to Janice at 7:30, with times. I looked at the fourteen cabinets of my cards.
 
 Jo put the pencil behind her ear.
 

@@ -312,7 +312,7 @@ He put a finger on the line that said ABBY 3 and went up them one at a time.
 
 He said it the way he gives a time, to the minute. His finger stayed on the 14.
 
-Kevin was at every one of Owen's games. I have said that to anybody who asked, the way you say a man pays his child support. Standing in that bathroom I was glad of it.
+Kevin was at every one of Owen's games. I have said that to anybody who asked, the way you say a man pays his child support. Standing in that bathroom I was glad.
 
 “Who's Abby?” Owen said.
 
@@ -338,7 +338,7 @@ He turned around and looked. Then he put his own hand up to the line that said 1
 
 He meant the pencil. I took it from behind my ear and gave it to him.
 
-Owen got back under my hand. Cal drew the line along the edge of it, the pencil passing the side of my finger close enough that I felt it go. Then he wrote beside the line in capitals, slowly. He took a long time over the O. OWEN 9.
+Owen got back under my hand. Cal drew the line along the edge of my hand, the pencil passing the side of my finger close enough that I felt it go. Then he wrote beside the line in capitals, slowly. He took a long time over the O. OWEN 9.
 
 The last hand on my own head had been his. The first night, at the Oak, with my own tape. I'd told myself it was nothing like my father's. This time my hand was on my son's head. My throat went tight. I kept my eyes on the door.
 
