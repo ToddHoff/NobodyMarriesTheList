@@ -174,7 +174,7 @@ In daylight he was worse. The sun found the gray over his ears. He looked like h
 
 “You know I said no.”
 
-“Yes. I asked Dawn to say it twice.”
+“I asked Dawn to say it twice.”
 
 I waited for the rest. The rest is the part where a man explains to me what I meant.
 
@@ -238,7 +238,7 @@ I've heard every reason a house sits shut. The lawyer's slow. The brother won't 
 
 “Have you got a key on you?”
 
-“Yes. The one I had in school.”
+“The one I had in school.”
 
 “Let's walk it. That's what an estimate is.”
 

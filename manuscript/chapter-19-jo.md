@@ -116,7 +116,7 @@ He came back that afternoon, after Kevin's car had gone, and asked my son in my 
 
 “Is it the Pompeii kind?”
 
-“No. This kind pours.”
+“This kind pours.”
 
 “Nobody in Pompeii knew theirs was a volcano,” Owen said. “We did it in third grade.” He thought about it. “I'll decide when I see it.”
 

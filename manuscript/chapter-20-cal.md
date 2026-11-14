@@ -264,7 +264,7 @@ Denise looked over at the screen. Then she looked through it, at me.
 
 “How long have you been standing there?” she said. She did not sound surprised.
 
-“I have been here since the milk.”
+“I have been here since 11:06.”
 
 Jo turned around on the bench. She looked at me. Then she looked at her sister. Denise drank her coffee.
 
@@ -290,7 +290,7 @@ She looked at me for some time. She has her sister's eyes. Hers move more.
 
 ***
 
-At 11:48 that morning I sat in my car across the street with the engine off and called Dawn Pruitt. She had called me twice since May. I had called her machine twice, late at night. I had never called when she could pick up. For eight years Janice had made my appointments with her.
+At 11:48 that morning I sat in my car across the street with the engine off and called Dawn Pruitt. She had called me twice since May. I had called her machine twice. I had never called when she could pick up. For eight years Janice had made my appointments with her.
 
 She picked up on the second ring. When a door closed behind her, the street noise went away.
 

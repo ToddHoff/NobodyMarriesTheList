@@ -1,0 +1,433 @@
+01|Is that a pencil? >> “It's flat so it won't roll off a truck.”
+01|What is the estate half? >> “When somebody dies, the family calls me. I go through the house.”
+01|How do you go through it? >> “Every drawer. Every pocket of every coat.”
+01|Why do you go through the coats? >> “That's where the money is.”
+01|How is your father? >> “You don't know my father.”
+01|What is the line? >> “Can he carry.”
+01|What does he have to carry? >> “The heavy end.”
+01|Why is that a reason to come? >> “It's the only reason I'm here. I don't date.”
+01|Twenty-five feet of Stanley. You don't take a number on faith, do you? >> “I pay people to check them.”
+01|Are you going to eat those? >> “They come with the table.”
+01|Is it good? >> “Have one. It's your table.”
+01|Do I what? >> “Call your mother.”
+01|Did you call her before? >> “I sent things.”
+01|Has it helped? >> “It was easier when you were forty-eight feet wide.”
+01|Does that get you out of all of them? >> “Every one so far.”
+02|How old was I supposed to be? >> “You were supposed to be thirty to thirty-six.”
+02|Why thirty-six? >> “It is arithmetic.”
+02|What widow? >> “You were late because of a widow and a recliner.”
+02|What did you do with it? >> “Counted it twice, called a witness, and put it in her hand.”
+02|The last one. What did she do? >> “She asked whether I would consider rehoming Pancake.”
+02|What were they? >> “I do not know. They were chosen.”
+02|By who? >> “Someone good at it chose them.”
+02|Where are they now? >> “They are in her house, I assume.”
+02|Why the dish and not the silver? >> “Silver stays in a drawer. The dish came to every Thanksgiving.”
+02|How old are you? >> “I am forty-one.”
+02|A second drink? >> “It is my third.”
+02|Is that who crosses her sevens? >> “She writes one for everybody I meet.”
+02|What did she want? >> “I am to walk you to your car.”
+02|Will you text? >> “I don't have your number.”
+02|All three? >> “Cancel all three.”
+03|Who's C. Brennan? >> “A client.”
+03|Joanna. How was it? >> “Fine.”
+03|He timed it? >> “He times everything. He would like to see you again.”
+03|Is that no to him? >> “It's not him.”
+03|Who died? >> “Nobody.”
+03|He SENT these? >> “Somebody did.”
+03|And you said what? >> “I said no. To Dawn. Ten minutes ago.”
+03|Owen's back Sunday. You going to tell him you had a date with the billboard? >> “It wasn't a date.”
+03|Did Dawn reach you? >> “She reached me at 6:20. I was already on 280.”
+03|Is the house in a trust or in probate? >> “It is in a trust.”
+03|Who's the trustee? >> “I am.”
+03|Since when? >> “I have been the trustee since October.”
+03|Have you got a key on you? >> “Yes. The one I had in school.”
+03|Who decides which? >> “You do.”
+03|How big is it? >> “It has three bedrooms, two baths and a garage.”
+03|Is the garage full? >> “I do not know.”
+03|A saver? >> “A hoarder. Most people's mothers would rather be called a saver.”
+03|What does that cost? >> “Twelve hundred.”
+03|ive or go. That's your whole job. I bring two guys and a truck. How much time do you have? >> “I have Saturdays, seven to eleven. Everything else is booked through September.”
+04|Is that why you left out the laughing? >> “I did not think I was allowed.”
+04|About Jo? >> “About your mother.”
+04|What should I send her? >> “Nothing.”
+04|Forty what? >> “I have forty of this shirt.”
+04|What is six? >> “Never mind.” She pointed the clipboard at my feet. “Those are new.”
+04|Is that on the list? Clothes? >> “It is line three.”
+04|Which says what? >> “Dresses well.”
+04|What's one of these go for? >> “They go for about three.”
+04|Hundred? >> “It is three million.”
+04|Is that good? >> “It means whatever she hid, she hid at standing height.”
+04|Where do you want them? >> “I do not know.”
+05|You eating alone today, boss, or with the client? >> “I'm eating with my sandwich.”
+05|Where's your lunch? >> “I did not bring one.”
+05|What is this? >> “Linguiça.”
+05|Did you go there? >> “For three years. I ate at the table farthest from the line.”
+05|What did you say to her? >> “I said thank you.”
+05|Why? >> “I have asked him. He has not said.”
+06|May I ask who this is? >> “This is the sister,” she said, and hung up.
+06|Where did you get this? >> “I got it in San Jose, at a bakery in Little Portugal.”
+06|How's the thumb? >> “It has healed.”
+06|Jo. Who's this? >> “A client, Dad.”
+06|Clients bring lunch now? >> “This one did.”
+06|Can he carry? >> “He builds a square box.”
+06|Those your boots? >> “Yes, sir.”
+06|Blisters yet? >> “Two.”
+06|He brought lunch? >> “He brought a sandwich,” Jo said.
+06|Why would you do that? >> “Go eat, Vili.”
+06|What would I have asked her? >> “If she wanted to go.”
+06|Did she want to go? >> “With him. That was the whole trip.”
+06|To me? >> “To who? It's from her father.”
+06|How? >> “I can have someone call and explain.”
+07|Who? >> “Boss.”
+07|His what? >> “His piano.”
+07|And go where? >> “Nowhere. He came home. He ate dinner. He passed the salt.”
+07|Till when? >> “Sunday. Then he'd ask if I wanted the paper.”
+07|What did I say? >> “You said at least he came home.”
+07|So what was he quiet about? >> “I never asked him for anything.” It came out before I had looked at it. “Eleven years.”
+07|And when it's strapped right? >> “Quiet.”
+07|Why is it two? >> “One for the dinner. One for making me say it.”
+07|Which two? >> “You pick.”
+07|Which night will it be? >> “I'll tell you.”
+07|Green or blue? >> “Blue.”
+07|What does a person do with four hundred bread ties? >> “Nothing. That's why there are four hundred.”
+07|Where do I look? >> “At me.”
+07|What do you mean? >> “Carrying.”
+08|When was the first night? >> “It was May 7.”
+08|What should I not do? >> “Whatever it just told you. Keep it to yourself.”
+08|Who booked this? >> “Janice did.”
+08|or is that what comes with the food? >> “That is the course.”
+08|You? >> “I would do nothing.”
+08|For you it's what, a Tuesday? >> “It is less than a Tuesday.”
+08|No, really, why'd you create it? >> “I just told you.”
+08|What did you say? >> “I said I would get back to her.”
+08|What did you do for five years? >> “I sent things.”
+08|Send for what? >> “It would be something with more than one bite in it.”
+08|None of them? >> “No. Each one is there because of someone.”
+08|Where's the bill? >> “There is not one. It is a club. It is settled.”
+08|How do I pay for mine? >> “You cannot.”
+09|You the dinner? >> “I'm the dinner.”
+09|What do you want? >> “Four al pastor.” I looked at Cal, who had read the whole board by then, top to bottom. “Five.”
+09|What do I owe you? >> “Nothing. It's paid till eleven.”
+09|What did you get? >> “I got two hundred pounds.”
+09|How many were there? >> “Five.”
+09|Did Janice tell you to walk me to my truck? >> “It was my idea.”
+09|And the truck? >> “I wanted to walk you to it.”
+09|What would I brace for? >> “You braced for the shrimp. You braced for the linguiça.”
+09|And? >> “You were right both times.”
+09|Your hair's down. Since when is your hair down? >> “It was dinner.”
+09|An HOUR later he was still on the chair? >> “An hour.”
+09|Vili says you read him one in the truck. I do your TAXES. Vili hears them first? >> “Vili talks.”
+09|Is this why Dad has a cushion on that chair? >> “I bought the cushion.”
+10|I am calling about the footsteps. When did I notice that? >> “You didn't. I did, in my mother's house in Fresno, in 1998.”
+10|Are you unhappy with the work? >> “No. It is better than I am.”
+10|And then? >> “Then she drove home.”
+10|How bad is your car? >> “It has 1,340 miles on it. It will not miss a headlight.”
+10|What did you do to her Wednesday? >> “Runners, Vili.”
+10|That's it? >> “I have three lunches.”
+10|Who made that? >> “It was packed.”
+10|By who? >> “I do not know. It is on the counter in the morning.”
+10|What is that? >> “A one-star.” She turned the phone so that I could read it.
+10|How many are there? >> “Four hundred and some.”
+10|Is this one funny? >> “No. This one is there because of Abby.”
+11|What if he wants to see my app? >> “He won't.”
+11|What is it? >> “Dogs I've met. In order. I made it with Remy.”
+11|What does it sort on? >> “What I say. He kept putting them in alphabetical.”
+11|What did you tell it? >> “That alphabetical isn't an order. It's just the alphabet.”
+11|Did you meet him? >> “I saw him.”
+11|What is the ask? >> “I'm not allowed to ask you anything. You're a client.”
+11|If you were allowed, how many questions would there be? >> “Eleven. One is can I pet Pancake.”
+11|And the others? >> “I did not know about the others.”
+11|Who's Abby? >> “My daughter.”
+11|How old is she? >> “Eighteen.”
+11|Green or blue? >> “It is a door.”
+11|May I? >> “Go ahead.”
+12|Question two. How many voices did you test for Remy? >> “I tested forty.”
+12|Do you take days off? >> “I do not take many.”
+12|Who is he ahead of? >> “Daisy. She's the reading dog at the library.”
+12|How was it tested? >> “Two thousand accounts for ninety days. No failures.”
+12|Whose accounts were they? >> “Ours. Employees.”
+12|He squares your cards to the edge of the table. Did you know that? >> “I taught him to bring them,” Janice said. “The squaring is his.”
+12|Fourteen. What's in them? >> “Cards,” Janice said. “One for everyone he has met since 2009.”
+12|Whose are they? Yours or his? >> “His.”
+12|Is there a card for me? >> “There are two. I had to start a second.”
+12|What are they? >> “Are your shirts numbered.”
+12|Since when? >> “She has written them since 2009.”
+12|How many? >> “Twenty-three were from Janice. Nine were from me.”
+13|Did you know? >> “I knew he had someone. At that level they all have someone.”
+13|For what? >> “To show what she owed him.”
+13|Did she? >> “She thought they were presents.”
+13|Where are you? >> “In his garage.”
+13|Dad has him folding pads. Where WERE you? >> “Traffic.”
+13|The one with my name in it? >> “Hers.”
+13|The one about Pancake? >> “Hers.”
+13| been fine for eleven years. Ask anybody. Did Kevin ever notice that Dad needed a cushion? >> “The cushion was her idea.”
+13|Every house has a piano nobody put on the estimate. Where's yours? >> “There is no piano.”
+14|Who writes to her now? >> “I do.”
+14|Is that a Remy thing? >> “A nine-year-old told me to.”
+14|Who are you waiting for? >> “I am waiting for Jo.”
+14|Green or blue? >> “Green.”
+14|Green or blue? >> “Green.”
+14|Both pieces? >> “I did both of them, out to the edge.”
+15|At what rate? >> “Starting.”
+15|Did you eat? >> “I ate at five.”
+15|Seven what? >> “Get the dolly.”
+16|The usual what? >> “That's all it says, ma'am.”
+16|I can see it from here. Where am I driving? >> “Summit Road,” I said. “At the top of 17.”
+16|Which side did you take? >> “The other one.” She put it in gear. “Denise owes me twenty dollars.”
+16|What was it like? >> “I do not know. I answered email.”
+16|Does anyone take the box? >> “Not up here.”
+16|How do they know what they are owed? >> “They don't.”
+16|What was it for? >> “I asked his daughter. She said, ‘In case.’”
+16|Have you been? >> “Not till today.”
+16|Do you want me to keep him with me? >> “Please.”
+16|Why do you hold them so long? >> “Because they aren't ready.”
+17|How many bedrooms? >> “There are six.”
+17|How many is that? >> “Two,” Cal said. “A pair, most likely. They sound like ten.”
+17|Can she do that? >> “No. I initialed it. I would have never cut it down anyway.”
+17|Who moved her? >> “Her grandsons. It took them nine days.”
+17|Did you ever try it? >> “I thought it was silly.”
+17|You never put a hand on it? >> “I walk around it to get to the pool.”
+17|Do you leave them all on? >> “All right,” he said. “The windows.” He looked up at them. “Rita does. I come home after dark.”
+17|Every night? >> “I have not come home to it dark since I bought it.”
+17|May I ask you something? >> “You can ask.”
+17|When? >> “Saturday.”
+17|May I kiss you good night? >> “You can stop asking that one. I'll tell you if it changes.”
+17|Did they ask for it back? >> “They didn't have to. I paid the interest too.”
+18|What did you tell her? >> “To give you one more lap.” She stepped back out of the door. “Come in. Mind the shoes.”
+18|What did you do all afternoon? >> “I changed my shirt twice.”
+18|Did Rita ask why? >> “She asked whether I was ill.”
+18|And? >> “Like you.”
+18|Who is invited? >> “Not the bank.”
+18|Is that good? >> “I average five hours and eleven minutes.”
+19|Where's that? >> “It is in Hawaii, on the Big Island.”
+19|Who's Dr. Okamura? >> “She is the volcanologist. She has agreed to give us Tuesday.”
+19|Do you? >> “That's not the point.”
+19|Is it erupting? >> “It is between eruptions right now.”
+19|Is it the Pompeii kind? >> “No. This kind pours.”
+19|When did it go last? >> “It last went about five hundred years ago.”
+19|You want to see it? >> “All of it.”
+19|Where's it go? >> “Trough underneath. Gets pumped back around.”
+19|Six years of milk. And you? >> “Six of us. He keeps us on. Full pay.”
+19|What are you looking for? >> “Names and lines,” I said.
+19|Do we fix it? >> “No,” Owen said. “It makes a new one every time. That's the rule.”
+19|Which one's that? >> “I do not know,” Cal said.
+19|Which one's that? >> “I do not know that one either.”
+19|How many have you met? >> “Volcanoes? Forty-one.”
+19|In person? >> “In person.”
+19|What is it? >> “Kamaʻehuakanaloa. The red child of the sea.”
+19|Is it going? >> “It's getting ready.”
+19|When? >> “Tonight, maybe. Tomorrow, maybe.” She said it to him straight. “She doesn't tell us.”
+19|Are you okay? >> “I am not. I would like to stop talking.”
+19|Can we stay until it goes? >> “Ask your mother,” Cal said.
+19|How high? >> “Over a thousand feet,” she said. “Fourteen hundred, maybe.”
+19|did Mahina's cast come off on Friday? >> “Friday,” Gil said. “She's back in the water already.”
+19|What happened to Truck Dog? >> “I only saw him,” Owen said. “Now I know the difference.”
+20|What are you doing here? >> “You texted me HOME,” Denise said. “One word. After HAWAII. That's not a REPORT.”
+20|Where DID she sleep? >> “He never found out. It's been bothering him all week.”
+20|How do you LOCK it? >> “There's a gate. And a man named Gil.”
+20|And? >> “He got sick.”
+20|What'd Cal Brennan do? Call the volcano? >> “He sat down on the ground.”
+20|Which one? >> “You know which one.”
+20|How long have you been standing there? >> “I have been here since the milk.”
+20|Then what? >> “I do not know.”
+20|You want to know that? >> “Word for word.”
+20|And then? >> “She stayed in the hall until I had built them.”
+20|Which of the seven ever taped your thumb? >> “None of them.”
+20|What did you tell her? >> “That I did not know.”
+20|What did she say to that? >> “Figure it out.”
+20|Can I give you some advice? >> “That is why I called.”
+20|Where are you? >> “In my car. Across the street from my mother's house.”
+20|How much did you hear? >> “I heard everything from the milk.”
+20|What do I owe you? >> “I'll tell you when.”
+20|Did it work? >> “He talked for an hour.”
+20|Green or blue? >> “Blue,” I said.
+20|Who's Owen? >> “He is Jo's son. He is nine.”
+20|Will you let me do yours? >> “I'm eighteen. I'm done growing.”
+21|You coming? >> “I'm staying,” I said. “We're behind.”
+21|Which one do you want to know about? >> “Pick one.”
+21|How old were you? >> “I was eleven.”
+21|What time is it? >> “I do not know.”
+21|Where's your watch? >> “It is on the desk.”
+21|Who picked her up? >> “Janice. On Fridays. Most Fridays I came home after she was asleep.”
+21|How many times? >> “I have watched it four hundred and twelve times.”
+22|How do you know? >> “She asked me. Yesterday, in the atrium.”
+22|Who's going to be there? >> “Abby's friends will be there, and some of their parents, and X.”
+22|Who's X? >> “X is Abby's mother.”
+22|What do people wear to that? >> “I do not know,” I said. “I have not been to one.”
+22|What is in the bag? >> “A present.”
+22|In how many years? >> “It has been fourteen years.”
+22|How do you know? >> “I asked.”
+22|Which weekend? >> “I mean Friday the fourteenth to Sunday the sixteenth.”
+22|What time should I be there? >> “Five-thirty. Oyster Point. Shoes that grip.”
+23|Since when? >> “I have been here since 4:26.”
+23|Where'd you get those? >> “I bought them for the board retreat in 2014.”
+23|Which end is the tack? >> “Bottom.”
+23|How long have you been up here? >> “I have been here since your father left at 11:20.”
+23|Did you go under the bridge? >> “Yes. Your grandfather let me raise the main.”
+23|Did you fall in? >> “No. The water came in over the front of the boat.”
+23|Where are the Silveiras from? >> “São Miguel,” my father said. “My grandfather, in 1913.”
+23|Have you been? >> “Once. It rained.”
+23|Is he bad? >> “He's new.”
+23|He get the cleats? >> “Back one,” my father said.
+23|Who? >> “The matchmaker. Jo's matchmaker.”
+23|Why didn't you call me at two? >> “It's your mom's day.”
+23|Is everything all right? >> “Work,” I said.
+24|When is back? >> “With him that's Sunday or next July.”
+24|All of them? >> “You do not have to stay.”
+25|It is a very good picture. What is wrong with it? >> “Read me the two words.”
+25|olutely seamless, from the initial consultation to the final box.’ Who had a CONSULTATION? >> “Nobody. They get an estimate.”
+25|Is she lying? Or is she a ROBOT? >> “I don't know.”
+25|t were not written by customers. Most of them would be gone by tomorrow. Do you want that? >> “No, I'll handle it.”
+25|How many are left? >> “Three hundred and twelve.”
+25|How many have you answered? >> “Ninety-one.”
+25|May I come over? >> “Bring nothing.”
+25|How long's his walk? >> “It takes forty minutes.”
+25|What is it? >> “Paperwork.”
+26|Where would you like to sign it? >> “Anywhere your office can't find you.”
+26|What did you get? >> “The Harley. It has sausage on it.”
+26|What do I owe you? >> “A waterfall.”
+26|Does it sign? >> “I sign for it.”
+26|Do I change my side? >> “Your side's got a robot. Leave it.”
+26|What's that to you? >> “It is twenty-three millionths of what I have.”
+26|That's it? >> “That is the first one.”
+26|Why twice? >> “I wanted to hear it again.”
+26|What did she say? >> “She asked whether I had washed my hands.”
+27|One load? >> “On that truck it's two.”
+27|Which Hillsborough? >> “How many Hillsboroughs do we have? Wednesday. The big truck. Forty-eight sixty.”
+27|Did you measure those? >> “Each one is three inches.”
+27|Why? >> “A woman who had been married would ask me how mine ended.”
+27|How did yours? >> “Stephanie said she was lonely. I said I would fix it.”
+27|Did you? >> “I had Janice book a counselor. Thursdays at six.”
+27|Did you go? >> “Twice. Stephanie kept going without me. In March she filed.”
+27|Did she ask him for one? >> “She did not have to.”
+27|Are you going to read me the whole thing? >> “Yes. You read every page of a contract.”
+27|What can I get you? >> “The Ambrosiaburger,” I said. “Coleslaw. And a Red Seal.”
+27|May I get lunch? >> “I've got it.”
+27|What do they charge for Pancake? >> “It is one hundred and fifty dollars.”
+27|I am having clothes sent down from Carmel. May I have some sent for you? >> “I've got a shirt behind my seat.”
+28|Nothing for her? >> “She had a shirt behind her seat.”
+28|What is on Sweeney Ridge? >> “He won't tell me. He told your robot.”
+28|May we leave on Wednesday? >> “I can't leave on a Wednesday either.”
+28|How much? >> “Seventy-six hundred. Three weeks for the part.”
+28|Why are you telling me? >> “Because she WON'T.”
+29| marrying the girl who answers his phone. The landlord wants pay stubs. I said, from when? >> “Yes, ma'am,” I said.
+29|Ma'am? >> “Somebody else paid it.”
+29|Is there anything else I can help you with today? >> “No, ma'am. Thank you.”
+29|What happened? >> “Nothing.”
+29|Green or blue? >> “Green.”
+29|Two more? >> “One.”
+30|What's that? >> “It is the bathroom door from Grandma's hall.”
+30|Are you awake? >> “I'm pouring. Go ahead.”
+30|What did you do with it? >> “I deleted it.”
+30|Why? >> “I realized I did not mean it.”
+30|So what are you calling me for? >> “I want to know what to do.”
+30|Why not? >> “With the eleven I did not want anything.”
+30|And now? >> “I want her to answer.”
+30|Why haven't you sent her anything? >> “Anything I sent her now would be for me.”
+30|Is she still clearing your mother's house? >> “Yes. One more Saturday. The twenty-second.”
+30|Why not? >> “Remy told me what it said.”
+30|How many words? >> “Eleven.”
+31|What did he DO? >> “Thank you for the necklace.”
+31|Did Cal see it? >> “I don't know.”
+31|You didn't send it to him? >> “No, bud.”
+31|How do you know? >> “It's on the contract.”
+31|Who brought you a prenup? >> “His ex-wife.”
+31|Did he ask you to marry him? >> “I haven't given him the chance.”
+31|What is Stephanie doing with a prenup? >> “She had it drawn in July. In case.”
+31|n's. Came in by herself with her checkbook. He didn't know she was there. Did you read it? >> “All forty pages.”
+31|Of course you did. And? >> “It's fair.”
+31|To who? >> “His daughter.”
+31|But I'll ask. How was it? >> “It's not over.”
+31|You know how my marriage ended? >> “You never said.”
+31|You ever let anybody take the heavy end? >> “You taught me to take it.”
+32|What did Jo say? >> “She wouldn't promise.”
+32|Did Jo sign it? >> “She read every page.” She squared it again. “She didn't sign it.”
+32|Does your mother know you have this? >> “She will.” Abby held up the roll. “Jo gave Mom the tape for me. With good luck.”
+32|Is he hurting? >> “They have not told me.”
+32|Has he done anything like this before? >> “No. Never.”
+32|Where's he sleep? >> “On his bed by my door. I walked him up at 12:40.”
+32|The stairs okay? >> “One at a time. He did them.”
+32|Owen? >> “Denise.”
+32|How many times? >> “I lost the count.”
+32|Why? >> “I don't have anybody to send you.”
+32|What did they say? >> “I've got it in a folder.” She breathed. “I'm done adding to it.”
+32|Who drove him? >> “I did.”
+32|Who'd you call? >> “Jo.”
+32|What else? >> “Nothing. Nothing else.”
+32|Did you thank her? >> “No. She left while I was learning the pump.”
+32|How many did I send you before her? >> “Seven.”
+32|Which one of them paid for her own beer? >> “None of them.”
+32|Which one made you lunch? >> “None of them,” I said.
+32|What did they do? >> “They learned my schedule. Pancake's name. Abby's.”
+32|And you? >> “I sent them things.”
+32|Which of you was more in love? >> “They were.”
+32|who would Abby call? >> “Janice.”
+32|Has she said it back? >> “No,” I said. “I would like her to.”
+32|And the third kind? >> “She loves him more.” She drank. “That one doesn't make it.”
+32|Is he okay? >> “He held his head up at 5:40.”
+32|Who did you call? >> “Jo.”
+32|Did she come? >> “Yes,” I said. “I did not thank her.”
+33|Is Pancake okay? >> “He stood up yesterday,” I said. “He's eating.”
+33|Can I go see him? >> “He's home with Cal,” I said. “I'd have to call him.”
+33|You remember I used to call you from the store? >> “You called me from everywhere.”
+33|What'd I say? >> “You said, ‘When have I ever run out of anything, Kevin?’”
+33|How's Pancake? >> “Pancake's fine.”
+33|Who died? >> “Nobody.”
+33|When Kevin went quiet. That Tuesday. What did you do? >> “Painted the hall.”
+33|Did you ask him what was wrong? >> “Once. He told me what time he'd be home Thursday.”
+33|Once? In nine years? >> “Once.”
+33|Two in the morning. What did you ask him? >> “What he fed Pancake.”
+33|weeney Ridge whenever you liked.’ Whenever you liked, Joanna Marie. When's that ever been? >> “He should have asked me.”
+33|Did he ever ask you what you WANTED? >> “At Carmel.”
+33|And? >> “I didn't say.”
+33|What are you doing with this? Cashing it? >> “It's his.”
+33|And the rest? >> “Five hundred sixteen thousand, five hundred sixteen dollars and fifty-five cents.”
+33|ne thousand, if you're lucky. Now you're running two trucks. Which two guys do you let go? >> “Nobody.”
+33|What did the bank make you pay? >> “Thirty-nine ninety-one eighty-one.”
+33|Do you love him? >> “That's not what this is.” I squared the pad to the edge of the table.
+33|Do I want to know? >> “Yes,” Denise said. “Sit down.”
+34|She's staying? >> “I do not know.”
+34|And the son? >> “Went with him.”
+34|Is that you? >> “No,” I said. “That is what she would have gotten.”
+34|Did you call her? >> “I had a minute on the ninth. She died on the eighth.”
+34|What sentence? >> “*You, Calvin. Not Janice.*”
+34|Did you ever go back? >> “No.” I looked at the roof of the school. “I sent a check.”
+34|Every year? >> “Every June until 2020. After that the meals were free.”
+34|Does Janice know? >> “Janice never knew. She would have asked me why.”
+34|Did she know? >> “I do not know. She never said. I never asked her.”
+34|Did she use it? >> “No. She told me she did not mind the music.”
+34|Why Remy? >> “It is short and easy to spell.”
+35|Is his head still crooked? >> “Some.”
+35|Can I give him a piece of the linguiça? >> “One,” Cal said. “He is still on chicken and rice.”
+35|What is it called? >> “Caldo verde.”
+35|And when she doesn't? >> “I did not have that answer in June.”
+35|She's got one speech? >> “She poured first.”
+35|Five? >> “It is four minutes to five.”
+36|How high is it? >> “A hundred and one point six.”
+36|Do I tell them where you went? >> “They heard.”
+36|Do you want to be? >> “He's sick, Cal.”
+36|Till Kevin can get him? >> “Yes. I have nothing after this.”
+36|How many times have you been sick? >> “Two.” He thought about it. “Two and a half.”
+36|When was the last one? >> “In here. Into that.”
+36|Does anything hurt? >> “My head. And here.” He put his hand on his stomach.
+36|How often does your mother do it? >> “When I'm hot.” He shut his eyes. “She just feels.”
+36|Where'd you stop? >> “I stopped at one minute and fifty-two seconds.”
+36|Where'd I fall asleep? >> “Before Tulsa. At three minutes and twenty-nine seconds.”
+36|Do you want them now? >> “When Mom's here,” he said.
+36|How long has he been at the gate? >> “Since three. Lying down. Looking out.”
+36|May I tell you why it was on the list? >> “Later.” She slid the card back across the table to me. Twelve was still not on it.
+37|Will you meet me at the Oak on Friday? >> “I've got a house in San Mateo Friday.”
+37|You need anything? >> “I do not need anything.”
+37|What's your heart doing? >> “My watch says ninety-four.”
+37|What's it say on a stage? >> “It says sixty-one.”
+37|What are you buying? >> “Pencils.”
+37|How long is the one you have? >> “Inch and a half.”
+37|Why not the Loving Tree? >> “It was too close to the old Nut Tree.”
+37|How'd you get it to match? >> “I looked at three hundred and six stones. Most sapphires are clear.”
+37|Which Saturday do you want? >> “Whichever one the sixteen-footer's free.”
+37|Owen knows? >> “I asked him on Sunday, before Kevin's.”
+37|What'd he say? >> “He asked whether Pancake comes too.”
+38|Do you still play? >> “You'll find out.”
+38|What's in the pad? >> “It is a dish.”
+38|Whose? >> “It is mine.”
+38|Cal? >> “I would like to be the one she calls.”

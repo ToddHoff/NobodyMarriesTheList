@@ -58,7 +58,7 @@ Page one said neither of us would tell anyone about the other's health, money, h
 
 I had approved the other one in a car.
 
-Remy had put it on my screen on Wednesday at 6:24. I was still hearing her say *I sign it*. I said approve. It was one of three hundred and six things I approved that day. I did not open it.
+Remy had put it on my screen on Wednesday at 6:24. I was still hearing her say *I sign it*. I said approve. It was one of forty-three things I approved that day. I did not open it.
 
 This afternoon I read it. Then I wrote three letters on my own paper, one to each woman who had signed one before her, Ms. Holcomb first. Each said she was released. I mailed them myself.
 
@@ -160,7 +160,7 @@ Jo walked once around it. She put her head into the biggest cave and looked at t
 
 “Alone.”
 
-“Yes. It was the best part of the week.”
+“It was the best part of the week.”
 
 She looked at the cave a little longer. Then she slid the pad off, crawled in, and sat with her back against the far wall and her knees up.
 

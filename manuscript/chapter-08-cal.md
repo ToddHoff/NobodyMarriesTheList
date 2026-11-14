@@ -296,7 +296,7 @@ Jo put her fork down. “I'd eat lunch there.”
 
 “She's not wrong.”
 
-“No. She is rarely wrong. It is a difficult quality in a daughter.”
+“She is rarely wrong. It is a difficult quality in a daughter.”
 
 Jo laughed. I had not been trying to be funny. That made twice.
 
@@ -334,7 +334,7 @@ She stopped with the last of my strawberries halfway.
 
 “None of them?”
 
-“No. Each one is there because of someone.”
+“Each one is there because of someone.”
 
 She studied me. I had seen her study a hutch like that, working out where the weight was.
 

@@ -28,7 +28,7 @@ I changed lanes for no reason.
 
 “How is that a problem?”
 
-“I liked Kevin. He stood in a line in San Jose for a sandwich, Vili.”
+“I liked Kevin. This one stood in a line in San Jose for a sandwich, Vili.”
 
 “Yeah, lock him up.”
 

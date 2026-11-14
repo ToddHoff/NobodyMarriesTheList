@@ -44,7 +44,7 @@ She slid the card back with two lines on it, both crossed out. She was forty-fou
 
 My watch tapped my wrist. *Heart rate 104. No workout detected.*
 
-It looked like a conventional steel watch. Two hands, silver dial, no visible complications. The case was machined from a single block of titanium, and the movement was something our hardware group had spent two years developing. The dial was a layered sapphire display, invisible until Remy needed it. Then the hands moved aside, and information appeared beneath the surface, suspended inside the watch. It ran on a combination of wrist-generated energy and a miniature reserve cell. I had never plugged it in. I did not even know where the charging port was. It did not need one.
+It looked like a conventional steel watch. Two hands, silver dial, no visible complications. The case was machined from a single block of titanium, and the movement was something our hardware group had spent two years developing. The dial was a layered sapphire display, invisible until Remy needed it. Then the hands moved aside, and information appeared beneath the surface, suspended inside the watch. It ran on a combination of wrist-generated energy and a miniature reserve cell. I had never plugged it in. I did not even know where the charging port was.
 
 I put my hand in my lap.
 
@@ -120,7 +120,7 @@ By then she had put a second twenty on the table. A third came later. Nobody bri
 
 “His name is Pancake. He is a cream golden retriever. Eleven. My daughter named him when she was seven, over my objection.”
 
-I did not tell her that he can no longer manage the last three steps to my door, or that I carry him up them every night. I have not told anyone that.
+I did not tell her that he can no longer manage the last three steps to my door, or that I carry him up them every morning. I have not told anyone that.
 
 “I'm not good with dogs,” Jo said. “I got bit on a job when I was twenty-six. Keep him behind a railing.”
 

@@ -460,7 +460,7 @@ I told him. I stood in front of him and undid his buttons from the top, one at a
 
 “It's going again,” I said.
 
-“Yes,” he said. “I am not going to say anything this time.”
+“I am not going to say anything this time,” he said.
 
 I pushed him back onto that big bed and climbed on after him.
 

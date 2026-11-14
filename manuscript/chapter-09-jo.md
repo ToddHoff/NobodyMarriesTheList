@@ -18,7 +18,7 @@ Cal stopped on the walk and read the side of the truck.
 
 “You didn't read what you were buying.”
 
-“No. I do not read most of what I buy.”
+“I do not read most of what I buy.”
 
 “That's how people end up with storage units,” I said, and went to the window.
 

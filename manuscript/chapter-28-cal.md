@@ -20,13 +20,13 @@ Janice came in at 8:30 with a folder.
 
 “There's a charge from a shop in Carmel,” she said. “Saturday. A shirt, pants, a sweater, socks and a toothbrush. Delivered to Big Sur. And a bag of dog food.”
 
-“Yes. It was a good Saturday.”
+“It was a good Saturday.”
 
 She looked at me over the folder.
 
 “Nothing for her?”
 
-“She had a shirt behind her seat.”
+“She does not let me send her things.”
 
 Janice put the folder on my desk. “You have a nine o'clock,” she said, and went.
 
@@ -150,7 +150,7 @@ He thought about that.
 
 Jo laughed out loud. She had to put her hand on a wall.
 
-“Yes,” I said. “I will tell them on Monday.”
+“I will tell them on Monday,” I said.
 
 He looked at me to see whether I meant it. I did. He went and read the paint on the nearest wall with his hands behind his back.
 

@@ -365,9 +365,7 @@ I didn't turn around yet.
 
 “You read my statement upside down,” I said.
 
-“And the loan number.”
-
-“Twice.”
+“And the loan number. Twice.”
 
 “You promised me at your sink.”
 

@@ -234,7 +234,7 @@ Owen looked at Pancake for about four seconds.
 
 Owen put the phone in his pocket without arguing. He goes quiet when he's told no, the part of him that comes from his father. I've watched for it in him since he could walk.
 
-Cal looked at me, then at Pancake. He kept quiet too. The silence was deafening.
+Cal looked at me, then at Pancake. He kept quiet too.
 
 Any other client would have said it was fine. They always do: he's no trouble, let him come out. So I end up saying no twice, to my own kid, in their house. Cal had his own dog on the other side of his own back door. He let my no stand. He wanted to say yes. It was all over his face.
 
@@ -316,11 +316,11 @@ Kevin was at every one of Owen's games. I have said that to anybody who asked, t
 
 “Who's Abby?” Owen said.
 
-“My daughter.”
+“She is my daughter.”
 
 “How old is she?”
 
-“Eighteen.”
+“She is eighteen.”
 
 Owen found the line that said 9. He backed up against the door under it and stood up straight.
 

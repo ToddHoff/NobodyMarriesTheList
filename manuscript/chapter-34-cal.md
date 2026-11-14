@@ -638,7 +638,7 @@ She waited.
 
 “Did she use it?”
 
-“No. She told me she did not mind the music.”
+“She told me she did not mind the music.”
 
 “Why Remy?” Jo said.
 

@@ -230,7 +230,7 @@ He was going to make me say the whole thing.
 
 “Not your robot.”
 
-“No. I would read them.”
+“I would read them.”
 
 “Not anybody you pay.”
 

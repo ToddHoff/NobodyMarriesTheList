@@ -44,7 +44,7 @@ I looked at his feet. Boat shoes, brown leather and white soles, without a mark 
 
 “The one where you sat where they put you.”
 
-“Yes. They have been in a box since then.”
+“They have been in a box since then.”
 
 “Those are the cleanest shoes that have ever been in this marina.”
 
@@ -266,7 +266,7 @@ Kevin's gray sedan pulled up last. He got out and looked up the street and down 
 
 “Did you go under the bridge?”
 
-“Yes. Your grandfather let me raise the main.”
+“Your grandfather let me raise the main.”
 
 “Did you fall in?”
 

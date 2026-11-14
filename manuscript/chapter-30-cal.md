@@ -534,7 +534,7 @@ I took my time with it. She waited. She lets a witness take as long as he needs.
 
 Since Wednesday I had opened Jo's thread twenty-six times. A week ago Friday I had typed *May I* to her and deleted it. Tonight I had sent nothing.
 
-“No,” I said. “It is not the same.”
+“It is not the same,” I said.
 
 “Why not?”
 
@@ -552,7 +552,7 @@ Dawn did not say anything to that. I heard the cup go down.
 
 “Is she still clearing your mother's house?” she said.
 
-“Yes. One more Saturday. The twenty-second.”
+“One more Saturday. The twenty-second.”
 
 “What are you bringing?”
 
@@ -606,7 +606,7 @@ I heard her shift the phone.
 
 I thought about it. I could keep her on the line. She would listen to it with me. When it was over I would have someone to say the next thing to. I would be handing it to someone good.
 
-“No,” I said. “I will do it myself.”
+“I will do it myself,” I said.
 
 “All right.”
 

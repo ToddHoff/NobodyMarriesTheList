@@ -116,7 +116,7 @@ At Cesar Chavez the car told me Jo was calling.
 
 Behind her a dolly went over a threshold. Somebody called a lift on three. She was breathing the way she breathes on a stair with an end of something.
 
-“Yes. I am at Cesar Chavez. I will be at the school at 11:06.”
+“I am at Cesar Chavez. I will be at the school at 11:06.”
 
 “You were on. Owen told me ten.”
 
@@ -150,7 +150,7 @@ I waited.
 
 “Can you stay with him?” she said. “Till Kevin can get him?”
 
-“Yes. I have nothing after this.”
+“I have nothing after this.”
 
 “Thermometer's in the bathroom, top drawer, left side. Kids' Motrin's in the cabinet over the fridge. Read the chart on the box. He's sixty-four pounds.”
 
@@ -410,7 +410,7 @@ He took the bag into the kitchen and put it on the counter. There was a bottle o
 
 “He keep anything down?” he said.
 
-“No. I gave him two glasses of water at 11:20. They came back at 11:27.”
+“I gave him two glasses of water at 11:20. They came back at 11:27.”
 
 He nodded. He has a patient face. I would have trusted it with thirty children.
 

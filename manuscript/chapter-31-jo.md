@@ -120,7 +120,7 @@ I moved the three thousand nine hundred ninety-one dollars and eighty-one cents 
 
 Confetti came down the screen. *You're all set!*
 
-In July I'd sat on a slab in his mother's hall and watched him open a hundred and fifty-six envelopes. Thirty twenties, a ten and two ones. *Calvin, house.* She'd done hers with a pen on the first of the month for thirteen years. I did mine in bed in four minutes, with my thumb.
+In July I'd sat on a slab in his mother's hall and watched him count a hundred and fifty-six envelopes. Thirty twenties, a ten and two ones. *Calvin, house.* She'd done hers with a pen on the first of the month for thirteen years. I did mine in bed in four minutes, with my thumb.
 
 I put the phone face down on the nightstand and turned off the lamp. The glass was warm under my shirt.
 
@@ -360,21 +360,27 @@ She put the pen down. “You know how my marriage ended?”
 
 “You never said.”
 
-“You never asked,” Dawn said. “He had an affair. Or two. Or three. For a divorce lawyer it was such a cliché I was almost embarrassed.”
+“You never asked,” Dawn said. “I got sick. Breast cancer, the year after my mother died. I was forty-four.”
 
-I waited.
+It hit me in the stomach. I was forty-four, and in eleven years I'd never asked.
 
-“The one I know about went on a year and a half. She'd been to our house. I poured her a drink in my own kitchen. Everybody he worked with knew before I did.” She turned the pen over. “I didn't throw him out. I'd done four hundred divorces. I knew what it cost. He ended it. He stayed two years after that and did everything right. I couldn't see any of it. He'd make me laugh at dinner. Then I'd remember, and I'd make him pay for the laugh.”
+“They took the left one. Then chemo. Then radiation, six weeks, every weekday.” She turned the pen over. “I ran it like a trial. I had a binder with tabs. My husband sat with me for the first two rounds. The third one he waited in the car. After that he had meetings.”
 
-“I told myself I'd forgive him when I was done being angry,” she said. She laughed, not much. “I was done in March. He moved out in February.”
+“He never looked at the scar,” she said. “Not once. He found a great deal to do in the garage. And the chemo ended any talk of children. We'd been saying next year for ten years. He has two boys now.”
 
-“What he did was rotten, Joanna,” she said. “We started with an ideal marriage. The affair was still the only thing I could see. I can't tell you how to stop. I couldn't get past the resentment. Can you?”
+“I'd done hundreds of divorces. I'd had that wife in my office, more than once. She gets sick and he gets an apartment. I would tell them it happens all the time. There's even a word for it: spousal abandonment.”
+
+“I told myself we'd talk when I was through treatment,” she said. She laughed, not much. “I was declared cancer free in March. He moved out in February.”
+
+“I went back to work in a wig. The first week a man across the table fought for a set of dining chairs. I thought, this is what did it. Half a lifetime in that room. My doctor said that isn't how you get it. I left the firm anyway.” She touched the back of her head. “It grew in this color.”
+
+“I know what a man looks like when he's going, Joanna. I watched one do it a little at a time.”
 
 “Why'd you check twelve?” I said.
 
 “Because you would tell me no before I've finished asking,” she said. “I had that down as a woman who says what she wants.”
 
-*Only thing you ever asked me for, I had to sign it,* Kevin had said at his car in July.
+*Only thing you ever asked me for, I had to sign it.* That was Kevin.
 
 “You don't have to call him tonight,” Dawn said. Her voice had gone down. “Or this week. Nobody gets to tell you when. Not Stephanie. Not me.”
 
@@ -384,7 +390,7 @@ I waited.
 
 “And he'd send me something back.”
 
-“He might.”
+“You can lift a piano, Joanna. You can handle a text.”
 
 My phone was on my knee. I didn't pick it up.
 
@@ -426,7 +432,7 @@ I didn't say anything.
 
 “I've got a truck coming in,” I said.
 
-“That was love, Joanna. I couldn't see it through the affairs.” She reached for the pot. “Go get your truck.”
+“That was love, Joanna. He left anyway. I'd still take the coffee.” She reached for the pot. “Go get your truck.”
 
 She didn't get up. I let myself out. On the stairs I heard her pour.
 

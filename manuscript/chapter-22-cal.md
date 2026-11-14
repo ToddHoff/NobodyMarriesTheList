@@ -108,7 +108,7 @@ I laughed. I had not expected to.
 
 “I will drive you home,” I said.
 
-On Saturday she said she would take the train. Since May she had not been in my car.
+On Saturday she said she would take the train. She had never been in my car.
 
 She picked up the cooler.
 

@@ -256,7 +256,7 @@ I didn't get up.
 
 “You owe me one,” I said.
 
-“Yes. Any line.”
+“Any line.”
 
 “Eight.”
 

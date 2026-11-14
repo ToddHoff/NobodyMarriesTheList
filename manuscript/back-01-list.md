@@ -26,7 +26,7 @@ Two years at Skyline, then the trucks needed somebody. He asked me if I'd wanted
 
 6. ~~Private. No social media~~ *6/6*
 
-I asked if this one was funny. It wasn't. A woman he'd been seeing sold the story of his custody hearing, with Abby's school in it. My name's under three hundred reviews. My cell number's on every box label I print.
+I asked if this one was funny. It wasn't. A woman he'd been seeing sold the story of his custody hearing, with Abby's school in it. My name's under four hundred reviews. My cell number's on every box label I print.
 
 7. ~~Comfortable being looked after~~ *I will tell you this one myself.*
 

@@ -1,11 +1,145 @@
 # Nobody Marries the List: Handoff (current)
 
-Last updated: Friday, November 13, 2026, 6:16 PM PST
+Last updated: November 14, 2026, 10:37 AM
 
 This file is the log. Read `claude/standing.md` first: it has the standing rules and where the book lives (November 12). Open this file to look up the history of a line or a decision. New entries go here, newest first. `claude/handoff.md` is the older archive (October 5 to October 19). The log records only what was discussed and decided.
 
-### What's next (OPEN: asked 6:16 PM Nov 13)
+### Cal's remaining Yes/No: which to cut (APPLIED November 14, 2026, 10:37 AM: Todd said "ok", read as cut all eleven; files, doc, Vellum. List sent November 14, 2026, 10:36 AM)
+
+Todd: "are there any remaining using this pattern that should be changed". Eleven where the sentence answers alone, nothing applied: a ch 3 "I asked Dawn to say it twice." b ch 8 "She is rarely wrong. It is a difficult quality in a daughter." c ch 8 "Each one is there because of someone." d ch 21 "Any line." e ch 25 "I would read them." f ch 32 "Twice," I said. "On a rock at Castle Rock, and across the hood of her truck." g ch 34 "She told me she did not mind the music." h ch 36 "I am at Cesar Chavez. I will be at the school at 11:06." i ch 36 "I have nothing after this." j ch 36 "I gave him two glasses of water at 11:20. They came back at 11:27." k ch 19 "This kind pours." The rest keep the Yes/No because it is the answer or sits on a beat.
+
+### Cal's Yes/No cuts, Todd picking by hand (from November 14, 2026, 10:25 AM)
+
+- Ch 23 (November 14, 2026, 10:27 AM): "Yes. " cut. Now "They have been in a box since then." File, doc, Vellum.
+- Ch 23 (November 14, 2026, 10:28 AM): "Yes. " cut. Now "Your grandfather let me raise the main." File, doc, Vellum.
+- Ch 26 (November 14, 2026, 10:29 AM): "Yes. " cut. Now "It was the best part of the week." File, doc, Vellum.
+- Ch 27 (November 14, 2026, 10:29 AM): "remove the yes". Now "I am not going to say anything this time," he said. File, doc, Vellum.
+- Ch 28 (November 14, 2026, 10:30 AM): "Yes. " cut. Now "It was a good Saturday." File, doc, Vellum.
+- Ch 28 (November 14, 2026, 10:30 AM): "remove the yes". Now "I will tell them on Monday," I said. File, doc, Vellum.
+- Ch 30 (November 14, 2026, 10:31 AM): "remove the No". Now "It is not the same," I said. File, doc, Vellum.
+- Ch 30 (November 14, 2026, 10:31 AM): "Yes. " cut. Now "One more Saturday. The twenty-second." File, doc, Vellum.
+- Ch 30 (November 14, 2026, 10:32 AM): "remove the no". Now "I will do it myself," I said. File, doc, Vellum.
+- Ch 32 (November 14, 2026, 10:33 AM): "remove the yes". Now "That is all right," I said. File, doc, Vellum.
+- Ch 9: "No. " cut. Now "I do not read most of what I buy." File, doc, Vellum.
+
+### Cal's "Yes." / "No." plus a sentence (OPEN: list sent November 14, 2026, 10:23 AM)
+
+Todd: "Find all instances where cal replies with: Yes or No. a sentence". 37, listed in `claude/cal-yes-no-2026-11-14.md`. Nothing changed. Asked what he wants done with them.
+
+### Ch 28 shirt line and ch 32 "Jo." twice (APPLIED November 14, 2026, 10:23 AM, Todd picked 1 and 4; file, doc, Vellum. Options sent November 14, 2026, 10:21 AM)
+
+Todd: "Let's fix: Ch 28 ... Ch 32 ...". Nothing applied. Ch 28, Cal to Janice, in place of "She had a shirt behind her seat.": 1 (pick) "She does not let me send her things." 2 "I asked. She said no." 3 leave. Ch 32, Abby in the car, in place of "Who did you call?" / "Jo." / "Did she come?" / "Yes. I did not thank her." (he has just said "Jo said to call you when it was light", so Abby already knows): 4 (pick) "You called Jo," she said. / "She came. I did not thank her." 5 "You called Jo," she said. / "She came." 6 leave. Dawn's exchange earlier in 32 stays in every option.
+
+### Ch 20: "since the milk" told twice (APPLIED November 14, 2026, 10:20 AM, Todd picked 1; file, doc, Vellum. Options sent November 14, 2026, 10:19 AM)
+
+Todd: "Let's fix the Ch 20 facts told twize". Options, nothing applied: 1 (pick) the first reply, to Denise, becomes "I have been here since 11:06." (the narration two paragraphs on has Denise looking at the kitchen at 11:06), so Jo's "How much did you hear?" is a real question and "the milk" is said once. 2 the second reply, to Jo, becomes "I heard all of it." 3 cut Jo's "How much did you hear?" and his answer; the hall scene goes from the tape's snap to "She looked at the frames instead of me."
+
+### Ch 11, Cal to Owen: full sentences (November 14, 2026, 10:14 AM)
+
+Todd selected "My daughter." / "How old is she?" / "Eighteen.": "Change these to be full sentences in cal's voice". Now: "She is my daughter." and "She is eighteen." Owen's question unchanged. File, doc, Vellum.
+
+### Ch 3, Cal: "Yes." cut (November 14, 2026, 10:13 AM)
+
+Todd selected "Yes. " and typed "cut". Now: "The one I had in school." File, doc, Vellum.
+
+### Ch 31, Dawn: "He might." (APPLIED November 14, 2026, 10:11 AM, Todd picked 1; file, doc, Vellum. Options sent November 14, 2026, 10:10 AM)
+
+Todd selected "He might.": "something like You can lift a pioano, Joanna, you can handle a text." Options, nothing applied: 1 (pick) "You can lift a piano, Joanna. You can handle a text." 2 "He might. You can lift a piano, Joanna. You can handle a text." 3 "You've carried a piano down a staircase, Joanna. You can read a text."
+
+### Ch 31: "Kevin had said." (APPLIED November 14, 2026, 10:10 AM, Todd picked 1; file, doc, Vellum. Options sent November 14, 2026, 10:09 AM)
+
+Todd selected "Kevin had said.": "this sounds odd". Options, nothing applied: 1 (pick) "*Only thing you ever asked me for, I had to sign it.* That was Kevin." 2 "I heard Kevin. *Only thing you ever asked me for, I had to sign it.*" 3 "Kevin had told me the same thing. *Only thing you ever asked me for, I had to sign it.*" 4 "*Only thing you ever asked me for, I had to sign it,* Kevin said once."
+
+### Ch 31: "at his car in July" cut (November 14, 2026, 10:08 AM)
+
+Todd selected "at his car in July": "no need for a time here". Now: "*Only thing you ever asked me for, I had to sign it,* Kevin had said." File, doc, Vellum.
+
+### Ch 31, Dawn: "half" cut (November 14, 2026, 10:06 AM)
+
+Todd selected "half" and typed "cut". Now: "The first week a man across the table fought for a set of dining chairs." File, doc, Vellum.
+
+### Ch 31, Dawn: half a lifetime (November 14, 2026, 10:06 AM)
+
+Todd selected "Fifteen years" and typed "Half a life-time". Now: "Half a lifetime in that room." (spelled as one word; told him). File, doc, Vellum.
+
+### Ch 31, Dawn: fought for (November 14, 2026, 10:05 AM)
+
+Todd selected "wanted" and typed "fought for". Now: "The first week a man across the table fought for half a set of dining chairs." File, doc, Vellum.
+
+### Ch 31, Dawn: declared cancer free (November 14, 2026, 10:05 AM)
+
+Todd selected "through" in "I was through in March." and typed "declared cancer free". Now: "I was declared cancer free in March. He moved out in February." File, doc, Vellum. The sheet and plan still quote "I was through in March".
+
+### Ch 31, Dawn: spousal abandonment (November 14, 2026, 10:04 AM)
+
+Todd typed "spousal" (cursor in the same line). "partner abandonment" is now "spousal abandonment". File, doc, Vellum.
+
+### Ch 31, Dawn: partner abandonment (November 14, 2026, 10:04 AM)
+
+Todd selected "I used to tell them it was common." and typed: "I would tell them it happens all the time. There's even a word for it: Partner Abandonment." Applied with the term in lower case (told him). File, doc, Vellum.
+
+### Ch 31, Dawn: "hundreds of divorces" (November 14, 2026, 10:02 AM)
+
+Todd selected " four hundred" and typed "hundreds of". Now: "I'd done hundreds of divorces." File, doc, Vellum.
+
+### Fact-only replies, found and rated (OPEN: list sent November 14, 2026, 10:00 AM)
+
+Todd, 9:59 AM Nov 14: "Find all instances of replies that are merely repeating facts and rate them on character appropriateness." The list and the method are in `claude/fact-replies-2026-11-14.md`. Nothing changed in the book. Asked whether he wants options for the lines rated 2.
+
+### Dawn's marriage: breast cancer, he left (APPLIED 9:00 PM Nov 13)
+
+Todd, 8:53 PM: "1" (the whole rewrite with both A picks). In the ch 31 file, the doc (rev 5685) and Vellum: the eight paragraphs below with Jo's line A and Dawn's last line A, and the coffee close. Character sheet (Dawn's engine) and book plan (ch 31 note) updated. Ch 20, 30 and 32 not touched. In Vellum the old "embarrassed." paragraph and "I waited." matched as one paragraph; they are two now, as in the file.
+
+Todd, 8:40 PM, rejecting proposal 1: "I don't like this approach with her being the bad guy. She had breast cancer and mastectomy. We see a lot of abmdonmnemt by men when women get sick." 8:42 PM: "Also she could no longer have kids because of the radiation." His Medium link would not open. Note for him: with breast cancer it is the chemo that ends fertility, not the radiation (breastcancer.org, CURE), so the line says chemo.
+
+Proposal 2 (nothing applied). Ch 31, replaces the affair passage from "You never asked" through "Can you?":
+
+"You never asked," Dawn said. "I got sick. Breast cancer, the year after my mother died. I was forty-four."
+
+I waited.
+
+"They took the left one. Then chemo. Then radiation, six weeks, every weekday." She turned the pen over. "I ran it like a trial. I had a binder with tabs. My husband sat with me for the first two rounds. The third one he waited in the car. After that he had meetings."
+
+"He never looked at the scar," she said. "Not once. He found a great deal to do in the garage. And the chemo ended any talk of children. We'd been saying next year for ten years. He has two boys now."
+
+"I'd done four hundred divorces. I'd had that wife in my office, more than once. She gets sick and he gets an apartment. I used to tell them it was common."
+
+"I told myself we'd talk when I was through treatment," she said. She laughed, not much. "I was through in March. He moved out in February."
+
+"I went back to work in a wig. The first week a man across the table wanted half a set of dining chairs. I thought, this is what did it. Fifteen years in that room. My doctor said that isn't how you get it. I left the firm anyway." She touched the back of her head. "It grew in this color."
+
+"I'm not going to tell you they stay, Joanna. I'm the last woman who gets to say it. But I watched one go, a little at a time, and I know what it looks like."
+
+"Why'd you check twelve?" I said.
+
+Coffee story close: "That was love, Joanna. He left anyway. I'd still take the coffee." (was "I couldn't see it through the affairs.")
+
+Why: he is the one who goes; she is busy staying alive. Her engine holds ("I was through in March. He moved out in February."). The speech now sets up the line already in the scene, "Has he stopped texting you?" / "No." Unchanged: ch 20 back row, ch 30 "since my divorce", ch 32 therapist rule (she was the third kind; when she got sick nobody did the work). Claude's additions, can be struck: the binder, the garage, "He has two boys now", the dining chairs, "It grew in this color", "I'd still take the coffee". On apply: update Dawn's engine in the character sheet and the plan.
+
+Todd, 8:50 PM, on proposal 2: "I waited should be changed to shocked or I felt bad or s9mething. They stay is an error." Options sent 8:55 PM (nothing applied):
+
+Jo's reaction, replacing "I waited.": A (pick) "It hit me in the stomach. I was forty-four, and in eleven years I'd never asked." B "I felt bad. Eleven years, and I'd never asked her one thing about herself." C "I hadn't known. I'd known her eleven years and I hadn't known."
+
+Dawn's last paragraph, replacing "I'm not going to tell you they stay...": A (pick) "I know what a man looks like when he's going, Joanna. I watched one do it a little at a time." B "A man doesn't leave all at once, Joanna. He does it a little at a time. I watched every bit of it." C cut the paragraph; the speech ends on "It grew in this color."
+
+### Dawn's marriage: cancer instead of the affair (proposal 1, REJECTED by Todd 8:40 PM Nov 13: it made Dawn the one at fault)
+- Todd, 8:33 PM: not happy with the affair as the cause; "doesn't really fit with some of the love scenarios". New direction: Dawn survived cancer; that is why she changed careers (tired of the divorce-lawyer life; she thought it had something to do with her sickness); "Their marriage did not survive the cancer even though she did." Asked for research on why marriages fail during cancer and a proposed rewrite of the sections.
+- Research (web, Nov 13): most marriages survive cancer and the overall divorce rate is about the general one; the risk is far higher when the wife is the patient (one 2009 study: 20.8% against 2.9%); trouble usually sits on cracks that were there before; partners struggle to get out of the caregiver and patient roles after treatment, and "back to normal" is slow; communication and intimacy suffer; caregiving wears the well spouse down; patients re-evaluate their lives.
+- Cause proposed for Dawn: he did everything right while she was sick (so the back row in ch 20 and the hot coffee in ch 31 stand). The marriage ended in the year after: he could not stop nursing her, and she could not stand what she owed him. That is Jo's own trouble with the house.
+- Proposed ch 31, replacing the affair speech (from "You never asked" through "Can you?"):
+  "You never asked," Dawn said. "I had cancer. The year after you carried my mother's dresser. I was forty-four." / I looked at her hair. I'd taken it for a haircut. / "I tried a custody case in a wig," she said. "Nobody across the table knew. My husband knew. He drove me to every infusion. He kept a binder. When my counts dropped he slept four nights in a hospital chair." She turned the pen over. "I'd done four hundred divorces. I knew what a man looks like when he's getting ready to go. He never looked like it once." / I waited. / "Then I got well. Nobody tells you about that part. They say you're clear and everybody goes home. I quit the law that week. Fifteen years of other people's worst day. My doctor said that isn't how you get it. I didn't believe her." She laughed, not much. "He kept the binder going another year. He watched me on the stairs. He'd seen me on the bathroom floor, and I couldn't stand to be looked at by him. He'd make me laugh at dinner. Then I'd remember what I owed him, and I'd make him pay for the laugh." / "I told myself I'd let him back in when I felt like myself," she said. "I felt like myself in March. He moved out in February." / "He carried me for fourteen months, Joanna," she said. "I never forgave him for it. I can't tell you how to stop. I couldn't get past what I owed him. Can you?"
+- Proposed ch 31, the coffee story's last line: "That was love, Joanna. I had it down as a debt." (was "I couldn't see it through the affairs.")
+- No change proposed: ch 20 (the back row), ch 32 (the therapist's rule; "to tell me it was his fault" still fits), ch 30 ("I haven't since my divorce"), ch 31's silver short hair.
+- Choices put to Todd: 1 apply as written / 2 this cause, with his changes / 3 a different cause (he could not face the caregiving and left while she was sick; fits the research's starkest number but breaks the love scenes the way the affair did). My pick: 1. Nothing changed yet.
+
+
+### Close read of ch 1 to 30 (CLOSED 6:37 PM Nov 13)
 - Todd asked "What's next". Offered: 1 he commits git / 2 I reread ch 1 to 30 closely / 3 rebuild the Word file / 4 he generates ebook and print from Vellum and pages through them. Todd: "3 is only when i say so don't keep suggesting it". Rule added to standing.md: never suggest the Word rebuild or list it as undone. Re-offered the other three.
+- Todd, 6:17 PM: "I did 1, so do 2". He committed. Close read of ch 1 to 30 under way; findings and a PROGRESS line are kept in claude/final-check-ch01-30.md. If this session is cut off, resume from the PROGRESS line. Change nothing; give Todd one numbered list at the end.
+- 6:20 PM: reading ch 10 showed item 17 of the first check was my error (The List's "four hundred reviews" quotes ch 10). Reverted to "four hundred" in all three places; to tell Todd in the final list.
+- 6:25 PM: all thirty chapters read. Fourteen items in claude/final-check-ch01-30.md (item 1 is my own item-17 error, already reverted in all three places). The book's dates, counts and money check out from ch 1 to ch 38. My picks: 2 through 10. Nothing else changed. The Vellum handle was reopened during the read (Todd had saved the file); it is still nobody-marries-the-list-1.
+- Todd, 6:36 PM: "Ok" to my pick, items 2 through 10. Applied in the files: 2 (ch 26 "forty-three things"), 3 (ch 31 "count"), 4 (ch 29 "And the loan number. Twice."), 5 (ch 2 "every morning"), 6 (ch 2 watch: cut "It did not need one." and KEPT "I did not even know where the charging port was.", the reverse of what I offered, because cutting the first sentence left "one" pointing at nothing; told Todd), 7 (ch 11 cut "The silence was deafening."), 8 (ch 7 "This one stood"), 9 (ch 20 cut ", late at night"), 10 (ch 22 "She had never been in my car."). Items 11 to 14 left alone.
+- 6:37 PM: items 2 through 10 are also in the manuscript doc and the Vellum book (handle reopened; each matched once). Items 11 to 14 left as they are; not to be raised again unless Todd does. Nothing from this evening is committed.
 
 ### Final check (CLOSED 6:15 PM Nov 13)
 - Todd reached the end of ch 38 and asked for a final check. Done: machine checks on the whole book, close read of ch 31 to 38, Vellum compared with the files (the pending compare is DONE: all paragraphs match, added paragraphs are real paragraphs, only the two known italics are missing). Twenty findings in claude/final-check-2026-11-13.md. One fix made: the thirteenth line removed from The List in Vellum (missed earlier). Top finding is my own miss: the new ending's sandwich debt was paid in ch 34. Asked Todd which numbers to apply. Scratch files in claude/tmp.

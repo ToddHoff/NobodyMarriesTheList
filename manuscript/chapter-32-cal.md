@@ -338,7 +338,7 @@ I sat down on the stairs.
 
 “Oh. And someone else called about him,” he said. “Right around ten to six. A woman. She asked if he'd eaten anything yet. She didn't leave a name. I hope that's all right. I told her he was eating.”
 
-“Yes,” I said. “That is all right.”
+“That is all right,” I said.
 
 On Saturday she had made four sandwiches.
 
@@ -470,7 +470,7 @@ I looked at the door to the study, where he sleeps under the desk.
 
 “Have you told her?” she said.
 
-“Yes,” I said. “Twice. On a rock at Castle Rock, and across the hood of her truck.”
+“Twice,” I said. “On a rock at Castle Rock, and across the hood of her truck.”
 
 “Has she said it back?”
 
@@ -546,13 +546,9 @@ She looked out the windshield at her mother in the door. Stephanie had not moved
 
 Abby turned her head and looked at me.
 
-“Who did you call?” she said.
+“You called Jo,” she said.
 
-“Jo.”
-
-“Did she come?”
-
-“Yes,” I said. “I did not thank her.”
+“She came. I did not thank her.”
 
 Abby looked at me a little longer. Then she reached down into the bag between her feet and took out the roll of green tape and held it in her lap, with both hands, the whole way down 280 to 101.
 
